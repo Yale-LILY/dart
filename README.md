@@ -196,7 +196,7 @@ Depending on the data source, some of above fields can be missing because they d
 We maintain a leaderboard on our test set.
 
 
-<table>
+<table style='font-size:80%'>
   <tr>
     <th>Model</th>
     <th>BLEU</th>
@@ -208,7 +208,7 @@ We maintain a leaderboard on our test set.
     <th>GrandPARENT</th>
   </tr>
   <tr>
-    <td> <a href="https://webnlg-challenge.loria.fr/files/melbourne_report.pdf">[Seq2Seq-Att(MELBOURNE)]</a></td>
+    <td> Seq2Seq-Att <a href="https://webnlg-challenge.loria.fr/files/melbourne_report.pdf"> (MELBOURNE) </a></td>
     <td><b></b></td>
     <td><b></b></td>
     <td><b></b></td>
@@ -218,7 +218,7 @@ We maintain a leaderboard on our test set.
     <td><b></b></td>
   </tr>
   <tr>
-    <td> <a href="https://arxiv.org/pdf/1908.09022.pdf">[End-to-End Transformer (Castro Ferreira et al., 2019)]</a></td>
+    <td> End-to-End Transformer <a href="https://arxiv.org/pdf/1908.09022.pdf"> (Castro Ferreira et al., 2019) </a></td>
     <td> </td>
     <td> </td>
     <td> </td>
@@ -228,7 +228,7 @@ We maintain a leaderboard on our test set.
     <td> </td>
   </tr>
   <tr>
-    <td> <a href="https://arxiv.org/pdf/1909.09986.pdf">[NeuralPlan (Moryossef et al., 2019)]</a></td>
+    <td> NeuralPlan <a href="https://arxiv.org/pdf/1909.09986.pdf"> (Moryossef et al., 2019) </a></td>
     <td> </td>
     <td> </td>
     <td> </td>
@@ -238,7 +238,7 @@ We maintain a leaderboard on our test set.
     <td> </td>
   </tr>
   <tr>
-    <td> <a href="https://arxiv.org/pdf/1910.13461.pdf">[BART (Lewis et al., 2020)]</a></td>
+    <td> BART <a href="https://arxiv.org/pdf/1910.13461.pdf"> (Lewis et al., 2020) </a></td>
     <td> </td>
     <td> </td>
     <td> </td>
