@@ -15,7 +15,7 @@ DART is released in the following [paper]() where you can find more details and 
 ```
 
 ## Data Content and Format
-The dataset consists of JSON files in `train`, `dev`, `test` folders. Each JSON file contains some or all of the following fields:
+Data is available in `data` folder. The dataset consists of JSON files in `data/train`, `data/dev`, `data/test` folders. Each JSON file contains some or all of the following fields:
 - `dataset`: the data source
 - `id`: the id of the table
 - `mturk`: from MTurk annotation or not
