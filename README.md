@@ -1,7 +1,7 @@
 # DART: Open-Domain Structured Data Record to Text Generation
 
 DART is a large and open-domain structured **DA**ta **R**ecord to **T**ext generation corpus with high-quality sentence annotations with each input being a set of entity-relation triples following a tree-structured ontology.
-It consists of 78,210 triple-to-sentence pairs across different domains collected from both human annotation and automatic generation procedures.
+It consists of 78,210 examples across different domains with each input being a semantic RDF triple set derived from data records in tables and the tree ontology of table schema, annotated with sentence description that covers all facts in the triple set.
 
 DART is released in the following [paper]() where you can find more details and baseline results.
 
