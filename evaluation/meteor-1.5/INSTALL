@@ -1,0 +1,30 @@
+Requirements:
+-------------
+
+To run Meteor:
+
+Java JDK 1.5 or above.  Java 1.6 update 14 or above is recommended to
+take advantage of compressed object pointers to reduce memory usage:
+http://java.sun.com/javase/downloads/index.jsp
+
+To build Meteor from source:
+
+Apache Ant:
+http://ant.apache.org/
+
+Running Meteor:
+---------------
+
+Please see the README for instructions on running Meteor.  Building Meteor
+from source is NOT required.
+
+Building Meteor:
+----------------
+
+A precompiled jar file is included with the Meteor release.  To compile Meteor
+from source, run ant from the Meteor directory (containing the file
+"build.xml"):
+
+$ ant
+
+This will create the jar file meteor-<version>.jar in the Meteor directory.

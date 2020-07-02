@@ -1,0 +1,71 @@
+%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%
+%                Template file for Meteor statistics histograms                %
+%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%%
+
+\documentclass[landscape]{article}
+
+\usepackage{graphicx}
+\usepackage[margin=0.5in]{geometry}
+\pagenumbering{0}
+\renewcommand{\rmdefault}{phv} % Arial
+\renewcommand{\sfdefault}{phv} % Arial
+
+\begin{document}
+
+\noindent\Large
+Meteor Statistics for all sentences\\\\
+\large
+\begin{tabular}{cc}
+\includegraphics[width=0.45\textwidth]{score-all.eps} & \includegraphics[width=0.45\textwidth]{frag-all.eps} \\
+\includegraphics[width=0.45\textwidth]{p-all.eps} & \includegraphics[width=0.45\textwidth]{r-all.eps} \\
+\end{tabular}
+
+\newpage
+
+\noindent\Large
+Meteor Scores by sentence length\\\\
+\large
+\begin{tabular}{cc}
+\includegraphics[width=0.45\textwidth]{score-1-10.eps} & \includegraphics[width=0.45\textwidth]{score-11-25.eps} \\
+1--10 words & 11-25 words \\
+\includegraphics[width=0.45\textwidth]{score-26-50.eps} & \includegraphics[width=0.45\textwidth]{score-51+.eps} \\
+26--50 words & 51+ words \\
+\end{tabular}
+
+\newpage
+
+\noindent\Large
+Meteor Precision by sentence length\\\\
+\large
+\begin{tabular}{cc}
+\includegraphics[width=0.45\textwidth]{p-1-10.eps} & \includegraphics[width=0.45\textwidth]{p-11-25.eps} \\
+1--10 words & 11-25 words \\
+\includegraphics[width=0.45\textwidth]{p-26-50.eps} & \includegraphics[width=0.45\textwidth]{p-51+.eps} \\
+26--50 words & 51+ words \\
+\end{tabular}
+
+\newpage
+
+\noindent\Large
+Meteor Recall by sentence length\\\\
+\large
+\begin{tabular}{cc}
+\includegraphics[width=0.45\textwidth]{r-1-10.eps} & \includegraphics[width=0.45\textwidth]{r-11-25.eps} \\
+1--10 words & 11-25 words \\
+\includegraphics[width=0.45\textwidth]{r-26-50.eps} & \includegraphics[width=0.45\textwidth]{r-51+.eps} \\
+26--50 words & 51+ words \\
+\end{tabular}
+
+\newpage
+
+\noindent\Large
+Meteor Fragmentation by sentence length\\\\
+\large
+\begin{tabular}{cc}
+\includegraphics[width=0.45\textwidth]{frag-1-10.eps} & \includegraphics[width=0.45\textwidth]{frag-11-25.eps} \\
+1--10 words & 11-25 words \\
+\includegraphics[width=0.45\textwidth]{frag-26-50.eps} & \includegraphics[width=0.45\textwidth]{frag-51+.eps} \\
+26--50 words & 51+ words \\
+\end{tabular}
+
+\end{document}
