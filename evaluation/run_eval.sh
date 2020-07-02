@@ -2,11 +2,6 @@
 
 # This serves our evaluation scripts and need to add to github
 
-# Let's use the following directory for evaluation of BLEU/METEOR/TER/MoverScore/BERTScore/BLEURT
-# EVAL_DIR=/home/lily/ch956/eval
-# cd ${EVAL_DIR}
-
-
 #################### Table 4 ##########################
 TEST_TARGETS_REF0=/home/lily/ch956/eval/test-webnlg-all-notdelex.lex
 
@@ -15,24 +10,26 @@ TEST_TARGETS_REF0=/home/lily/ch956/eval/test-webnlg-all-notdelex.lex
 ### train on WebNLG only ###
 OUTPUT_FILE=/home/lily/xarutang/yale/dtt/results/relexicalised_webnlg_only.txt
 # BLEU all
-./multi-bleu.perl ${TEST_TARGETS_REF0} < ${OUTPUT_FILE}
+./multi-bleu.perl ${TEST_TARGETS_REF0} < ${OUTPUT_FILE} > bleu.txt
+tail -10 bleu.txt
 # BLEU seen
 # BLEU unseen
 
-## TODO: need to make metrics.py have arguments
-python metrics.py
 
 # METEOR all
-cd ../meteor-1.5/ 
-java -Xmx2G -jar meteor-1.5.jar ../eval/relexicalised_predictions.txt ../eval/all-notdelex-ref-meteor.txt -l en -norm -r 8 > ../eval/meteor.txt
-cd ../eval ; tail -10 meteor.txt
+python metrics.py ${OUTPUT_FILE} ${TEST_TARGETS_REF0}
+
+cd meteor-1.5/ 
+java -Xmx2G -jar meteor-1.5.jar ${OUTPUT_FILE} ../all-notdelex-refs-meteor.txt -l en -norm -r 8 > ../meteor.txt
+cd ..; tail -10 meteor.txt
 # METEOR seen
 # METEOR unseen
 
+
 # TER all
-cd ../tercom-0.7.25/
-java -jar tercom.7.25.jar -h ../eval/relexicalised_predictions-ter.txt -r ../eval/all-notdelex-refs-ter.txt > ../eval/ter.txt
-cd ../eval ; tail -10 ter.txt
+cd tercom-0.7.25/
+java -jar tercom.7.25.jar -h ../relexicalised_predictions-ter.txt -r ../all-notdelex-refs-ter.txt > ../ter.txt
+cd ../; tail -10 ter.txt
 # TER seen
 # TER unseen
 

@@ -1,7 +1,7 @@
 import os
+import sys
 
-
-def prepare_files_ter(inputdir):
+def prepare_files_ter(system_output, reference_file):
     """
     Generate files for METEOR and TER input.
     :param inputdir: directory with bleu files
@@ -9,9 +9,9 @@ def prepare_files_ter(inputdir):
     """
     references = []  # each element is a list of references
     pure_references = []
-    initialref = inputdir + 'test-webnlg-all-notdelex.lex'
+    # initialref = inputdir + 'test-webnlg-all-notdelex.lex'
     # complete refs with references for all sents
-    with open(initialref, 'r') as f:
+    with open(reference_file, 'r') as f:
         for i, line in enumerate(f):
             references.append([line.strip() + ' (id' + str(i) + ')\n'])
             pure_references.append([line])
@@ -21,21 +21,22 @@ def prepare_files_ter(inputdir):
         for ref in references:
             f.write(''.join(ref))
 
-    files = [(inputdir, filename) for filename in os.listdir(inputdir)]
-    for filepath in files:
-        if 'all-notdelex-reference' in filepath[1] and 'reference0' not in filepath[1]:
-            with open(filepath[0]+filepath[1], 'r') as f:
-                for i, line in enumerate(f):
-                    if line != '\n':
-                        references[i].append(line.strip() + ' (id' + str(i) + ')\n')
-                        pure_references[i].append(line)
+    # TODO: This is for multiple references?
+    # files = [(inputdir, filename) for filename in os.listdir(inputdir)]
+    # for filepath in files:
+    #     if 'all-notdelex-reference' in filepath[1] and 'reference0' not in filepath[1]:
+    #         with open(filepath[0]+filepath[1], 'r') as f:
+    #             for i, line in enumerate(f):
+    #                 if line != '\n':
+    #                     references[i].append(line.strip() + ' (id' + str(i) + ')\n')
+    #                     pure_references[i].append(line)
 
     with open('all-notdelex-refs-ter.txt', 'w+') as f:
         for ref in references:
             f.write(''.join(ref))
 
     # prepare generated hypotheses
-    with open('relexicalised_predictions.txt', 'r') as f:
+    with open(system_output, 'r') as f:
         geners = [line.strip() + ' (id' + str(i) + ')\n' for i, line in enumerate(f)]
     with open('relexicalised_predictions-ter.txt', 'w+') as f:
         f.write(''.join(geners))
@@ -54,5 +55,7 @@ def prepare_files_ter(inputdir):
 
 
 if __name__ == "__main__":
-    topdir = './'
-    prepare_files_ter(topdir)
+    system_output = sys.argv[1]
+    reference_file = sys.argv[2]
+    # print(sys.argv)
+    prepare_files_ter(system_output, reference_file)
