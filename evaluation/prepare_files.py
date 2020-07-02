@@ -51,7 +51,7 @@ def prepare_files_ter(system_output, reference_file):
             f.write(''.join(ref))
             if empty_lines > 0:
                 f.write('\n' * empty_lines)
-    print('Input files for METEOR and TER generated successfully.')
+    # print('Input files for METEOR and TER generated successfully.')
 
 
 if __name__ == "__main__":
