@@ -2,6 +2,8 @@ import statistics
 import sys
 
 if __name__ == '__main__':
+    print('##################### Summary ##########################')
+
     with open('bleu.txt') as f:
         bleu = float(f.read().strip().split()[2].replace(',',''))
     print("BLEU: {:.2f}".format(bleu))
@@ -26,5 +28,6 @@ if __name__ == '__main__':
         scores = [float(s) for s in f.readlines()]
         bleurt = statistics.mean(scores)
     print("BLEURT: {:.2f}".format(bleurt))
+
 
     print(' & '.join(["{:.2f}".format(bleu), "{:.2f}".format(meteor), "{:.2f}".format(ter), "{:.2f}".format(moverscore), "{:.2f}".format(bertscore), "{:.2f}".format(bleurt)]))
