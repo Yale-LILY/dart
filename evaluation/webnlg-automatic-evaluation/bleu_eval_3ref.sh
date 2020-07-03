@@ -1,10 +1,10 @@
 #!/bin/bash
-
+#source ../tmp
 # compute BLEU for three references only
 echo "Calculating BLEU for:"
 
 # teams participated
-teams='xgbart'
+teams="$TEAMR"
 #'BIU_Chimera_NaivePlan_r1 BIU_Chimera_NeuralPlan_r1'
 #'BIU_Chimera_v1'
 #'ADAPT_Centre GKB_Unimelb PKUWriter Tilburg_University-1 Tilburg_University-2 Tilburg_University-3 UIT-DANGNT-CLNLP UPF-TALN Baseline'

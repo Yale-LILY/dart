@@ -1,5 +1,5 @@
 #!/bin/bash
-source ../vars
+#source ../tmp
 # compute TER
 echo 'This script should be run from the directory where TER is installed. Modify your GLOBAL_PATH accordingly.'
 
@@ -8,7 +8,7 @@ export TEAM_PATH=${GLOBAL_PATH}/teams/
 export REF_PATH=${GLOBAL_PATH}/references/
 
 # teams participated
-teams="$TEAM"
+teams="$TEAMR"
 #'BIU_Chimera_NeuralPlan_r1 BIU_Chimera_NaivePlan_r1'
 #'BIU_Chimera_v1'
 #'ADAPT_Centre GKB_Unimelb PKUWriter Tilburg_University-1 Tilburg_University-2 Tilburg_University-3 UIT-DANGNT-CLNLP UPF-TALN Baseline'
