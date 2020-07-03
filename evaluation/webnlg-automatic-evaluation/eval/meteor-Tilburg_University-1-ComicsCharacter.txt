@@ -1,0 +1,79 @@
+Meteor version: 1.5
+
+Eval ID:        meteor-1.5-wo-en-norm-0.85_0.2_0.6_0.75-ex_st_sy_pa-1.0_0.6_0.8_0.6
+
+Language:       English
+Format:         plaintext
+Task:           Ranking
+Modules:        exact stem synonym paraphrase
+Weights:        1.0 0.6 0.8 0.6
+Parameters:     0.85 0.2 0.6 0.75
+
+Meteor version: 1.5
+
+Eval ID:        meteor-1.5-wo-en-norm-0.85_0.2_0.6_0.75-ex_st_sy_pa-1.0_0.6_0.8_0.6
+
+Language:       English
+Format:         plaintext
+Task:           Ranking
+Modules:        exact stem synonym paraphrase
+Weights:        1.0 0.6 0.8 0.6
+Parameters:     0.85 0.2 0.6 0.75
+
+Segment 1 score:	1.0
+Segment 2 score:	0.3172650432449119
+Segment 3 score:	0.4607949555862112
+Segment 4 score:	1.0
+Segment 5 score:	0.38435977337996763
+Segment 6 score:	1.0
+Segment 7 score:	0.4191512740282741
+Segment 8 score:	0.3665399990008671
+Segment 9 score:	0.4645695216158345
+Segment 10 score:	0.42551680295294997
+Segment 11 score:	0.3843319119719861
+Segment 12 score:	1.0
+Segment 13 score:	0.43929635160427855
+Segment 14 score:	0.33892304178967664
+Segment 15 score:	0.4462360976647156
+Segment 16 score:	0.48392214134794975
+Segment 17 score:	0.4283079901434159
+Segment 18 score:	0.5550036827536743
+Segment 19 score:	0.49942271163155266
+Segment 20 score:	0.34598520971036034
+Segment 21 score:	1.0
+Segment 22 score:	0.3319987139838397
+Segment 23 score:	0.4907129188584181
+Segment 24 score:	0.3836370535190194
+Segment 25 score:	0.4624513171153073
+Segment 26 score:	0.38032465980924496
+Segment 27 score:	0.4162421605912809
+Segment 28 score:	0.3943440709537729
+Segment 29 score:	0.3803333711136149
+Segment 30 score:	0.44074903565882634
+Segment 31 score:	0.3186921098407438
+Segment 32 score:	0.42050765257531125
+Segment 33 score:	0.24224424704919628
+Segment 34 score:	0.38330649630076696
+Segment 35 score:	0.46512243545544235
+
+System level statistics:
+
+
+           Test Matches                  Reference Matches
+Stage      Content  Function    Total    Content  Function    Total
+1              261       151      412        261       151      412
+2                4         0        4          4         0        4
+3                2         0        2          2         0        2
+4                5         6       11          6         6       12
+Total          272       157      429        273       157      430
+
+Test words:             570
+Reference words:        536
+Chunks:                 152
+Precision:              0.790924092409241
+Recall:                 0.8265060240963855
+f1:                     0.808323673843166
+fMean:                  0.8209660064186697
+Fragmentation penalty:  0.4874469242125166
+
+Final score:            0.42078865170685603

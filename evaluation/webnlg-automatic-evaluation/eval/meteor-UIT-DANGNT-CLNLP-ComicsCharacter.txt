@@ -1,0 +1,68 @@
+Meteor version: 1.5
+
+Eval ID:        meteor-1.5-wo-en-norm-0.85_0.2_0.6_0.75-ex_st_sy_pa-1.0_0.6_0.8_0.6
+
+Language:       English
+Format:         plaintext
+Task:           Ranking
+Modules:        exact stem synonym paraphrase
+Weights:        1.0 0.6 0.8 0.6
+Parameters:     0.85 0.2 0.6 0.75
+
+Segment 1 score:	0.5817601299089978
+Segment 2 score:	0.0
+Segment 3 score:	0.0
+Segment 4 score:	0.5576747324013525
+Segment 5 score:	0.0
+Segment 6 score:	0.36897020664951324
+Segment 7 score:	0.4191512740282741
+Segment 8 score:	0.40541736766559006
+Segment 9 score:	0.3838031971359349
+Segment 10 score:	0.46131085517428067
+Segment 11 score:	0.38739253185836536
+Segment 12 score:	0.4159784690900273
+Segment 13 score:	0.0
+Segment 14 score:	0.3696020716118977
+Segment 15 score:	0.8916666666666667
+Segment 16 score:	0.3654150690850215
+Segment 17 score:	0.0
+Segment 18 score:	0.0
+Segment 19 score:	0.0
+Segment 20 score:	0.4385231248186827
+Segment 21 score:	0.5318582189088413
+Segment 22 score:	0.41091989861207784
+Segment 23 score:	0.0
+Segment 24 score:	0.0
+Segment 25 score:	0.0
+Segment 26 score:	0.0
+Segment 27 score:	0.0
+Segment 28 score:	0.0
+Segment 29 score:	0.0
+Segment 30 score:	0.0
+Segment 31 score:	0.0
+Segment 32 score:	0.0
+Segment 33 score:	0.0
+Segment 34 score:	0.0
+Segment 35 score:	0.0
+
+System level statistics:
+
+
+           Test Matches                  Reference Matches
+Stage      Content  Function    Total    Content  Function    Total
+1               76        44      120         76        44      120
+2                4         0        4          4         0        4
+3                1         2        3          1         2        3
+4                5         6       11          6         6       12
+Total           86        52      138         87        52      139
+
+Test words:             212
+Reference words:        556
+Chunks:                 45
+Precision:              0.6266949152542375
+Recall:                 0.24841402337228716
+f1:                     0.3557952580614653
+fMean:                  0.2731450926920738
+Fragmentation penalty:  0.4791856439789267
+
+Final score:            0.1422578855507388

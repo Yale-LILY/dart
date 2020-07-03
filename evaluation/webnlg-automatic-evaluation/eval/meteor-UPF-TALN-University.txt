@@ -1,0 +1,86 @@
+Meteor version: 1.5
+
+Meteor version: 1.5
+
+Eval ID:        meteor-1.5-wo-en-norm-0.85_0.2_0.6_0.75-ex_st_sy_pa-1.0_0.6_0.8_0.6
+
+Language:       English
+Format:         plaintext
+Task:           Ranking
+Modules:        exact stem synonym paraphrase
+Weights:        1.0 0.6 0.8 0.6
+Parameters:     0.85 0.2 0.6 0.75
+
+Segment 1 score:	0.34662099796067003
+Segment 2 score:	0.5327740261891396
+Segment 3 score:	0.42812922343160015
+Segment 4 score:	0.4441747248841805
+Segment 5 score:	1.0
+Segment 6 score:	0.5818389080834463
+Segment 7 score:	0.5084706372948566
+Segment 8 score:	0.316049468366579
+Segment 9 score:	0.5299431806038049
+Segment 10 score:	0.5172581002272206
+Segment 11 score:	0.47651135866283284
+Segment 12 score:	0.4189348495675589
+Segment 13 score:	0.3816321761430237
+Segment 14 score:	0.469295107307025
+Segment 15 score:	0.43457569944547425
+Segment 16 score:	0.3646968374298794
+Segment 17 score:	0.3967082712717307
+Segment 18 score:	0.42703536747254267
+Segment 19 score:	0.4746289248719911
+Segment 20 score:	0.3106472223898004
+Segment 21 score:	0.47350878682659253
+Segment 22 score:	0.43886840003319505
+Segment 23 score:	0.4058057936328133
+Segment 24 score:	0.4162308747222336
+Segment 25 score:	0.33954169445999344
+Segment 26 score:	0.3775147152930728
+Segment 27 score:	0.36510123876690065
+Segment 28 score:	0.3904868345510338
+Segment 29 score:	0.37553989000442034
+Segment 30 score:	0.48213292347006376
+Segment 31 score:	0.48347010446386574
+Segment 32 score:	0.4053348456540186
+Segment 33 score:	0.42740384977620305
+Segment 34 score:	0.40775906940740025
+Segment 35 score:	0.4332131467454564
+Segment 36 score:	0.3877578825056302
+Segment 37 score:	0.3895444622607869
+Segment 38 score:	0.45689003571731673
+Segment 39 score:	0.463519484981654
+Segment 40 score:	0.3956493989112333
+Segment 41 score:	0.3877517424036706
+Segment 42 score:	0.44524257420707186
+Segment 43 score:	0.39808815383265045
+Segment 44 score:	0.4073101247230196
+Segment 45 score:	0.384922565499502
+Segment 46 score:	0.42808669022165385
+Segment 47 score:	0.3928585854612412
+Segment 48 score:	0.40853916769887116
+Segment 49 score:	0.4156508399605178
+Segment 50 score:	0.4145122911912223
+Segment 51 score:	0.3524485468147712
+
+System level statistics:
+
+
+           Test Matches                  Reference Matches
+Stage      Content  Function    Total    Content  Function    Total
+1              712       594     1306        712       594     1306
+2                6         0        6          6         0        6
+3                5         4        9          5         4        9
+4               22        36       58         25        39       64
+Total          745       634     1379        748       637     1385
+
+Test words:             1886
+Reference words:        1603
+Chunks:                 638
+Precision:              0.7569048898441697
+Recall:                 0.8746980489315578
+f1:                     0.811549445810915
+fMean:                  0.8547451203745414
+Fragmentation penalty:  0.5140599593170361
+
+Final score:            0.41535487856836956

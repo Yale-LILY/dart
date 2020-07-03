@@ -1,0 +1,60 @@
+the bacon sandwich uses bread and bacon with ketchup or brown sauce as a condiment , is also known as a bacon butty , bacon sarnie , rasher sandwich , bacon sanger , piece ' n bacon , bacon cob , bacon barm , or bacon muffin . a variation is the blt , and the country of origin is the united kingdom .
+the bacon sandwich , also known as : bacon butty , bacon sarnie , rasher sandwich , bacon sanger , piece n ' bacon , bacon cob , bacon barm , blt and bacon muffin , is from the united kingdom . it includes bread , bacon and ketchup or brown sauce .
+the variant blt bacon sandwich includes : bread , bacon , and ketchup or brown sauce . it originates from the united kingdom and goes by the various names : bacon butty , bacon sarnie , rasher sandwich , bacon sanger , piece n ' bacon , bacon barm , bacon cob and bacon muffin .
+adam mcquaid was originally drafted to the columbus blue jackets out of columbus , ohio . he nows plays with the boston bruins whose general manager is don sweeney .
+don sweeney is general manager for the boston bruins , the team adam mcquaid played for . mcquaid was drafted to the columbus blue jackets , from columbus , ohio .
+adam mcquaid was drafted with the columbus blue jackets in columbus , ohio . he played for the boston bruins whose manager is don sweeney .
+ahmet ertegun was born in istanbul , turkey .
+
+
+alfred n phillips was mayor of stamford , connecticut .
+alfred n . phillips was the mayor of stamford connecticut .
+alfred n . phillips was mayor of stamford , connecticut .
+found in mexico , the food , bionico ( with granola as an ingredient ) , is served at the dessert course .
+bionico is served as a dessert course . it is found in mexico and requires granola as an ingredient .
+
+texas is located in the united states , and its demonym is tejano . the andrews county airport is located in texas .
+andrews county airport is located in texas in the united states where the inhabitants have the demonym tejano , .
+andrews county airport is located in texas , united states where the inhabitants have the demonym of tejano .
+atlas ii had its final flight on march 16th 1998 .
+the final flight of atlas ii was on 1998 - 03 - 16 .
+the final flight of the atlas ii was on the 16th march 1998 .
+fish cooked in hot and sour sauce is called asam pedas and can be found in the malay peninsula region of malaysia .
+the main ingredient of asam pedas , which hails from malaysia , peninsula , is fish cooked in a sour and hot sauce .
+asam pedas is a food from the malay peninsula region and the main ingredients are fish cooked in a sour and hot sauce .
+native americans are an ethnic group in the united states , where english is the language . also in the united states , is albany , in georgia .
+english is spoken in the united states , where native americans are an ethnic group . the us is home to albany , which is located in georgia .
+albany , georgia is located in the united states where english is the official language . the native americans are an ethnic group within the united states .
+the alfa romeo 164 , fiat croma and opel vectra are related forms of transportation . the body style of the alfa romeo 164 is sedan and it ' s assembly line is in milan .
+the alfa romeo 164 , opel vectra and fiat croma are similar means of transport . the alfa romeo 164 is a sedan which was assembled in milan .
+the alfa romeo 164 is assembled in milan and has a sedan type body . it is a related and similar means of transport to the fiat croma and the opel vectra .
+the awh engineering college in kuttikkattoor , india was established in 2001 and has a staff of 250 . the country ' s largest city is mumbai .
+awh engineering college established in 2001 in kuttikkattoor , india has 250 academic staff . mumbai is the largest city in india .
+india with it ' s largest city mumbai is also the home of the awh engineering college . the college is based in the city of kuttikkattoor and was founded in 2001 . it currently has 250 members of staff .
+the capital city of the united states is washington d . c . some asian americans live in the united states and a wizard of mars was published there .
+the united states are home to asian americans as well as where " a wizard of mars " was published . washington d . c . is the capital .
+washington d . c . is the capital of the united states , where many asian americans live . a wizard of mars was written in the united states .
+malays are an ethnic group of sumatra .
+malays are an ethnic group in sumatra .
+
+serving the city of amsterdam , amsterdam airport schiphol is - 3 . 3528 metres above sea level . it has a runway named 09 / 27 buitenveldertbaan and a runway length of 2014 . 0 .
+amsterdam airport , schiphol serves the city of amsterdam and is - 3 . 3528 from sea level . the runway name is 09 / 27 buitenvelderbaan and is 2014 . 0 in length .
+
+connecticut born alfred n phillips , a democrate , worked as member of the u . s . house of representatives from connecticut ' s 4th district and was succeded by albert e . austin .
+alfred n . phillips , born in connecticut was a member of the united states democratic party and worked as a member of the u . s . house of representatives from the connecticut ' s 4th district . his successor was albert e . austin .
+alfred n . phillips was born in connecticut and he was a member of the democratic party united states and a member of the u . s . house of representatives from connecticut ' s 4th district . albert e . austin succeeded alfred n . phillips .
+turkmenistan airlines , which is headquartered in turkmenistan , is the operating organization for ashgabat international airport .
+the headquarters of turkmenistan airlines are located in turkmenistan and they are the operating organisation for ashgabat international airport .
+ashgabat international airport is operated by turkmenistan airlines , the headquarters of which are located in turkmenistan .
+the 11th mississippi infantry monument is located at seminary ridge , in adams county , pennsylvania , usa . the monument was completed in 2000 . it is classified as a contributing property .
+in 2000 the 11th mississippi infantry monument which is categorised as a contributing property , was established . it is located at seminary ridge , adams county , pennsylvania , in the us .
+the 11th mississippi infantry monument is located at seminary ridge , in adams county , pennsylvania , usa . it was established in 2000 , and is categorized as a contributing property .
+english is the language of the united states .
+the language of the united states is english .
+
+francisco franco was the predecessor of juan carlos i of spain .
+the predecessor of juan carlos i f spain was francisco franco .
+
+alcatraz versus the evil librarians is considered fantasy literature and has the isbn number 0 - 439 - 92550 - 9 .
+alcatraz versus the evil librarians has the isbn number 0 - 439 - 92550 - 9 and can be found under the genre of fantasy literature .
+alcatraz versus the evil librarians is a fantasy book , with the isbn number of 0 - 439 - 92550 - 9 .

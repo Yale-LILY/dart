@@ -1,0 +1,4 @@
+BLEU = 0.00, 33.0/4.3/0.0/0.0 (BP=0.521, ratio=0.605, hyp_len=273, ref_len=451)
+BLEU = 0.00, 33.0/4.3/0.0/0.0 (BP=0.521, ratio=0.605, hyp_len=273, ref_len=451)
+BLEU = 0.00, 33.0/4.3/0.0/0.0 (BP=0.521, ratio=0.605, hyp_len=273, ref_len=451)
+BLEU = 0.00, 33.0/4.3/0.0/0.0 (BP=0.521, ratio=0.605, hyp_len=273, ref_len=451)

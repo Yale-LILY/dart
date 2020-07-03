@@ -1,5 +1,5 @@
 TEAM=xgbart
 OUTPUT_FILE1=/home/lily/xarutang/yale/dtt/results/relexicalised_webnlg_only.txt
 OUTPUT_FILE2=/home/lily/xarutang/yale/dtt/results/relexicalised_exp1.txt
-OUTPUT_FILE3=/home/lily/xarutang/yale/dtt/results/relexicalised_webnlg_only.txt
+OUTPUT_FILE3=/home/lily/xarutang/yale/dtt/results/relexicalised_exp2.txt
 OUTPUT_FILE4=/home/lily/xarutang/yale/dtt/results/relexicalised_webnlg_only.txt
