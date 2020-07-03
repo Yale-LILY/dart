@@ -2,11 +2,21 @@
 
 
 #################### Table 5 ##########################
+source /home/lily/ch956/expenv/bin/activate
 
-TEST_TARGETS_REF0=/data/lily/ass52/webnlg/dart-v1.0.0/test-webnlg-all-notdelex.lex
+# TEST_TARGETS_REF0=/data/lily/ass52/webnlg/dart-v1.0.0/test-webnlg-all-notdelex.lex
+
+TEST_TARGETS_REF0=/data/lily/ass52/webnlg/dart-v1.0.0/all-delex-reference0.lex
+TEST_TARGETS_REF1=/data/lily/ass52/webnlg/dart-v1.0.0/all-delex-reference1.lex
+TEST_TARGETS_REF2=/data/lily/ass52/webnlg/dart-v1.0.0/all-delex-reference2.lex
 
 ### Seq-to-Seq with Attention ###
-OUTPUT_FILE=/data/lily/ch956/DeepNLG2/output/darte2e/transformer/test.out.postprocessed.relex
+OUTPUT_FILE=/data/lily/ass52/webnlg/dart-v1.0.0/relexicalised_predictions.txt
+
+### End-to-End Transformer ###
+# OUTPUT_FILE=/data/lily/ch956/DeepNLG2/output/darte2e/transformer/test.out.postprocessed.relex
+
+
 
 # BLEU
 ./multi-bleu.perl ${TEST_TARGETS_REF0} < ${OUTPUT_FILE} > bleu.txt
@@ -25,13 +35,13 @@ java -jar tercom.7.25.jar -h ../relexicalised_predictions-ter.txt -r ../all-notd
 cd ../
 # tail -10 ter.txt
 
-source /home/lily/ch956/expenv/bin/activate
-python --version
+# source /home/lily/ch956/expenv/bin/activate
+# python --version
 
 # MoverScore
 python moverscore.py ${TEST_TARGETS_REF0} ${OUTPUT_FILE} > moverscore.txt
 # BERTScore
-bert-score -r ${TEST_TARGETS_REF0} -c ${OUTPUT_FILE} --lang en > bertscore.txt
+bert-score -r ${TEST_TARGETS_REF0} ${TEST_TARGETS_REF1} ${TEST_TARGETS_REF2} -c ${OUTPUT_FILE} --lang en > bertscore.txt
 # BLEURT
 python -m bleurt.score -candidate_file=${OUTPUT_FILE} -reference_file=${TEST_TARGETS_REF0} -bleurt_checkpoint=bleurt/bleurt/test_checkpoint -scores_file=bleurt.txt
 python print_scores.py

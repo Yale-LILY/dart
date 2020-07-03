@@ -11,7 +11,8 @@ echo "full dart $OUTPUT_FILE4"
 source /home/lily/ch956/expenv/bin/activate
 export $TEAM
 run=1
-for OUTPUT_FILE in $OUTPUT_FILE1 $OUTPUT_FILE2 $OUTPUT_FILE3 $OUTPUT_FILE4
+# for OUTPUT_FILE in $OUTPUT_FILE1 $OUTPUT_FILE2 $OUTPUT_FILE3 $OUTPUT_FILE4
+for OUTPUT_FILE in $OUTPUT_FILE1
     do
     export TEAMR=$TEAM$run
     export OUTPUT_FILE=$OUTPUT_FILE
