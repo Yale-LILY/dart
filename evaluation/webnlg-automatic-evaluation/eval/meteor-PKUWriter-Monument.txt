@@ -1,0 +1,77 @@
+Meteor version: 1.5
+
+Eval ID:        meteor-1.5-wo-en-norm-0.85_0.2_0.6_0.75-ex_st_sy_pa-1.0_0.6_0.8_0.6
+
+Language:       English
+Format:         plaintext
+Task:           Ranking
+Modules:        exact stem synonym paraphrase
+Weights:        1.0 0.6 0.8 0.6
+Parameters:     0.85 0.2 0.6 0.75
+
+Meteor version: 1.5
+
+Eval ID:        meteor-1.5-wo-en-norm-0.85_0.2_0.6_0.75-ex_st_sy_pa-1.0_0.6_0.8_0.6
+
+Language:       English
+Format:         plaintext
+Task:           Ranking
+Modules:        exact stem synonym paraphrase
+Weights:        1.0 0.6 0.8 0.6
+Parameters:     0.85 0.2 0.6 0.75
+
+Segment 1 score:	0.534247105415274
+Segment 2 score:	0.5067385756582065
+Segment 3 score:	0.4776696620223255
+Segment 4 score:	0.32133927468804463
+Segment 5 score:	0.940969726016455
+Segment 6 score:	0.5619977923424482
+Segment 7 score:	0.5225674896814887
+Segment 8 score:	0.5305700515221993
+Segment 9 score:	0.45445803708339033
+Segment 10 score:	0.33867762338639745
+Segment 11 score:	0.3572738212313288
+Segment 12 score:	0.20984437385087343
+Segment 13 score:	0.21272737984799925
+Segment 14 score:	0.5866687377503799
+Segment 15 score:	0.3778225271132819
+Segment 16 score:	0.2524240735217507
+Segment 17 score:	0.27443536540184266
+Segment 18 score:	0.33903480148202564
+Segment 19 score:	0.35846805045983376
+Segment 20 score:	0.2998817763777528
+Segment 21 score:	0.508543915555115
+Segment 22 score:	0.45141862977197184
+Segment 23 score:	0.4342451472930232
+Segment 24 score:	0.4455278018601456
+Segment 25 score:	0.1703622937253836
+Segment 26 score:	0.5040900621530361
+Segment 27 score:	0.3791058853926166
+Segment 28 score:	0.5045984353907563
+Segment 29 score:	0.3702226253372076
+Segment 30 score:	0.4939205030243609
+Segment 31 score:	0.33976079137430903
+Segment 32 score:	0.2700973138110048
+Segment 33 score:	0.269597803192334
+
+System level statistics:
+
+
+           Test Matches                  Reference Matches
+Stage      Content  Function    Total    Content  Function    Total
+1              399       351      750        399       351      750
+2                0         0        0          0         0        0
+3                4         1        5          4         1        5
+4               16        12       28         14        17       31
+Total          419       364      783        417       369      786
+
+Test words:             975
+Reference words:        1051
+Chunks:                 294
+Precision:              0.808929477422628
+Recall:                 0.7437237517498834
+f1:                     0.7749574142456311
+fMean:                  0.7528262601830921
+Fragmentation penalty:  0.4930626742453386
+
+Final score:            0.38163573109509963

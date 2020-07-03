@@ -1,0 +1,60 @@
+adam maher is connected to the az alkmaar club and plays for the netherlands national club for players under 17 .
+az alkmaar player adam maher represented the netherlands national side at under 17 level .
+adam maher is connected to the az alkmaar club and played for the netherlands national under - 17 football team .
+william anders graduated , with an m . s . , from afit in 1962 , and is now retired .
+william anders , who received a m . s from his alma mater , afit , in 1962 , is retired .
+william anders has since retired , but in 1962 he received a m . s . from his alma mater , afit .
+ajoblanco is a spanish dish that originates andalusia , where the leader is susana diaz . felipe vi is the leader of spain , where the people that live there are called spaniards .
+some famous spaniards from spain include felipe vi ( leader of spain ) and susana diaz who is the leader of andalusia where ajoblanco comes from .
+
+buzz aldrin was born on 20th january 1930 in glen ridge new jersey . he graduated from mit in 1963 and was a member of the apollo 11 crew , operated by nasa . the back up pilot was william anders .
+buzz aldrin was born january 20 , 1930 in glen ridge , new jersey . he graduated from m . i . t . with a sc . d in 1963 , and served as a crew member aboard nasa ' s apollo 11 , william anders was a backup pilot on the same mission .
+
+sandesh and binignit are desserts . binignit comes from the philippines , where the language is philippine english .
+sandesh ( confectionery ) and binignit are both dishes served as dessert . the latter dish originates from the philippines where philippine english is spoken .
+
+andrew rayel , who began his musical career in 2009 , plays trance music . he has worked with christian burns and the musical artist jonathan mendelsohn .
+in 2009 andrew rayel started his music career . he played trance music . mr . rayel is associated with christian burns and jonathan mendelsohn .
+trance musician andrew rayel began his career in 2009 and is associated with artists jonathan mendelsohn and christian burns .
+aids journal , published by lippincott williams & williams , is from the united kingdom ( led by elizabeth ii ) . the parent company of lippincott is wolters kluwer .
+wolters kluwer , the parent company of lippincott williams & wilkins that publishes aids ( journal ) , is in the uk where elizabeth ii is the leader .
+wolters kluwer is the parent company of lippincott williams & wilkins . they publish the aids ( journal ) in the united kingdom where the leader is elizabeth ii .
+alfredo zitarrosa was born in uruguay and has a background as a solo singer . his musical genre is candombe and his record label is rca records .
+with a background as a solo singer , uruguay born alfredo zitarrosa was signed to the rca records label and performed in the musical genre of candombe .
+alfredo zitarrosa ' s birth place was uruguay and has a recording label in rca records . he started out as a solo singer and plays candombe musical genre .
+hip hop music originated from funk music .
+hip hop music has its origins in funk .
+hip hop music has its stylistic origins in funk .
+the acura tlx has an awd vehicle layout .
+
+
+the ship aidastella is operated by rostock based aida cruises . it was built by meyer werft and is owned by costa crociere .
+located at rostock , aida cruises operate aidastella ship which was built by meyer werft and owned by costa crociere .
+the aidastella was built by meyer werft . it is owned by costa crociere and operated by aida cruise line based in rostock .
+a severed wasp which has the isbn number 0 - 374 - 26131 - 8 , also has an oclc number of 8805735 .
+a severed wasp has the isbn number 0 - 374 - 26131 - 8 and oclc number 8805735 .
+a severed wasp has the isbn number 0 - 374 - 26131 - 8 , and the oclc number 8805735 .
+bionico is found in the region of jalisco .
+bionico comes from the region jalisco .
+
+aidaluna is powered by caterpillar inc . which was founded in california and is located in peoria , illinois .
+caterpillar inc . , founded in california and located in peoria , illinois , powers the aidaluna .
+the aidaluna is powered by a caterpillar inc . engine . caterpillar inc was founded in california and is now located in peoria , illinois .
+abel caballero was born in galicia , spain , and is a member of the spanish socialist workers ' party .
+abel caballero was born in galicia in spain and is a member of the spanish socialist workers ' party .
+abel caballero , born in galicia in spain , is a member of the spanish socialist workers ' party .
+airey neave , born in knightsbridge , london , was involved in the battle of france ; he began his career on march 4th 1974 , and ended his career on 30th march 1979 .
+airey neave , who was born in knightsbridge , london , fought in the battle of france . his career lasted only five years beginning march 4th , 1974 and ending on the 30th of the same month in 1979 .
+battle of france veteran airey neave , born in knightsbridge , london , began his career 03 / 04 / 1974 and retired 03 / 30 / 1979 .
+a fortress of grey ice is from the united states where one of the ethnic groups is african american .
+a fortress of grey ice is from the united states , which has among its ethnic groups african americans .
+
+oleh luzhny is the manager of fc karpaty lviv .
+the manager of fc karpaty lviv is oleh luzhny .
+
+the novel into battle is published in australia . it is in a series of books including the violet keystone , above the veil , aenir and castle .
+
+
+bhajji , alternative names : bhaji and bajji , originate from the karnataka region of india and contain the main ingredients of gram flour and vegetables .
+bhajji ( also called bahjo or bajji ) comes from the karnataka region of india . it contains gram flour and vegetables .
+the bhajji originates from the karnataka region of india . the main ingredients are gram flour and vegetables however its also known as a bhaji or bajji .

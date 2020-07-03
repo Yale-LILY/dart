@@ -1,0 +1,60 @@
+the book alcatraz versus the evil librarians is written in english .
+alcatraz versus the evil librarians was in english .
+alcatraz versus the evil librarians is written in the english language .
+california is home to anaheim , which is led by the united states house of representatives .
+the united states house of representatives leads anaheim , which is part of california .
+
+the total area of antioch , california is 75 . 324 square km and uses utc offset of - 7 . it has a total population of 102372 inhabitants and its area code is 925 .
+the total area of antioch , california is 75 . 324 square km . , has an utc offset of - 7 and its population is 102372 . the area code there is 925 .
+antioch , california has a utc offset of - 7 , the population is 102372 , the area code is 925 , and has a total area of 75 . 324 square km .
+iraq language is arabic .
+arabic is the language in iraq .
+
+a glastonbury romance preceded weymouth sands .
+a glastonbury romance was published before weymouth sands .
+weymouth sands was preceded by a glastonbury romance .
+adare manor ' s architect was george richard pain and it was completed in 1862 .
+the architect george richard pain completed adare manor in 1862 .
+
+asilomar conference grounds , located at asilomar blvd . , pacific grove , california , was added to the national register of historis places february 27 , 1987 and has the reference number 87000823 .
+asilomar conference grounds are located at asilomar blvd , pacific grove california and given the reference of 87000823 in the national register of historic places on 27 february 1987 .
+
+the asilomar conference grounds were constructed in 1913 .
+the asilomar conference grounds was constructed in 1913 .
+
+arlington is part of tarrant county in texas where fort worth is the county seat . spanish is spoken in texas where houston is the largest city .
+arlington is part of tarrant county in texas , where houston is the largest city and spanish is spoken . the county seat of tarrant county is fort worth .
+in texas , the county seat of tarrant county is fort worth , its also the location of arlington and houston ( the largest city ) . spanish is spoken in texas .
+a fortress of grey ice is from the united states where the capital is in washington , d . c .
+
+
+bacon explosion come from the united states where barack obama is the leader and white americans are an ethnic group .
+the bacon explosion is found in united states , led by barack obama and inhabited by white americans .
+
+andrews county airport is located in texas , united states which has the capital city of austin and uses the english language .
+andrews county airport is located in texas , the capital of which is austin . english is the language of texas which is located in the united states .
+andrews county airport is located in texas in the united states . the capital of texas is austin and the language spoken is english .
+the first runway at amsterdam ' s schiphol airport is known as number 18 .
+the amsterdam airport schiphol ' s 1st runway number is 18 .
+the number of the 1st runway at amsterdam airport schiphol is 18 .
+alan bean , who is now retired , was born on march 15th , 1932 .
+born on march 15 , 1932 , alan bean has now retired .
+alan bean , who has since retired , was born on may 15th , 1932 .
+the capital of the united states is washington d . c , the language of this country is english . amarillo , that its a beautiful place located in this country is part of potter county in the state of texas .
+amarillo is part of potter county in texas in the united states whose capital is washington dc and english is the language .
+amarillo is part of potter county , texas , in the u . s . , where the capital is washington dc and english is the language spoken .
+andrews county airport in texas serves the city of andrews . it is 973 metres above sea level and has a runway length of 929 .
+andrews county airport , serving the city of andrews in texas has a runway length of 929 . 0 and is 973 metres above sea level .
+
+batagor has peanut sauce as an ingredient and is a variation of the siomay dish .
+the dishes batagor and siomay both contain the ingredient peanut sauce .
+batagor is a variation of the siomay dish and one of the ingredients is peanut sauce .
+the leader of buffalo , new york is byron brown .
+byron brown is the leader of buffalo , new york .
+the leader of buffalo , new york , is byron brown .
+the leader of pakistan is sardar ayaz sadiq .
+
+
+the demonym for people living in the united states is americans and there is an ethnic group called african american . the leader of the united states is barack obama , the capital is washington d . c . and 1634 the ram rebellion was written there .
+the united states is inhabited by americans including the ethnic group of african americans . the book 1634 the ram rebellion was written in the country which is led by president barack obama and has the capital city of washington dc .
+the people living in the united states are americans , including the ethnic group of african americans . the capital of the us is washington dc and the president is barack obama . the book 1634 the ram rebellion was written within the us .

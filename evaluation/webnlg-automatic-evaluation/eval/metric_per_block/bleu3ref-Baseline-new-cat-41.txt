@@ -1,0 +1,4 @@
+BLEU = 4.36, 34.6/6.7/3.4/1.4 (BP=0.751, ratio=0.777, hyp_len=272, ref_len=350)
+BLEU = 4.36, 34.6/6.7/3.4/1.4 (BP=0.751, ratio=0.777, hyp_len=272, ref_len=350)
+BLEU = 4.36, 34.6/6.7/3.4/1.4 (BP=0.751, ratio=0.777, hyp_len=272, ref_len=350)
+BLEU = 4.36, 34.6/6.7/3.4/1.4 (BP=0.751, ratio=0.777, hyp_len=272, ref_len=350)

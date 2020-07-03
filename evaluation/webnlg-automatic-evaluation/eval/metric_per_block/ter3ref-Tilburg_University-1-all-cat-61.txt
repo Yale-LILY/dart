@@ -1,0 +1,27 @@
+"../webnlg-automatic-evaluation//teams//metric_per_block/Tilburg_University-1_all-cat_ter_61.txt" was successfully parsed as Trans text
+"../webnlg-automatic-evaluation//references//metric_per_block/gold-all-cat-reference-3ref-61.ter" was successfully parsed as Trans text
+** Warning: XML ouput may not have correct doc id for Trans format inputs
+Processing id1782:1
+Processing id1544:1
+Processing id1075:1
+Processing id1619:1
+Processing id183:1
+Processing id138:1
+Processing id1060:1
+Processing id1728:1
+Processing id1514:1
+Processing id1389:1
+Processing id628:1
+Processing id186:1
+Processing id99:1
+Processing id1223:1
+Processing id1183:1
+Processing id654:1
+Processing id1685:1
+Processing id976:1
+Processing id1376:1
+Processing id636:1
+Total TER: 0.5875370919881305 (231.0/393.1666666666667)
+Number of calls to beam search: 2083
+Number of segments scored: 52
+Number of shifts tried: 2031

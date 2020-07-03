@@ -1,0 +1,79 @@
+Meteor version: 1.5
+
+Eval ID:        meteor-1.5-wo-en-norm-0.85_0.2_0.6_0.75-ex_st_sy_pa-1.0_0.6_0.8_0.6
+
+Language:       English
+Format:         plaintext
+Task:           Ranking
+Modules:        exact stem synonym paraphrase
+Weights:        1.0 0.6 0.8 0.6
+Parameters:     0.85 0.2 0.6 0.75
+
+Meteor version: 1.5
+
+Eval ID:        meteor-1.5-wo-en-norm-0.85_0.2_0.6_0.75-ex_st_sy_pa-1.0_0.6_0.8_0.6
+
+Language:       English
+Format:         plaintext
+Task:           Ranking
+Modules:        exact stem synonym paraphrase
+Weights:        1.0 0.6 0.8 0.6
+Parameters:     0.85 0.2 0.6 0.75
+
+Segment 1 score:	0.5817601299089978
+Segment 2 score:	0.25806451612903225
+Segment 3 score:	0.37850587768980865
+Segment 4 score:	0.5576747324013525
+Segment 5 score:	0.3887662972078963
+Segment 6 score:	1.0
+Segment 7 score:	0.5812423056987183
+Segment 8 score:	0.49220658795856287
+Segment 9 score:	0.8999999999999999
+Segment 10 score:	0.49220658795856287
+Segment 11 score:	0.41228393315863043
+Segment 12 score:	1.0
+Segment 13 score:	0.4899975260747173
+Segment 14 score:	0.3977886719349483
+Segment 15 score:	0.4816741173612795
+Segment 16 score:	0.48392214134794975
+Segment 17 score:	0.5178249810394099
+Segment 18 score:	1.0
+Segment 19 score:	0.5507651246607754
+Segment 20 score:	0.3875317283668253
+Segment 21 score:	0.6138414527243092
+Segment 22 score:	0.5007673102568876
+Segment 23 score:	0.5022304386420928
+Segment 24 score:	0.4489304053837674
+Segment 25 score:	0.42833305002513467
+Segment 26 score:	0.35558251483350317
+Segment 27 score:	0.43037044993205187
+Segment 28 score:	0.559056527796115
+Segment 29 score:	0.42590900078815874
+Segment 30 score:	0.5294013266813485
+Segment 31 score:	0.3276313581774406
+Segment 32 score:	0.2922359613940338
+Segment 33 score:	0.39814257848729623
+Segment 34 score:	0.38323146921766704
+Segment 35 score:	0.46524455716975616
+
+System level statistics:
+
+
+           Test Matches                  Reference Matches
+Stage      Content  Function    Total    Content  Function    Total
+1              258       160      418        258       160      418
+2                6         0        6          6         0        6
+3                0         1        1          0         1        1
+4                6         8       14          6         5       11
+Total          270       169      439        270       166      436
+
+Test words:             536
+Reference words:        521
+Chunks:                 118
+Precision:              0.8343749999999999
+Recall:                 0.8408413672217352
+f1:                     0.8375957034602838
+fMean:                  0.8398650300170999
+Fragmentation penalty:  0.46167041033519085
+
+Final score:            0.452124196982928

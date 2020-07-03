@@ -1,0 +1,66 @@
+Meteor version: 1.5
+
+Eval ID:        meteor-1.5-wo-en-norm-0.85_0.2_0.6_0.75-ex_st_sy_pa-1.0_0.6_0.8_0.6
+
+Language:       English
+Format:         plaintext
+Task:           Ranking
+Modules:        exact stem synonym paraphrase
+Weights:        1.0 0.6 0.8 0.6
+Parameters:     0.85 0.2 0.6 0.75
+
+Segment 1 score:	0.5895027648186086
+Segment 2 score:	0.46774125990676985
+Segment 3 score:	1.0
+Segment 4 score:	0.46243265251200066
+Segment 5 score:	1.0
+Segment 6 score:	0.4415085128464747
+Segment 7 score:	0.43923647082512696
+Segment 8 score:	0.5155125929663262
+Segment 9 score:	0.5478399555299591
+Segment 10 score:	0.39251709375719446
+Segment 11 score:	0.4077609780973888
+Segment 12 score:	0.37082436808933933
+Segment 13 score:	0.3976686262785086
+Segment 14 score:	0.46492606007261367
+Segment 15 score:	0.4051090502968016
+Segment 16 score:	0.4238584336927496
+Segment 17 score:	0.42818220042825134
+Segment 18 score:	0.38236702318163684
+Segment 19 score:	0.40040861285336077
+Segment 20 score:	0.36782107100849454
+Segment 21 score:	0.4256893001241864
+Segment 22 score:	0.40513923898264953
+Segment 23 score:	0.4460285749863891
+Segment 24 score:	0.39124957902064067
+Segment 25 score:	0.4155704558431787
+Segment 26 score:	0.4016970253000451
+Segment 27 score:	0.3673679040063982
+Segment 28 score:	0.43633561036540475
+Segment 29 score:	0.4262133555131258
+Segment 30 score:	0.38009296683263877
+Segment 31 score:	0.38235265352020487
+Segment 32 score:	0.33253104647914944
+Segment 33 score:	0.40506376311476744
+
+System level statistics:
+
+
+           Test Matches                  Reference Matches
+Stage      Content  Function    Total    Content  Function    Total
+1              473       381      854        473       381      854
+2                1         0        1          1         0        1
+3                0         1        1          0         1        1
+4               14        27       41         19        30       49
+Total          488       409      897        493       412      905
+
+Test words:             1236
+Reference words:        1062
+Chunks:                 381
+Precision:              0.7576006573541495
+Recall:                 0.852389705882353
+f1:                     0.8022048035122543
+fMean:                  0.8366870849963796
+Fragmentation penalty:  0.5051161883334703
+
+Final score:            0.41406289379516603

@@ -1,0 +1,68 @@
+Meteor version: 1.5
+
+Eval ID:        meteor-1.5-wo-en-norm-0.85_0.2_0.6_0.75-ex_st_sy_pa-1.0_0.6_0.8_0.6
+
+Language:       English
+Format:         plaintext
+Task:           Ranking
+Modules:        exact stem synonym paraphrase
+Weights:        1.0 0.6 0.8 0.6
+Parameters:     0.85 0.2 0.6 0.75
+
+Meteor version: 1.5
+
+Eval ID:        meteor-1.5-wo-en-norm-0.85_0.2_0.6_0.75-ex_st_sy_pa-1.0_0.6_0.8_0.6
+
+Language:       English
+Format:         plaintext
+Task:           Ranking
+Modules:        exact stem synonym paraphrase
+Weights:        1.0 0.6 0.8 0.6
+Parameters:     0.85 0.2 0.6 0.75
+
+Segment 1 score:	0.4201873681767674
+Segment 2 score:	0.363165838023336
+Segment 3 score:	0.4488386648760259
+Segment 4 score:	0.41894360510510037
+Segment 5 score:	0.34574721773043393
+Segment 6 score:	0.33123757205566845
+Segment 7 score:	0.225001869037084
+Segment 8 score:	0.3026856416660649
+Segment 9 score:	0.3347930786695909
+Segment 10 score:	0.36404199415079314
+Segment 11 score:	0.2783694481114217
+Segment 12 score:	0.3085462422567362
+Segment 13 score:	0.1928726211024471
+Segment 14 score:	0.3215350284131507
+Segment 15 score:	0.22622003473676316
+Segment 16 score:	0.2908348750697151
+Segment 17 score:	0.32547982946467635
+Segment 18 score:	0.390854693406387
+Segment 19 score:	0.48372458640534627
+Segment 20 score:	0.28993389826853666
+Segment 21 score:	0.41421722082166973
+Segment 22 score:	0.41239481515927745
+Segment 23 score:	0.39892597630359744
+Segment 24 score:	0.42897046205402106
+
+System level statistics:
+
+
+           Test Matches                  Reference Matches
+Stage      Content  Function    Total    Content  Function    Total
+1              400       315      715        400       315      715
+2                2         0        2          2         0        2
+3                3         1        4          3         1        4
+4               22        16       38         16        27       43
+Total          427       332      759        421       343      764
+
+Test words:             1084
+Reference words:        1062
+Chunks:                 355
+Precision:              0.6893263342082239
+Recall:                 0.72025664527956
+f1:                     0.7044521396818909
+fMean:                  0.7154413302827046
+Fragmentation penalty:  0.5150660673973373
+
+Final score:            0.3469417778404724
