@@ -11,10 +11,10 @@ TEST_TARGETS_REF1=/data/lily/ass52/webnlg/dart-v1.0.0/all-delex-reference1.lex
 TEST_TARGETS_REF2=/data/lily/ass52/webnlg/dart-v1.0.0/all-delex-reference2.lex
 
 ### Seq-to-Seq with Attention ###
-OUTPUT_FILE=/data/lily/ass52/webnlg/dart-v1.0.0/relexicalised_predictions.txt
+#OUTPUT_FILE=/data/lily/ass52/webnlg/dart-v1.0.0/relexicalised_predictions.txt
 
 ### End-to-End Transformer ###
-# OUTPUT_FILE=/data/lily/ch956/DeepNLG2/output/darte2e/transformer/test.out.postprocessed.relex
+OUTPUT_FILE=/data/lily/ch956/DeepNLG2/output/darte2e/transformer/test.out.postprocessed.relex
 
 
 
