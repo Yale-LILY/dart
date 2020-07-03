@@ -1,46 +1,40 @@
 
+## Delexicalization
 
-# Delexicalization
-
-
+```
 python3 dart_baseline_input.py -i ../tmp -d delex/delex_dict.json
+```
 
 It creates the 6 files (delex, not delex) x (train, dev, test)
 
 
+## Relexicalization
 
-
-# Relexicalization
-
+```
 python3 webnlg_relexicalise.py
+```
 
 You will need to pass the directory which has the original test.xml file in the -i parameter and the predictions file in the -f parameter
 
 
 
-
-
-
-# Evaluation
+## Evaluation
 
 We include metrics of BLEU, METEOR, TER, MoverScore, BERTScore, BLEURT.
 
 ### WebNLG
 
-Usage: change `OUTPUT_FILE` in `run_evaluation_on_webnlg.sh` and run the following:
+Usage: change `OUTPUT_FILE` in `run_eval_on_webnlg.sh` and run the following:
 ```
-./run_evaluation_on_webnlg.sh
+./run_eval_on_webnlg.sh
 ```
 
-TODO
-- add seen/unseen
-- add multiple references
 
 ### DART
 
-Usage: change `OUTPUT_FILE` in `run_evaluation_on_dart.sh` and run the following:
+Usage: change `OUTPUT_FILE` in `run_eval_on_dart.sh` and run the following:
 ```
-./run_evaluation_on_dart.sh
+./run_eval_on_dart.sh
 ```
 
 output:
