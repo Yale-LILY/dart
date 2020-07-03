@@ -5,9 +5,9 @@
 
 TEST_TARGETS_REF0=/data/lily/ass52/webnlg/dart-v1.0.0/test-webnlg-all-notdelex.lex
 
-
 ### Seq-to-Seq with Attention ###
 OUTPUT_FILE=/data/lily/ass52/webnlg/dart-v1.0.0/relexicalised_predictions.txt
+
 # BLEU
 ./multi-bleu.perl ${TEST_TARGETS_REF0} < ${OUTPUT_FILE} > bleu.txt
 # tail -10 bleu.txt

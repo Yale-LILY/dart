@@ -1,0 +1,3 @@
+TEAM=xgbart
+TEST_TARGETS_REF0=/home/lily/ch956/eval/test-webnlg-all-notdelex.lex
+OUTPUT_FILE=/home/lily/xarutang/yale/dtt/results/relexicalised_webnlg_only.txt
