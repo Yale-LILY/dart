@@ -21,6 +21,6 @@ do
 	for param in $tracks
 	do
 	    echo $param
-		java -Xmx2G -jar meteor-1.5.jar ${TEAM_PATH}/${team}_${param}.txt ${REF_PATH}/gold-${param}-reference-3ref.meteor -l en -norm -r 3 >> ${GLOBAL_PATH}/eval/meteor-${team}-${param}.txt
+		java -Xmx2G -jar meteor-1.5.jar ${TEAM_PATH}/${team}_${param}.txt ${REF_PATH}/gold-${param}-reference-3ref.meteor -l en -norm -r 3 > ${GLOBAL_PATH}/eval/meteor-${team}-${param}.txt
 	done
 done

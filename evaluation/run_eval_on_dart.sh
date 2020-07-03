@@ -15,7 +15,7 @@ TEST_TARGETS_REF2=/data/lily/ass52/webnlg/dart-v1.0.0/all-delex-reference2.lex
 
 ### End-to-End Transformer ###
 OUTPUT_FILE=/data/lily/ch956/DeepNLG2/output/darte2e/transformer/test.out.postprocessed.relex
-
+#cat $OUTPUT_FILE | wc -l
 
 
 # BLEU

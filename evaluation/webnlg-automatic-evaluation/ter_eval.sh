@@ -21,7 +21,7 @@ do
 	for param in $tracks
 	do
 	    echo $param
-		java -jar tercom.7.25.jar -h ${TEAM_PATH}/${team}_${param}_ter.txt -r ${REF_PATH}/gold-${param}-reference-3ref.ter >> ${GLOBAL_PATH}/eval/ter3ref-${team}-${param}.txt
+		java -jar tercom.7.25.jar -h ${TEAM_PATH}/${team}_${param}_ter.txt -r ${REF_PATH}/gold-${param}-reference-3ref.ter > ${GLOBAL_PATH}/eval/ter3ref-${team}-${param}.txt
 
 	done
 done
