@@ -1,4 +1,0 @@
-BLEU = 3.14, 37.9/5.9/2.0/1.3 (BP=0.639, ratio=0.690, hyp_len=290, ref_len=420)
-BLEU = 3.14, 37.9/5.9/2.0/1.3 (BP=0.639, ratio=0.690, hyp_len=290, ref_len=420)
-BLEU = 3.14, 37.9/5.9/2.0/1.3 (BP=0.639, ratio=0.690, hyp_len=290, ref_len=420)
-BLEU = 3.14, 37.9/5.9/2.0/1.3 (BP=0.639, ratio=0.690, hyp_len=290, ref_len=420)

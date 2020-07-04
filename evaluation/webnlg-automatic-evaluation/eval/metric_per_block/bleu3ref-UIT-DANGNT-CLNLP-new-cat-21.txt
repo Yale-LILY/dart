@@ -1,5 +1,0 @@
-BLEU = 0.46, 35.7/40.9/15.0/5.6 (BP=0.024, ratio=0.212, hyp_len=42, ref_len=198)
-BLEU = 0.46, 35.7/40.9/15.0/5.6 (BP=0.024, ratio=0.212, hyp_len=42, ref_len=198)
-BLEU = 0.46, 35.7/40.9/15.0/5.6 (BP=0.024, ratio=0.212, hyp_len=42, ref_len=198)
-BLEU = 0.46, 35.7/40.9/15.0/5.6 (BP=0.024, ratio=0.212, hyp_len=42, ref_len=198)
-BLEU = 0.46, 35.7/40.9/15.0/5.6 (BP=0.024, ratio=0.212, hyp_len=42, ref_len=198)

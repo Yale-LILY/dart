@@ -1,4 +1,0 @@
-BLEU = 4.89, 39.5/8.7/3.8/1.6 (BP=0.721, ratio=0.754, hyp_len=306, ref_len=406)
-BLEU = 4.89, 39.5/8.7/3.8/1.6 (BP=0.721, ratio=0.754, hyp_len=306, ref_len=406)
-BLEU = 4.89, 39.5/8.7/3.8/1.6 (BP=0.721, ratio=0.754, hyp_len=306, ref_len=406)
-BLEU = 4.89, 39.5/8.7/3.8/1.6 (BP=0.721, ratio=0.754, hyp_len=306, ref_len=406)

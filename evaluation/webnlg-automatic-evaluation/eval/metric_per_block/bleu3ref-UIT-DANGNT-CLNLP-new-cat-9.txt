@@ -1,6 +1,0 @@
-BLEU = 0.00, 0.0/0.0/0.0/0.0 (BP=0.000, ratio=0.046, hyp_len=20, ref_len=433)
-BLEU = 0.00, 0.0/0.0/0.0/0.0 (BP=0.000, ratio=0.046, hyp_len=20, ref_len=433)
-BLEU = 0.00, 0.0/0.0/0.0/0.0 (BP=0.000, ratio=0.046, hyp_len=20, ref_len=433)
-BLEU = 0.00, 0.0/0.0/0.0/0.0 (BP=0.000, ratio=0.046, hyp_len=20, ref_len=433)
-BLEU = 0.00, 0.0/0.0/0.0/0.0 (BP=0.000, ratio=0.046, hyp_len=20, ref_len=433)
-BLEU = 0.00, 0.0/0.0/0.0/0.0 (BP=0.000, ratio=0.046, hyp_len=20, ref_len=433)

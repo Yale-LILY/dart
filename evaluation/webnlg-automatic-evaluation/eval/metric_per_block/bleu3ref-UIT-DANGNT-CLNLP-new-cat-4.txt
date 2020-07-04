@@ -1,6 +1,0 @@
-BLEU = 0.00, 28.6/50.0/14.3/0.0 (BP=0.000, ratio=0.077, hyp_len=28, ref_len=363)
-BLEU = 0.00, 28.6/50.0/14.3/0.0 (BP=0.000, ratio=0.077, hyp_len=28, ref_len=363)
-BLEU = 0.00, 28.6/50.0/14.3/0.0 (BP=0.000, ratio=0.077, hyp_len=28, ref_len=363)
-BLEU = 0.00, 28.6/50.0/14.3/0.0 (BP=0.000, ratio=0.077, hyp_len=28, ref_len=363)
-BLEU = 0.00, 28.6/50.0/14.3/0.0 (BP=0.000, ratio=0.077, hyp_len=28, ref_len=363)
-BLEU = 0.00, 28.6/50.0/14.3/0.0 (BP=0.000, ratio=0.077, hyp_len=28, ref_len=363)

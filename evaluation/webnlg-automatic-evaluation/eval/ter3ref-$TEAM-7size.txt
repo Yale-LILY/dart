@@ -1,5 +1,0 @@
-** IOError 
-java.io.FileNotFoundException: /home/lily/ch956/webnlg-automatic-evaluation/teams/$TEAM_7size_ter.txt (No such file or directory)
-"/home/lily/ch956/webnlg-automatic-evaluation/teams//$TEAM_7size_ter.txt" was successfully parsed as Trans text
-"/home/lily/ch956/webnlg-automatic-evaluation/references//gold-7size-reference-3ref.ter" was successfully parsed as Trans text
-** Warning: XML ouput may not have correct doc id for Trans format inputs
