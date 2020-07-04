@@ -75,47 +75,33 @@ We maintain a leaderboard on our test set.
     <th>MoverScore</th>
     <th>BERTScore</th>
     <th>BLEURT</th>
-    <th>GrandPARENT</th>
-  </tr>
-  <tr>
-    <td> Seq2Seq-Att <a href="https://webnlg-challenge.loria.fr/files/melbourne_report.pdf"> (MELBOURNE) </a></td>
-    <td><b></b></td>
-    <td><b></b></td>
-    <td><b></b></td>
-    <td><b></b></td>
-    <td><b></b></td>
-    <td><b></b></td>
-    <td><b></b></td>
-  </tr>
-  <tr>
-    <td> End-to-End Transformer <a href="https://arxiv.org/pdf/1908.09022.pdf"> (Castro Ferreira et al., 2019) </a></td>
-    <td> </td>
-    <td> </td>
-    <td> </td>
-    <td> </td>
-    <td> </td>
-    <td> </td>
-    <td> </td>
-  </tr>
-  <tr>
-    <td> NeuralPlan <a href="https://arxiv.org/pdf/1909.09986.pdf"> (Moryossef et al., 2019) </a></td>
-    <td> </td>
-    <td> </td>
-    <td> </td>
-    <td> </td>
-    <td> </td>
-    <td> </td>
-    <td> </td>
   </tr>
   <tr>
     <td> BART <a href="https://arxiv.org/pdf/1910.13461.pdf"> (Lewis et al., 2020) </a></td>
-    <td> </td>
-    <td> </td>
-    <td> </td>
-    <td> </td>
-    <td> </td>
-    <td> </td>
-    <td> </td>
+    <td><b>37.06</b></td>
+    <td><b>0.36</b></td>
+    <td><b>0.57</b></td>
+    <td><b>0.44</b></td>
+    <td><b>0.92</b></td>
+    <td><b>0.22</b></td>
+  </tr>
+  <tr>
+    <td> Seq2Seq-Att <a href="https://webnlg-challenge.loria.fr/files/melbourne_report.pdf"> (MELBOURNE) </a></td>
+    <td> 29.60 </td>
+    <td> 0.28 </td>
+    <td> 0.62 </td>
+    <td> 0.32 </td>
+    <td> 0.90 </td>
+    <td> -0.11 </td>
+  </tr>
+  <tr>
+    <td> End-to-End Transformer <a href="https://arxiv.org/pdf/1908.09022.pdf"> (Castro Ferreira et al., 2019) </a></td>
+    <td> 19.87 </td>
+    <td> 0.26 </td>
+    <td> 0.65 </td>
+    <td> 0.28 </td>
+    <td> 0.87 </td>
+    <td> -0.20 </td>
   </tr>
 </table>
 
