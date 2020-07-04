@@ -17,6 +17,9 @@ TEST_TARGETS_REF2=/data/lily/ass52/webnlg/dart-v1.0.0/all-delex-reference2.lex
 OUTPUT_FILE=/data/lily/ch956/DeepNLG2/output/darte2e/transformer/test.out.postprocessed.relex
 #cat $OUTPUT_FILE | wc -l
 
+### BART ###
+# OUTPUT_FILE=
+
 
 # BLEU
 ./multi-bleu.perl ${TEST_TARGETS_REF0} ${TEST_TARGETS_REF1} ${TEST_TARGETS_REF2} < ${OUTPUT_FILE} > bleu.txt
