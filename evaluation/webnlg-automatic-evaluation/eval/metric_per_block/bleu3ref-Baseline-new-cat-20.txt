@@ -1,0 +1,4 @@
+BLEU = 6.13, 24.0/6.0/3.8/2.6 (BP=1.000, ratio=1.097, hyp_len=520, ref_len=474)
+BLEU = 6.13, 24.0/6.0/3.8/2.6 (BP=1.000, ratio=1.097, hyp_len=520, ref_len=474)
+BLEU = 6.13, 24.0/6.0/3.8/2.6 (BP=1.000, ratio=1.097, hyp_len=520, ref_len=474)
+BLEU = 6.13, 24.0/6.0/3.8/2.6 (BP=1.000, ratio=1.097, hyp_len=520, ref_len=474)

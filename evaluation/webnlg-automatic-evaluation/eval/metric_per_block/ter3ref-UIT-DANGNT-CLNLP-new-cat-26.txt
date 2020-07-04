@@ -1,0 +1,27 @@
+"../webnlg-automatic-evaluation//teams//metric_per_block/UIT-DANGNT-CLNLP_new-cat_ter_26.txt" was successfully parsed as Trans text
+"../webnlg-automatic-evaluation//references//metric_per_block/gold-new-cat-reference-3ref-26.ter" was successfully parsed as Trans text
+** Warning: XML ouput may not have correct doc id for Trans format inputs
+Processing id668:1
+Processing id730:1
+Processing id566:1
+Processing id270:1
+Processing id817:1
+Processing id818:1
+Processing id230:1
+Processing id819:1
+Processing id57:1
+Processing id597:1
+Processing id859:1
+Processing id537:1
+Processing id465:1
+Processing id481:1
+Processing id175:1
+Processing id623:1
+Processing id365:1
+Processing id206:1
+Processing id340:1
+Processing id610:1
+Total TER: 0.9098984771573604 (478.0/525.3333333333334)
+Number of calls to beam search: 82
+Number of segments scored: 54
+Number of shifts tried: 28

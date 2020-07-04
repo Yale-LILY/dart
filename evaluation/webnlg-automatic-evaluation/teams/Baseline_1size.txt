@@ -1,0 +1,454 @@
+abilene regional airport serves the city of abilene , texas .
+adolfo suarez madrid - barajas airport is located in madrid , paracuellos de jarama , san sebastian de los reyes and alcobendas .
+the runway name of adolfo suarez madrid - barajas airport is 18l / 36r .
+the icao location identifier of afonso pena international airport is sbct .
+afonso pena international airport serves the city of curitiba .
+al - taqaddum air base serves the city of fallujah .
+the runway length of al - taqaddum air base is 3684 . 0 .
+the runway name of alderney airport is 14 / 32 .
+the runway length of allama iqbal international airport is 3360 . 12 .
+the 1st runway at amsterdam airport schiphol is made from 1st_runway_surfacetype .
+the fourth runway at amsterdam airport schiphol is made from asphalt .
+the runway name of amsterdam airport schiphol is 06 / 24 ' kaagbaan ' .
+andrews county airport is 973 . 0 metres above sea level .
+andrews county airport is owned by andrews county , texas .
+the runway length of andrews county airport is 896 . 0 .
+the 1st runway at angola international airport is made from asphalt .
+antwerp international airport is 12 . 0 metres above sea level .
+antwerp international airport is operated by the flemish government .
+the runway length of appleton international airport is 2439 . 0 .
+the runway length of ardmore airport ( new zealand ) is 518 . 0 .
+the icao location identifier of ashgabat international airport is utaa .
+the runway name of ashgabat international airport is 11 / 29 .
+atlantic city international airport is owned by south jersey transportation authority .
+the runway name of atlantic city international airport is 13 / 31 .
+the dutch language is spoken in belgium .
+curitiba is part of the state of parana .
+the people of denmark are called texans .
+lahore is in the iraq .
+greenville , wisconsin is in the united states .
+greenville , wisconsin is part of grand chute , wisconsin .
+the arabic is spoken in iraq .
+alcobendas is in the country of spain .
+maple ridge township , alpena county , michigan is part of the united states .
+the leader of pakistan is sardar ayaz sadiq .
+the port authority of headquarter and new jersey serves the new jersey .
+the largest city in texas is houston .
+the aircraftfighter is an aircraft fighter in the united states air force .
+the aircraftfighter is an aircraft fighter in the united states air force .
+the 11th mississippi infantry monument was established in 2000 .
+adams county , pennsylvania is southwest of carroll county , maryland .
+the leader of azerbaijan is artur rasizade .
+the title of the leader of azerbaijan is the prime minister of azerbaijan .
+the designers of the baku turkish martyrs ' memorial are designer .
+11 diagonal street is located in south africa .
+250 delaware avenue has the architectural style of postmodern architecture .
+300 north lasalle is located in chicago .
+the architect of 320 south boston building was george winkler .
+the building of 320 south boston building began in 1910 .
+ac hotel bella sky copenhagen has the architectural style of architecturalstyle .
+the architect of adare manor was james pain and george richard pain , .
+adisham hall is located in haputale .
+akita museum of art is located in japan .
+the owner of alan b . miller hall is college of william & mary .
+the address of amdavad ni gufa is lalbhai dalpatbhai campus , near cept university , opp . gujarat university , university road .
+asher and mary isabelle richardson house has the reference number 88002539 in the national register of historic places .
+the architect of asilomar conference grounds was julia morgan .
+asilomar conference grounds was built in yearofconstruction .
+asilomar conference grounds was built in 1913 .
+asser levy public baths is located in new york city .
+erie county , new york is part of erie county , new york .
+byron brown is a leader in the new york city .
+orange county is part of hays county in texas .
+the leader of dublin is criona ni dhalaigh .
+mulatu teshome is the leader of ethiopia .
+indian people are from india .
+significantproject was a significant project for julia morgan .
+the marriott international is located in beverly hills , california .
+manhattan is part of new york .
+new netherland is part of new york city .
+pacific grove , california is part of california .
+white south african are an ethnic group in south africa .
+elizabeth ii is the leader of the uk .
+the isbn number of 1634 : the ram rebellion is 1 - 4165 - 2060 - 0 .
+1634 : the ram rebellion was written by eric flint .
+1634 : the ram rebellion is available in hardcover .
+aids ( journal ) is from the united kingdom .
+the oclc number of a glastonbury romance is 76798317 .
+a glastonbury romance is available in hardcover .
+a long long way is written in english .
+a wizard of mars was written by diane duane .
+the issn number of abhandlungen aus dem mathematischen seminar der universitat hamburg is 0025 - 5858 .
+above the veil was written by garth nix .
+above the veil is available in hardcover .
+the issn number of acta palaeontologica polonica is 0567 - 7920 .
+the lccn number of addiction ( journal ) is 93645978 .
+the academic discipline of aids journal is addiction .
+aenir is written in english .
+alcatraz versus the evil librarians is from the united states .
+alcatraz versus the evil librarians is written in english .
+the academic discipline of aids journal is mathematics .
+the english language is spoken in the republic of ireland .
+author was born in burbank , california .
+the parent company of wiley - blackwell is macmillan publishers .
+a glastonbury romance was written by author .
+lahore is in the united states .
+the parent company of wiley - blackwell is parentcompany .
+asian americans are an ethnic group in the united states .
+english is the language of the united states .
+a glastonbury romance was preceded by precededby .
+the manager of a . c . chievo verona is rolando maran .
+a . d . isidro metapan play in salvadoran primera division .
+the full name of a . f . c . blackpool is " association football club blackpool " .
+a . f . c . blackpool ' s ground is in the mechanics , .
+a . f . c . blackpool ' s ground is in blackpool .
+a . s . gubbio 1910 ' s ground is in gubbio .
+a . s . gubbio 1910 has 5300 members .
+aek athens f . c . ' s ground is in athens .
+aek athens f . c . played in the 2014 - 15 football league ( greece ) season .
+azal arena is located in baku .
+azal pfk play in azerbaijan premier league .
+az alkmaar played in the 2014 - 15 eredivisie season .
+akron , ohio is in the united states .
+akron , ohio is located within the summit county , ohio .
+the full name of akron summit assault is " akron metro futbol club summit assault " .
+the leader of amsterdam is leadername .
+christian panucci is attached to the club genoa cfc .
+christian panucci is attached to the club genoa cfc .
+frank de boer played for fc barcelona .
+sportsteam is in the umbria region .
+sergio mattarella is a leader in italy .
+jens hartel plays for fc sachsen leipzig .
+jorge humberto rodriguez plays for fc dallas .
+luciano spalletti plays for udinese calcio .
+massimo drago plays for a . s . d . s . s . nola 1925 .
+michele marcolini plays for atalanta b . c . .
+michele marcolini plays for vicenza calcio .
+peter stoger plays for 1 . fc koln .
+rolando maran plays for f . c . bari 1908 .
+jong ajax is a tenant of sportpark de toekomst .
+st . vincent - st . mary high school is located in the united states .
+1 decembrie 1918 university is in the state of alba .
+the president of acharya institute of technology is b . m . reddy .
+the has to its west is west of the national assembly .
+the official language of ethiopia is officiallanguage .
+bucharest is the capital of romania .
+school of business and social sciences at the aarhus university ' s dean is thomas pallesen .
+there are 16000 students at the school of business and social sciences at the aarhus university .
+alan bean is an american .
+crewmembers was a crew member on apollo 8 .
+buzz aldrin graduated from the massachusetts institute of technology , sc . d . 1963 .
+buzz aldrin was a crew member of apollo 11 .
+buzz aldrin was selected by nasa in 1963 .
+the fossil is a fossil from california .
+elliot see died on 1966 - 02 - 28 .
+elliot see died in st . louis .
+elliot see is retired .
+april o ' neil was created by kevin eastman .
+bananaman was first broadcast by the bbc .
+ben urich ' s full name is benjamin urich .
+bibbo bibbowski was created by jerry ordway .
+bibbo bibbowski ' s full name is bo bibbowski .
+tim brooke taylor was born in lancashire .
+jon valor is the alternative name for black pirate .
+john buscema won the eisner award .
+marv wolfman is an american .
+marv wolfman won the kirby award .
+peter stoger is a us national .
+the headquarters of the association of computing machinery is northbrook , illinois .
+the area code for albany , georgia is 229 .
+albany , oregon is part of united states .
+the mayor is the leader of albuquerque , new mexico .
+the new mexico house of representatives is the leader of albuquerque , new mexico .
+the new mexico senate is the leader of albuquerque , new mexico .
+the total area of amarillo , texas is 233 . 9 ( square kilometres ) .
+amarillo , texas is part of randall county , texas .
+anderson , indiana is part of richland township , madison county , indiana .
+angola , indiana is located at 324 . 0 above sea level .
+the area code for antioch , california is 925 .
+antioch , california is part of contra costa county , california .
+the population density of arlington , texas is 1472 . 0 ( inhabitants per square kilometre ) .
+the leader of atlanta is kasim reed .
+the total area of atlantic city , new jersey is 44 . 125 ( square kilometres ) .
+atlantic city , new jersey is part of new jersey .
+attica , indiana is located at 166 . 0 above sea level .
+auburn , alabama is part of lee county , alabama .
+the total area of auburn , washington is 77 . 41 ( square kilometres ) .
+austin , texas is part of texas .
+the spanish language is spoken in california .
+albany is the largest city in linn county , oregon .
+dekalb county , georgia is located within the united states .
+anderson is the county of madison county , indiana .
+michigan is in the country of united states .
+the largest city in michigan is detroit .
+orange county in california is located within the united states .
+the largest city in benton county is oregon .
+the largest city in williamson county , texas is fort worth .
+the leader of the united states is barack obama .
+the united states house of representatives is located in washington d . c .
+pecorino romano is an ingredient in amatriciana sauce .
+chili pepper is an ingredient in arrabbiata sauce .
+white rice is an ingredient in arros negre .
+arros negre is from the catalonia region .
+arros negre is from the valencian community region .
+ayam penyet is from the singapore region .
+tomato is an ingredient in a blt .
+baked alaska is from the hong kong region .
+bakewell pudding can be served warm ( freshly baked ) or cold .
+bandeja paisa is from colombian cuisine .
+chicharron is an ingredient in bandeja paisa .
+bandeja paisa is from the paisa region region .
+barny cakes have 18 grams of carbs .
+shumai is a variation of batagor .
+the main ingredients of batagor are fried fish dumpling with tofu and vegetables in peanut sauce .
+shrimp is an ingredient in batchoy .
+beef kway teow is from the indonesia region .
+bhaji and bajji are alternative names for bhajji .
+taro is an ingredient in binignit .
+cottage cheese is a variation of bionico .
+bionico is from the jalisco region .
+the purple finch is a member of the award .
+the currency of india is the indian rupee .
+sumitra mahajan is the leader of india .
+indonesian language is spoken in indonesia .
+the leader of jalisco is aristoteles sandoval .
+the banyumasan people are an ethnic group in java .
+malaysian malay is one of the ethnic groups in malaysia .
+the leader of mexico is silvano aureoles conejo .
+the spanish language is spoken in new york .
+ingredient is an ingredient in the country of china .
+peanut sauce is an ingredient of food .
+malays ( ethnic group ) is an ethnic group in sumatra .
+david cameron is the leader of the uk .
+len wein won the purple heart .
+sheldon moldoff won the award .
+the birth place of antwerp is stellendam , netherlands .
+the polish academy of sciences is in regionserved .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the birth place of antwerp is minna .
+the birth place of antwerp is niger state .
+the administrative government is governed by the flemish government .
+the governing body of ireland is governingbody .
+the birth place of antwerp is kent .
+len wein is a member of the award .
+the headquarters of the association of computing machinery is founder .
+the headquarters of the association of computing machinery is mikulov .
+the administrative government is governed by the flemish government .
+the 2nd party is governed by the flemish government .
+the birth place of antwerp is hessisch oldendorf .
+the headquarters of the association of computing machinery is marietta , ohio .
+the administrative government is governed by the flemish government .
+len wein won the military cross .
+the birth place of antwerp is knightsbridge , london .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+sheldon moldoff is an american .
+the administrative government is governed by the flemish government .
+the governing body of ireland is governingbody .
+the administrative government is governed by the flemish government .
+sheldon moldoff won the award .
+the birth place of antwerp is darien , connecticut .
+the 2nd party is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the jurisdiction of the flemish government is the jurisdiction .
+the austrian german is spoken in ethiopia .
+the novel into battle is followed by the novel into battle .
+the polish academy of sciences is brussels .
+the leader of jalisco is gabriela michetti .
+the jurisdiction of the jurisdiction is the jurisdiction .
+john van den brom plays for the club .
+the headquarters of the association of computing machinery is founder .
+the polish academy of sciences is in regionserved .
+the jurisdiction of the jurisdiction is the jurisdiction .
+the leader of jalisco is mark rutte .
+the united states house of representatives is largestcity .
+the polish academy of representatives is in bloomington , maryland .
+dodge coronet is the alternative name for the second party .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the marriott international is located in rostock .
+the operator of antwerp is mayor .
+the administrative government is governed by the flemish government .
+the bbc was founded by founder .
+the administrative government is governed by the flemish government .
+the operator of antwerp is mayor .
+the administrative government is governed by the flemish government .
+american motors matador is the alternative name for the second party .
+the aircrafthelicopter is a helicopter used by the second party .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the aircrafthelicopter is a helicopter used by the second party .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the leader of jalisco is gabriela michetti .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the jurisdiction of the jurisdiction is the jurisdiction .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+icolo e bengo is located in peoria , illinois .
+the azal arena is located in genoa .
+the jurisdiction of the jurisdiction is the jurisdiction .
+the jurisdiction of the jurisdiction is the jurisdiction .
+the people of ireland are known as germans .
+the leader of jalisco is norbert lammert .
+the leader of jalisco is stanislaw tillich .
+the headquarters of the association of computing machinery is founder .
+the headquarters of the association of computing machinery is founder .
+the polish academy of sciences is in regionserved .
+the title of the leader of the united states is the leadertitle .
+native americans in the united states are an ethnic group in the united states .
+a . s . roma ' s chairman is silvio berlusconi .
+the birth place of antwerp is canada .
+len wein is in the award .
+len wein is in the award .
+len wein is in the award .
+the birth place of antwerp is brazil .
+the birth place of antwerp is diemen .
+the birth place of antwerp is netherlands .
+len wein is in the award .
+len wein is in the award .
+len wein is in the award .
+the birth place of antwerp is point fortin .
+the administrative government is governed by the flemish government .
+len wein is in the award .
+the champions of the association for computing machinery is creator .
+the port authority of regionserved and new jersey is in the club .
+the polish government is a member of the award .
+the birth place of antwerp is baghdad .
+len wein is in the award .
+len wein is in the award .
+len wein is in the award .
+the purple finch was founded by creator .
+len wein is in the award .
+the hub airport of antwerp is hubairport .
+french is the official language of the republic of ireland .
+the purple finch was founded by creator .
+len wein is in the award .
+the birth place of antwerp is batumi .
+len wein is in the award .
+len wein is in the award .
+len wein is in the award .
+the administrative government is governed by the flemish government .
+the birth place of antwerp is manitoba .
+french is the official language of the republic of ireland .
+atlanta is in atlanta .
+the jurisdiction of the jurisdiction is the jurisdiction .
+lahore is in the hungary .
+the english language is spoken in ethiopia .
+the slavey language is spoken in ethiopia .
+the polish government is in the city of columbus , ohio .
+the first runway at airport is made of asphalt .
+the first runway at airport is made of asphalt .
+the jurisdiction of the jurisdiction is mayor .
+the finnish language is spoken in ethiopia .
+italy is the lead of the comic house of representatives .
+the tomato is a member of the award .
+the polish academy of representatives is in the superleague of greece .
+the hub airport of antwerp is the flemish government .
+st . louis is in st . louis .
+icolo e bengo is in the city of nashville , tennessee .
+the administrative government is governed by the flemish government .
+the polish academy of sciences is in regionserved .
+the administrative government is governed by the flemish government .
+celery is in the state of parana .
+celery is in the state of parana .
+the administrative government is governed by the flemish government .
+the purple finch was founded by creator .
+the birth place of antwerp is poland .
+celery is in the state of parana .
+celery is in the state of parana .
+the birth place of antwerp is istanbul , turkey .
+celery is in the state of parana .
+the polish academy of sciences is in regionserved .
+the administrative government is governed by the flemish government .
+the birth place of antwerp is yugoslavia .
+celery is in the state of parana .
+celery is in the state of parana .
+celery is in the state of parana .
+the polish academy of sciences is in regionserved .
+the birth place of antwerp is montevideo .
+the governing body of ireland is governingbody .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+celery is in the state of parana .
+the administrative government is governed by the flemish government .
+the purple finch was founded by creator .
+celery is in the state of parana .
+the marriott international is located in chicago .
+the polish academy of sciences is in regionserved .
+celery is in the state of parana .
+the administrative government is governed by the flemish government .
+celery is in the state of parana .
+the administrative government is governed by the flemish government .
+the polish academy of sciences is in regionserved .
+the birth place of antwerp is chisinau , moldova .
+the polish academy of sciences is in regionserved .
+the administrative government is governed by the flemish government .
+uttar pradesh is part of the gran asuncion .
+christian panucci is attached to the club genoa cfc .
+the polish academy of sciences is in regionserved .
+the polish academy of sciences is in regionserved .
+the jurisdiction of the jurisdiction is the jurisdiction .
+uttar pradesh is part of the greater manchester .
+the marriott international is located in london .
+the jurisdiction of the jurisdiction is the jurisdiction .
+the polish offset of computing machinery is parentcompany .
+the administrative government is governed by the flemish government .
+british people inhabit the uk .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the operator of antwerp is mayor .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the operator of antwerp is mayor .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the administrative government is governed by the flemish government .
+the birth place of augustus pugin is birthplace .
+leadername is the leader of the indian .

@@ -1,0 +1,31 @@
+<?xml version="1.0"?>
+
+<project name="Meteor" default="dist" basedir=".">
+
+  <property name="version" value="1.5" />
+
+  <property name="meteor-jar" location="meteor-${version}.jar" />
+
+  <target name="init">
+    <mkdir dir="build" />
+  </target>
+
+  <target name="compile" depends="init">
+    <javac source="1.5" target="1.5" srcdir="src" destdir="build" encoding="UTF-8"/>
+  </target>
+
+  <target name="dist" depends="compile">
+    <jar jarfile="${meteor-jar}" basedir="build">
+      <fileset dir="resources" />
+      <manifest>
+        <attribute name="Main-Class" value="Meteor" />
+      </manifest>
+    </jar>
+  </target>
+
+  <target name="clean" description="clean up generated files">
+    <delete dir="build" />
+    <delete file="${meteor-jar}" />
+  </target>
+
+</project>

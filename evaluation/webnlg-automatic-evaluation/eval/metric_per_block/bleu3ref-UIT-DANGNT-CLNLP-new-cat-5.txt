@@ -1,0 +1,6 @@
+BLEU = 0.05, 47.1/38.7/17.9/8.0 (BP=0.002, ratio=0.141, hyp_len=51, ref_len=361)
+BLEU = 0.05, 47.1/38.7/17.9/8.0 (BP=0.002, ratio=0.141, hyp_len=51, ref_len=361)
+BLEU = 0.05, 47.1/38.7/17.9/8.0 (BP=0.002, ratio=0.141, hyp_len=51, ref_len=361)
+BLEU = 0.05, 47.1/38.7/17.9/8.0 (BP=0.002, ratio=0.141, hyp_len=51, ref_len=361)
+BLEU = 0.05, 47.1/38.7/17.9/8.0 (BP=0.002, ratio=0.141, hyp_len=51, ref_len=361)
+BLEU = 0.05, 47.1/38.7/17.9/8.0 (BP=0.002, ratio=0.141, hyp_len=51, ref_len=361)

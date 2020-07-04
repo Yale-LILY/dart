@@ -1,0 +1,53 @@
+Meteor version: 1.5
+
+Eval ID:        meteor-1.5-wo-en-norm-0.85_0.2_0.6_0.75-ex_st_sy_pa-1.0_0.6_0.8_0.6
+
+Language:       English
+Format:         plaintext
+Task:           Ranking
+Modules:        exact stem synonym paraphrase
+Weights:        1.0 0.6 0.8 0.6
+Parameters:     0.85 0.2 0.6 0.75
+
+Segment 1 score:	0.43157904970151456
+Segment 2 score:	0.06178405831779283
+Segment 3 score:	0.35225163009414523
+Segment 4 score:	0.47281042324412914
+Segment 5 score:	0.5543981043958222
+Segment 6 score:	0.16192191932960187
+Segment 7 score:	0.43714649194333294
+Segment 8 score:	0.3122916064859166
+Segment 9 score:	0.4977265204521056
+Segment 10 score:	0.14699667230046806
+Segment 11 score:	0.45929349429079724
+Segment 12 score:	1.0
+Segment 13 score:	0.35126433176159505
+Segment 14 score:	0.22303937422414372
+Segment 15 score:	0.1729327279741658
+Segment 16 score:	0.3805876480157309
+Segment 17 score:	0.41692539069664974
+Segment 18 score:	0.5571390218034645
+Segment 19 score:	1.0
+Segment 20 score:	0.5918087530086704
+
+System level statistics:
+
+
+           Test Matches                  Reference Matches
+Stage      Content  Function    Total    Content  Function    Total
+1              212       179      391        212       179      391
+2                1         0        1          1         0        1
+3                2         0        2          2         0        2
+4                5        13       18          4        17       21
+Total          220       192      412        219       196      415
+
+Test words:             664
+Reference words:        534
+Chunks:                 133
+Precision:              0.6275449101796406
+Recall:                 0.74644128113879
+f1:                     0.6818488128721769
+fMean:                  0.7258140739112422
+Fragmentation penalty:  0.47821861331383303
+
+Final score:            0.378716273961744

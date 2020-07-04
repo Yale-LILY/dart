@@ -1,0 +1,79 @@
+Meteor version: 1.5
+
+Eval ID:        meteor-1.5-wo-en-norm-0.85_0.2_0.6_0.75-ex_st_sy_pa-1.0_0.6_0.8_0.6
+
+Language:       English
+Format:         plaintext
+Task:           Ranking
+Modules:        exact stem synonym paraphrase
+Weights:        1.0 0.6 0.8 0.6
+Parameters:     0.85 0.2 0.6 0.75
+
+Meteor version: 1.5
+
+Eval ID:        meteor-1.5-wo-en-norm-0.85_0.2_0.6_0.75-ex_st_sy_pa-1.0_0.6_0.8_0.6
+
+Language:       English
+Format:         plaintext
+Task:           Ranking
+Modules:        exact stem synonym paraphrase
+Weights:        1.0 0.6 0.8 0.6
+Parameters:     0.85 0.2 0.6 0.75
+
+Segment 1 score:	1.0
+Segment 2 score:	0.48406698485029875
+Segment 3 score:	0.40702308438760176
+Segment 4 score:	1.0
+Segment 5 score:	0.49373532117916036
+Segment 6 score:	0.3495663103876594
+Segment 7 score:	0.40603341449874986
+Segment 8 score:	0.5283160627509073
+Segment 9 score:	0.20193556981324007
+Segment 10 score:	1.0
+Segment 11 score:	0.24928853050996513
+Segment 12 score:	0.19799778736676701
+Segment 13 score:	0.3134938458070441
+Segment 14 score:	0.4691624416337969
+Segment 15 score:	0.2732744235393748
+Segment 16 score:	0.46611191986505096
+Segment 17 score:	0.5469814294677898
+Segment 18 score:	0.48469963937621485
+Segment 19 score:	0.1150133883398441
+Segment 20 score:	0.4383691520473017
+Segment 21 score:	0.21759481546038098
+Segment 22 score:	0.4167603631189497
+Segment 23 score:	0.3228442299244016
+Segment 24 score:	0.3133507759324025
+Segment 25 score:	0.28967713667812894
+Segment 26 score:	0.30632439900602076
+Segment 27 score:	0.3196596336991315
+Segment 28 score:	0.479957483659846
+Segment 29 score:	0.33996309279066417
+Segment 30 score:	0.35351376868703827
+Segment 31 score:	0.1608258491041426
+Segment 32 score:	0.4108364182459396
+Segment 33 score:	0.36833041170676406
+Segment 34 score:	0.38208883495112567
+Segment 35 score:	0.4388984272866077
+
+System level statistics:
+
+
+           Test Matches                  Reference Matches
+Stage      Content  Function    Total    Content  Function    Total
+1              217       155      372        217       155      372
+2                4         0        4          4         0        4
+3                2         1        3          2         1        3
+4                6         6       12          5         5       10
+Total          229       162      391        228       161      389
+
+Test words:             533
+Reference words:        530
+Chunks:                 146
+Precision:              0.7553943789664551
+Recall:                 0.714974182444062
+f1:                     0.7346287083372866
+fMean:                  0.7207592193938511
+Fragmentation penalty:  0.49295684353039587
+
+Final score:            0.36545602965602614

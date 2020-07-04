@@ -1,0 +1,90 @@
+Meteor version: 1.5
+
+Eval ID:        meteor-1.5-wo-en-norm-0.85_0.2_0.6_0.75-ex_st_sy_pa-1.0_0.6_0.8_0.6
+
+Language:       English
+Format:         plaintext
+Task:           Ranking
+Modules:        exact stem synonym paraphrase
+Weights:        1.0 0.6 0.8 0.6
+Parameters:     0.85 0.2 0.6 0.75
+
+Meteor version: 1.5
+
+Eval ID:        meteor-1.5-wo-en-norm-0.85_0.2_0.6_0.75-ex_st_sy_pa-1.0_0.6_0.8_0.6
+
+Language:       English
+Format:         plaintext
+Task:           Ranking
+Modules:        exact stem synonym paraphrase
+Weights:        1.0 0.6 0.8 0.6
+Parameters:     0.85 0.2 0.6 0.75
+
+Meteor version: 1.5
+
+Eval ID:        meteor-1.5-wo-en-norm-0.85_0.2_0.6_0.75-ex_st_sy_pa-1.0_0.6_0.8_0.6
+
+Language:       English
+Format:         plaintext
+Task:           Ranking
+Modules:        exact stem synonym paraphrase
+Weights:        1.0 0.6 0.8 0.6
+Parameters:     0.85 0.2 0.6 0.75
+
+Segment 1 score:	0.4673255074023409
+Segment 2 score:	0.9076923076923079
+Segment 3 score:	1.0
+Segment 4 score:	1.0
+Segment 5 score:	0.39537326143283724
+Segment 6 score:	1.0
+Segment 7 score:	1.0
+Segment 8 score:	1.0
+Segment 9 score:	0.4369165739006062
+Segment 10 score:	1.0
+Segment 11 score:	0.3736309675736359
+Segment 12 score:	1.0
+Segment 13 score:	0.5619227910548973
+Segment 14 score:	0.4129453331628247
+Segment 15 score:	0.5108664881104479
+Segment 16 score:	0.5118198837985161
+Segment 17 score:	0.5685147844590703
+Segment 18 score:	0.5685211330292821
+Segment 19 score:	0.508556079838853
+Segment 20 score:	0.4489264738758354
+Segment 21 score:	0.48753204453115284
+Segment 22 score:	0.392850725446176
+Segment 23 score:	0.5944809321545631
+Segment 24 score:	0.4462789271962273
+Segment 25 score:	0.4623522673451571
+Segment 26 score:	0.4318804966803388
+Segment 27 score:	0.5219273334599978
+Segment 28 score:	0.4179548085425057
+Segment 29 score:	1.0
+Segment 30 score:	0.4711341478054539
+Segment 31 score:	0.5189278103978159
+Segment 32 score:	0.4523102801544398
+Segment 33 score:	0.4990119278150329
+Segment 34 score:	0.5116488553002876
+Segment 35 score:	0.437370134025057
+
+System level statistics:
+
+
+           Test Matches                  Reference Matches
+Stage      Content  Function    Total    Content  Function    Total
+1              285       179      464        285       179      464
+2                8         0        8          8         0        8
+3                0         0        0          0         0        0
+4                7         7       14          7         4       11
+Total          300       186      486        300       183      483
+
+Test words:             564
+Reference words:        528
+Chunks:                 123
+Precision:              0.8832504145936982
+Recall:                 0.9246956521739131
+f1:                     0.9034979894237967
+fMean:                  0.9182326430291468
+Fragmentation penalty:  0.4561141193900774
+
+Final score:            0.49941376965868417

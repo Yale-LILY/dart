@@ -1,0 +1,27 @@
+"../webnlg-automatic-evaluation//teams//metric_per_block/GKB_Unimelb_all-cat_ter_67.txt" was successfully parsed as Trans text
+"../webnlg-automatic-evaluation//references//metric_per_block/gold-all-cat-reference-3ref-67.ter" was successfully parsed as Trans text
+** Warning: XML ouput may not have correct doc id for Trans format inputs
+Processing id1405:1
+Processing id707:1
+Processing id1328:1
+Processing id251:1
+Processing id528:1
+Processing id1588:1
+Processing id132:1
+Processing id1359:1
+Processing id1373:1
+Processing id1847:1
+Processing id1602:1
+Processing id1541:1
+Processing id341:1
+Processing id1681:1
+Processing id632:1
+Processing id1854:1
+Processing id1245:1
+Processing id1234:1
+Processing id511:1
+Processing id441:1
+Total TER: 0.5022026431718062 (228.0/453.99999999999994)
+Number of calls to beam search: 3245
+Number of segments scored: 57
+Number of shifts tried: 3188

@@ -1,0 +1,27 @@
+"../webnlg-automatic-evaluation//teams//metric_per_block/PKUWriter_all-cat_ter_62.txt" was successfully parsed as Trans text
+"../webnlg-automatic-evaluation//references//metric_per_block/gold-all-cat-reference-3ref-62.ter" was successfully parsed as Trans text
+** Warning: XML ouput may not have correct doc id for Trans format inputs
+Processing id1780:1
+Processing id509:1
+Processing id555:1
+Processing id737:1
+Processing id368:1
+Processing id593:1
+Processing id436:1
+Processing id575:1
+Processing id844:1
+Processing id1297:1
+Processing id1691:1
+Processing id564:1
+Processing id256:1
+Processing id391:1
+Processing id875:1
+Processing id1783:1
+Processing id1404:1
+Processing id948:1
+Processing id282:1
+Processing id820:1
+Total TER: 0.5902887972072358 (310.0/525.1666666666666)
+Number of calls to beam search: 3055
+Number of segments scored: 55
+Number of shifts tried: 3000
