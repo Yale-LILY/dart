@@ -3,14 +3,14 @@
 DART is a large and open-domain structured **DA**ta **R**ecord to **T**ext generation corpus with high-quality sentence annotations with each input being a set of entity-relation triples following a tree-structured ontology.
 It consists of 82191 examples across different domains with each input being a semantic RDF triple set derived from data records in tables and the tree ontology of table schema, annotated with sentence description that covers all facts in the triple set.
 
-DART is released in the following [paper]() where you can find more details and baseline results.
+DART is released in the following [paper](https://arxiv.org/abs/2007.02871) where you can find more details and baseline results.
 
 ## Citation
 ```
 @article{radev2020dart,
   title={DART: Open-Domain Structured Data Record to Text Generation},
   author={Dragomir Radev and Rui Zhang and Amrit Rau and Abhinand Sivaprasad and Chiachun Hsieh and Nazneen Fatema Rajani and Xiangru Tang and Aadit Vyas and Neha Verma and Pranav Krishna and Yangxiaokang Liu and Nadia Irwanto and Jessica Pan and Faiaz Rahman and Ahmad Zaidi and Murori Mutuma and Yasin Tarabar and Ankit Gupta and Tao Yu and Yi Chern Tan and Xi Victoria Lin and Caiming Xiong and Richard Socher},
-  journal={arXiv},
+  journal={arXiv preprint arXiv:2007.02871},
   year={2020}
 ```
 
