@@ -13,7 +13,7 @@ TEST_TARGETS_REF2=dart_reference/all-delex-reference2.lex
 python prepare_files.py ${OUTPUT_FILE} ${TEST_TARGETS_REF0} ${TEST_TARGETS_REF1} ${TEST_TARGETS_REF2}
 # METEOR
 cd meteor-1.5/ 
-java -Xmx2G -jar meteor-1.5.jar ${OUTPUT_FILE} ../all-notdelex-refs-meteor.txt -l en -norm -r 8 > ../meteor.txt
+java -Xmx2G -jar meteor-1.5.jar ../${OUTPUT_FILE} ../all-notdelex-refs-meteor.txt -l en -norm -r 8 > ../meteor.txt
 cd ..
 
 # TER
