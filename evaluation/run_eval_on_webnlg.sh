@@ -1,7 +1,7 @@
 #! /bin/bash
 
 OUTPUT_FILE=example/bart_webnlg.txt
-TEAMR=team
+export TEAMR=team
 
 echo $OUTPUT_FILE
 echo $TEAMR
