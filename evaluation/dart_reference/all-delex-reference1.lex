@@ -498,4258 +498,4195 @@
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-Aaron S . Daggett was awarded the Purple Heart .
-Aaron S . Daggett fought in the Battle of Mine Run .
-Ab Klink was born in Stellendam , Netherlands .
-Abdul Rahman Ya ' kub was in office whilst Tuanku Bujang Tuanku Othman was Vice President .
-Abdul Taib Mahmud is a member of the Parti Bumiputera Sarawak Party .
-Abdul Taib Mahmud was succeded by Sulaiman Abdul Rahman Taib .
-
-Minna was the birthplace of Abdulsalami Abubakar .
-Abdulsalami Abubakar was born in Niger State .
-
-Abner W . Sibal died in Alexandria , Virginia .
-
-Adam Holloway resided in Gravesend .
-Adenan Satem ' s alma mater is the University of Adelaide .
-Adolf Schärf was born in Mikulov .
-Adonis Georgiadis was in office under Antonis Samaras , Prime Minister .
-Adonis Georgiadis was the Deputy Minister for Development , Competitiveness and Shipping .
-
-Agnes Ward White was born in Marietta , Ohio .
-
-
-Airey Neave was born in Knightsbridge , London .
-Airey Neave was a Lieutenant Colonel .
-Airey Neave started serving in military in 1935 .
-Albert B . White is a member of the Republican Party in the United States .
-Albert B . White is married to Agnes Ward White .
-Albert Jennings Fountain was a member of the Union Army .
-Alberto Teisaire is Argentinian .
-Alberto Teisaire was Rear Admiral in the Argentine Navy .
-Alfons Gorbach died in Austria .
-
-Alfred Moore Scales fought in the Battle of Chancellorsville .
-Alfred N . Phillips place of birth was Darien Connecticut .
-Alfred N . Phillips was the Mayor of Stamford Connecticut .
-
-
-Allan Shivers was succeeded by Price Daniel .
-Alvah Sabin started active service on 1853 - 03 - 04 .
-Alvah Sabin belongs to the Whig Party ( United States ) .
-Robert E . Lee was a commander in the American Civil War .
-The language in Austria is Austrian German .
-Robert E . Lee was a commander in the Battle of Antietam .
-
-The leader of Buenos Aires is called Gabriela Michetti .
-Colin Powell was the commander in the Gulf War .
-Dwight D . Eisenhower preceded John F . Kennedy as President .
-Josef Klaus alma mater is the University of Vienna .
-The predecessor of Juan Carlos I f Spain was Francisco Franco .
-Juan Peron belongs to the Labour Party in Argentina .
-
-
-Bloomington , Maryland was the birthplace of William M O Dawson .
-The 1955 Dodge is also named the Dodge Coronet .
-The size of the engine in the 1955 Dodge is 230 cubic inches .
-The A - Rosa Luna was " christened " on the 7th April 2005 .
-AIDA Cruises are located at Rostock .
-The AIDAluna is operated by AIDA Cruises .
-The AIDAstella was christened in March 16 2013 .
-The AIDAstella was completed on the 11th March 2013 .
-The ship AIDAstella had her maiden voyage on March 17th 2013 .
-The operator of AIDAstella is AIDA Cruises .
-The launch site of the ALV X - 1 was the Mid - Atlantic Regional Spaceport .
-AMC Matador is also known as American Motors Matador .
-The ARA Veinticinco de Mayo ( V - 2 ) was sold to the Netherlands on 01 / 04 / 1948 .
-The Abarth 1000 GT Coupe has the straight four engine .
-
-
-
-The Acura TLX has a 9 - speed ZF 9HP automatic ( V6 ) transmission .
-
-The related transport to the Alfa Romeo 164 is the Lancia Thema .
-
-The Samuda Brothers built the Alhambra .
-The Alhambra has a ship beam of 8 . 3m .
-
-The Alhambra has a top speed of 18 . 52 .
-
-The Alvis Speed 25 was first manufactured in 1937 .
-The American submarine NR - 1 has a ship draft of 4 . 6 metres .
-The final flight of the Antares rocket was on 2014 - 10 - 28 .
-The launch site of the Antares rocket was the Mid - Atlantic Regional Spaceport Launch Pad 0 .
-
-The Ariane 5 was launched from the Guiana Space Centre .
-Ariane 5 had its maiden flight on August 11th 2005 .
-
-The Aston Martin made the Aston Martin V8 .
-Aston Martin are the manufacturers of the Aston Martin Virage .
-The final flight of Atlas II was on 1998 - 03 - 16 .
-The Atlas II was launched from Vandenberg Air Force Base .
-August Horch founded Audi .
-The Audi A1 is assembled at Audi Brussels .
-The Audi A1 and the Seat Ibiza are similar means of transport .
-Caterpillar Inc . is in Peoria , Illinois .
-Costa Crociere is in Genoa .
-DeSoto Custom is a related means of transport to Chrysler Newport .
-
-Germans is the demonym for people who live in Germany .
-The leader of Germany is Norbert Lammert .
-Stanislaw Tillich is a leader of Germany .
-
-The Guiana Space Centre ' s headquarters are located in Kourou , French Guiana .
-Honda are the makers of the Honda K engine .
-The anthem of the United States is the Star Spangled Banner .
-The United States has an ethnic group called Native Americans .
-Silvio Berlusconi is the chiarman of A . C . Milan .
-Aaron Boogaard was born in Canada .
-Aaron Hunt plays for SV Werder Bremen .
-Abel Hernandez played for the Uruguay Olympic football team .
-Abel Hernandez plays for the Uruguay national football team .
-Abner ( a footballer ) was born in Brazil .
-Diemen is the birth place of Adam Maher .
-
-Adam Maher plays for the Netherlands National club for players under 17 .
-
-Ahmad Kadhim Assad represented the Iraq national football team .
-Akeem Adams ' birthplace is Point Fortin .
-Akeem Dent used to play for the Atlanta Falcons .
-Akeem Priestley plays for the Connecticut Huskies .
-Al - Khor Sports Club play in the Qatar Stars League .
-Basim Qasim manages Al - Zawra ' a SC .
-
-Baghdad is the birth place of Alaa Abdul - Zahra .
-Alaa Abdul Zahra plays for Sanat Mes Kerman FC .
-Alan Martin is a footballer for the Hamilton Academical FC .
-Alan Martin played football for the Scotland national under 19 team .
-Aleksander Barkov Jr . was born on the 2nd September 1995 .
-Aleksander Barkov , Jr ' s club is the Florida Panthers .
-Aleksander Barkov , Jr ' s height is 1 . 905 metres .
-Aleksander Barkov Jr . plays in the National Hockey League .
-Aleksandr Prudnikov was born on 24th February 1989 .
-Aleksandr Prudnikov plays for the FC Amkar Perm football club .
-Aleksandre Guruli ' s birth place is Batumi .
-Aleksandre Guruli ' s club is FC Samtredia .
-Aleksandre Guruli once played for the Georgia national under - 21 football team .
-Alessio Romagnoli is a member of A . S . Roma .
-Alessio Romagnoli plays for A . S . Roma ' s youth team .
-Alex Plante ' s birthplace is Manitoba .
-Alex Tyus plays in the Turkish Basketball Super League .
-Atlanta Falcons play in the city of Atlanta .
-Don Sweeney is general manager of the Boston Bruins .
-
-English language is spoken in Canada .
-Canada ' s language is the Slavey language .
-The Columbus Blue Jackets are based in the city of Columbus , Ohio .
-The manager of FC Karpaty Lviv is Oleh Luzhny .
-
-Gabor Kubatov is the chairman of Ferencvarosi TC .
-The Finnish language is spoken in Finland .
-Daniele Zoratto is coach of the Italy national under 16 football team .
-The coach of Maccabi Ashdod B . C . is Zvi Sherf .
-Motherwell F . C . play their home games at Fir Park .
-Jean - Michel Aulas is the owner of the Olympique Lyonnais .
-American Football team , St . Louis Rams , are based in the city of St . Louis .
-The Tennessee Titans are based in the city of Nashville , Tennessee .
-
-Aaron Deer plays with The Horns of Happiness .
-Aaron Deer is signed to the record label Kill Rock Stars .
-Aaron Turner performs avant - garde metal music .
-Aaron Turner performs progressive metal music .
-Abradab ' s background is that of solo singer .
-The birth date of Abradab is 12th November 1978 .
-Abradab was born in Poland .
-Abradab performs hip hop music .
-The genre Guarania , is the musical genre that Agustin Barboza is involved in .
-
-Alan Frews ' musical genre is rock music .
-
-A solo singer is part of Aleksandra Kovač ' s background , .
-The birth place of Aleksandra Kovac is Yugoslavia .
-Aleksandra Kovac ' s genre is rhythm and blues .
-Aleksandra Kovač performs soul music .
-Alex Day performs Synthpop music .
-Alfredo Zitarrosa is associated with Hector Numa Moraes .
-The birth place of Alfredo Zitarrosa is Montevideo .
-
-Alfredo Zitarrosa ' s record label is RCA Records .
-1963 was the beginning of Alison O ' Donnell ' s active years .
-Alison O ' Donnell performs jazz music .
-Alison O ' Donnell is a musician who uses her voice , bodhran , percussion and autoharp .
-Allen Forrest ' s birth date is 04th February 1981 .
-Allen Forrest was a pop artist .
-Alligator records is based in Chicago .
-Anders Osborne and Johnny Sansone are associates .
-Rhythm and blues is the musical genre of Anders Osborne .
-Anders Osborne is signed to the record label Alligator Records .
-Andra performs rhythm and blues music .
-Andrew Rayel started his career in 2009 .
-The musicians Andrew Rayel and Christian Burns are associates .
-Andrew Rayel was born in Chisinau , Moldova .
-Andrew White is associated with the musical artist Marry Banilow .
-The musician Andrew White is signed to the record label B - Unique Records .
-Asunción is part of Gran Asunción .
-Christian Burns plays guitar .
-Gangsta rap is a sub genre of Hip Hop music .
-Hip Hop music has its origins in Funk .
-Indie Rock has its origins in New wave music .
-Manchester is a part of Greater Manchester .
-Polydor Records is located in London .
-RCA Records distribute through Sony Music Entertainment .
-Rock and Roll has its stylistic origin in the Blues .
-Synthpop ' s stylistic origins come from pop music .
-The native people of the United Kingdom are known as the British people .
-The celestial body known as ( 19255 ) 1994 VK8 has a density of 2 grams per cubic centimetres .
-Carl A Wirtanen discovered ( 29075 ) 1950 DA .
-The absolute magnitude of ( 410777 ) 2009 FD is 22 . 1 .
-The apoapsis of ( 410777 ) 2009 FD is 259776702 . 47055 kilometers .
-The apoapsis for ( 66063 ) 1998 RO1 is 254989570 . 60815 kilometres .
-( 66063 ) 1998 RO1 has an epoch date of 2013 - 11 - 04 .
-The escape velocity of 1000 Piazzia is 0 . 0252 km / sec .
-The former name of 1001 Gaussia is " 1923 OAA907 XC " .
-The celestial body known as 1001 Gaussia has a maximum temperature of 165 kelvins .
-101 Helena has an apoapsis of 441092000 . 0 kilometres .
-101 Helena has an epoch of 2006 - 12 - 31 .
-101 Helena has a mass of 3 . 0 kilograms .
-1036 Ganymed travels at an average speed of 16 . 86 kilometres per second .
-The celestial body known as 103 Hera has an absolute magnitude of 7 . 66 .
-103 Hera has a mass of 7 . 9 kilograms .
-The absolute magnitude of 107 Camilla is 7 . 08 .
-A Storrs discovered 107 Camilla .
-1089 Tama was formerly called " A894 VA ; A904 VD ; " .
-
-The celestial body known as 1097 Vicia has an average speed of 17 . 92 k . p . s .
-The epoch date of 1097 Vicia is 2006 . 12 . 31 .
-1097 Vicia has a rotation period of 95040 . 0 .
-109 Felicitas was discovered by Christian Heinrich Friedrich Peters .
-The periapsis of 109 Felicitas is 283326000000 . 0 .
-10 Hygiea has an average speed of 16 . 76 kilometres per second .
-1101 Clematis has a periapsis of 445895000000 . 0 .
-31 December 2006 is the epoch of 110 Lydia .
-11264 Claudiomaccone has a temperature of 173 . 0 kelvins .
-James Craig Watson ' s Alma mater is the University of Michigan .
-N . R . Pogson was born in Nottingham .
-Aaron S Daggett , fought in battles , most notably the Battle of Fredericksburg , he was awarded the Purple Heart .
-Aaron S . Daggett fought in the Battle of Gettysburg and was awarded the Purple Heart .
-Abdul Rahman Ya ' kub , who succeeded Abdul Taib Mahmud , has a deputy named Stephen Yong Kuet Tze .
-Abdul Taib Mahmud was born in the Kingdom of Sarawak and his party is the Parti Pesaka Bumiputera Bersatu .
-Abdulsalami Abubakar was born in Minna and he attended the Technical Institute Kaduna .
-Abdulsalami Abubakar , who was born in Niger State , was the Chief of the Defence Staff in Nigeria .
-Abdulsalami Abubakar was the Chief of the Defence Staff in Nigeria and he was succeeded by Al - Amin Daggash .
-Abdulsalami Abubakar ended his career on 1999 - 05 - 29 and was succeeded by Olusegun Obasanjo .
-Abdulsalami Abubakar , who was succeeded by Olusegun Obasanjo . was in office while Mike Akhigbe was Vice President .
-Abner W . Sibal fought in World War II and the commander of Russian during that war was Joseph Stalin .
-Abner W . Sibal served in the United States Army , which fought in the Korean War .
-Adam Holloway was born in Kent and attended Magdalene College in Cambridge .
-Adam Holloway was born in Kent and lives in Gravesend .
-Adam Koc fought in WWI and he was awarded the Virtuti Militari award .
-Adonis Georgiadis was born in Athens and worked as the Deputy Parliamentary Spokesman for the Popular Orthodox Rally .
-Adonis Georgiadis was born in Athens , in Greece .
-Greek born Adonis Georgiadis he has worked as the Deputy Parliamentary Spokesman of Popular Orthodox Rally .
-Agnes Kant was born in Hessisch Oldendorf and was employed as a Parliamentary group leader .
-Airey Neave received the Military Cross and served in the Royal Artillery .
-Airey Neave , began his career on March 4th 1974 , and fought in the Battle of France .
-Airey Neave fought in the Battle of France , the battle where Hugo Sperrle was the commander .
-Born in Kinightsbridge , Airey Neave fought in World War II .
-Franklin D Roosevelt was a commander in World War II , in which Airey Neave fought .
-Joseph Stalin was a commander in World War II , the war Airey Neave was involved in .
-Albert B White was born 1856 - 09 - 22 and died in 1941 .
-Albert B White , born on 22nd September 1856 , profession was politician .
-Born in New York City , Albert Jennings Fountain , died in Dona Ana County , New Mexico .
-Albert Jennings Fountain , who died in the New Mexico territory , was in office whilst Edmund J . Davis was Vice President .
-Albert Jennings Fountain was born in New York and is a member of the Republican Party .
-Alberto Teisaire worked as a Provisional President of the Argentine Senate and was succeeded by Isaac Rojas .
-Alfons Gorbach was born in Austria and Austria - Hungary .
-Alfons Gorbach was born in Tyrol state in Austria .
-Alfred Moore Scales , was Governor of North Carolina , and was succeeded by the politician James W Reid .
-Daniel Gould Fowle , attended Princeton University , and suceeded Alfred Moore Scales .
-Alfred N . Phillips was born in Connecticut and worked at the United States House of Representatives .
-Alfred N . Phillip was a member of the US Army that fought in the American Civil War .
-Allan Shivers fought in World War II where Joseph Stalin was also a commander .
-Allan Shivers who worked as a member of the Texas State Senate from District 4 ( Port Arthur ) , was born in Lufkin , Texas .
-Allan Shivers worked as a member of the Texas State Senate from District 4 ( Port Arthur ) he was succeed by Ben Ramsey .
-Alvah Sabin was born October 23 , 1793 . He worked as secretary of Vermont .
-Agnes Kant is a resident of Netherlands which uses the Euro as its currency . .
-Agnes Kant is from the Netherlands , the leader of which , is Mark Rutte .
-Albert B White died at Parkersburg , West Virginia , in the United States .
-Aaron Boogaard was born in Saskatchewan and plays for Wichita Thunder .
-Abel Hernandez has played for the club Peñarol which is managed by Jorge Orosmán da Silva .
-Abel Hernandez ' s club is US Citta di Palermo and Penarol .
-AZ Alkmaar player Adam Maher represented the Netherlands national side at Under 17 level .
-Adam Maher played for PSV Eindhoven and represented the Netherlands under 17 football team .
-Ahmad Kadhim Assad played for both Steel Azin F . C . and Al Shorta SC .
-Akeem Adams club is Ferencvarosi TC , where the manager is Thomas Doll .
-Akeem Adams , who plays for the Trinidad and Tobago national football team formerly played for the T & amp ; TEC Sports Club .
-Akeem Ayers draft pick is 39 ad his former team is the New England Patriots .
-Akeem Ayers used to play for Tennessee Titans and he was number 39 in the draft pick .
-Akeem Dent date of birth is the 27th September 1987 .
-Akeem Priestley plays for the Connecticut Huskies , having previously played for Sheikh Russel KC .
-Akeem Priestley plays for Sheikh Russel KC and formerly for RoPS .
-Alaa Abdul - Zahra has played for Al - Khor Sports Club , located in Al - Khor .
-Alaa Abdul Zahra plays for Al Kharaitiyat SC managed by Amar Osim .
-Alan Martin plays football for Hamilton Academical F . C and Leeds United F . C .
-Hamilton Academical FC ' s ground is New Douglas Park and is the club of Alan Martin .
-Aleksander Barkov Jr . was born on the 2nd September 1995 and plays for the Florida Panthers .
-Aleksander Barkov Jr was born in Tampere Finland and plays for the Florida Panthers .
-FC Torpedo Moscow , managed by Valery Petrakov , is a former club of Aleksandr Chumakov .
-Former clubs of Aleksandr Prudnikov include FC Spartak Moscow and FC Kuban Krasnodar .
-Aleksandr Prudnikov plays for FC Tom Tomsk which plays in the Russian Football National league .
-Aleksandre Guruli ' s club is FC Karpaty Lviv and he also played for FC Dinamo Batumi .
-Alex Plante was born in Manitoba in 1989 .
-Born on January 8th 1988 , Alex Tyus plays for the club Pallacanestro Cantu .
-Alex Tyus has played in the Turkish Basketball Super League and has also represented the club Maccabi Tel Aviv BC .
-The Conservative Party of Canada is the leader of Brandon , Manitoba , where Alex Plante was born .
-Adam McQuaid came from Canada whose anthem is O Canada .
-The English language is spoken in Canada which is the birthplace of Adam McQuaid .
-Aleksandre Guruli plays for FC Dinamo Batumi managed by Levan Khomeriki .
-Aleksandr Prudnikov plays for FC Spartak Moscow at the Otkrytiye Arena .
-Akeem Priestley plays for the club RoPS in the Veikkausliiga league .
-Akeem Adams played for United Petrotrin FC , who were playing in Palo Seco Velodrome .
-Aaron Deer plays the guitar and performs Psychedelia music .
-Aaron Deer is from the United States , specifically Indiana .
-Aaron Turner performs electroacoustic music and he played with the band Twilight .
-Aaron Turner is an avant - garde metal music singer .
-Abradab played with the band Kaliber 44 and is associated with the rapper Magik .
-Abradab was born in Katowice on 12th November 1978 .
-The birth place of Abradab is Poland , in Katowice .
-The musical genre of Ace Wilder is hip hop music which has its origins in Disco .
-Ace Wilder is a solo singer who uses the record label Warner Music group .
-Paraguay born Agustin Barboza is signed to Philips Records .
-Alan Frew ' s genre is Rock music of which bhangra is a fusion of rock .
-Alan Frews ' musical genre is rock music , which originated from country music .
-Albennie Jones plays Jazz , which originated from Blues music .
-With a background in solo singing , Aleksandra Kovač , belongs to the musical genre of Pop .
-Aleksandra Kovac is an exponent of Rhythm and blues , the music that originated from the blues .
-Aleksandra Kovač began her musical career in 1990 , she performs soul music .
-Alex Day performs Synthpop music which has its stylistic origin in new wave music .
-Alfred Garth Jones was born in England in 1872 .
-Solo singer Alfredo Zitarrosa is a Milonga stylist .
-Alfredo Zitarrosa started out as a solo singer and is an exponent of Taquirari .
-Born in Uruguay , Alfredo Zitarrosa died in Montevideo .
-
-Alfredo Zitarrosa has a background as a solo singer and performs Zamba music .
-Alison O ' Donnell was with the bands Bajik and Plastik Mak .
-Alison O ' Donnell ' s musical genre is folk rock and her recording label is Floating World Records .
-Alison O ' Donnell performs jazz music , she plays the bodhran , perscussion , and autoharp in addition to singing .
-Allen Forrest is a solo singer whose genre is Hip Hop music .
-The musician Andrew White ' s genre is alternative rock which has the subgenre of Christian alternative rock .
-Anders Osborne is associated with Phil Lesh and Friends as well as Tab Benoit .
-Anders Osborne genre is Rhythm and blues and his record label is Rabadash Records .
-Anders Osborne performs rhythm and blues music and is signed to Shanachie Records .
-Andra is a pop singer who started in 2000 .
-Andra performs rhythm and blues music , a style that originated from blues .
-Andrew Rayel is associated with Christian Burns and the musical artist Jonathan Mendelsohn .
-Andrew Rayel has worked musically with Jonathan Mendelsohn and Mark Sixma .
-Andrew Rayel is associated with the musician Jwaydan Moyine and the musical artist Armin van Buuren .
-New wave music is the origin of Alternative rock , which is the genre of Andrew White .
-Al Anderson of NRBQ performs country music which is a genre of music which uses the banjo .
-Andrew White is a musician signed to the record label Polydor Records which is located in London .
-( 19255 ) 1994 VK8 has an apoapsis of 6603633000 . 0 km and an escape velocity of 0 . 0925 km per sec .
-
-
-The escape velocity of ( 66063 ) 1998 R01 is 0 . 0999 km / sec and its epoch is on the 13th of January 2016 .
-( 66391 ) 1999 KW4 has an orbital period of 16244700 . 0 and an epoch date of 2004 - 07 . 14 .
-The epoch date for 66391 1999 KW4 is 2004 - 07 . 14 and it has a rotation period of 9953 . 28 .
-James craig watson who discovered 101 Helena died of peritonitis .
-The apoapsis measurement of the celestial boy known as 1036 Ganymed is 611961000 . 0 ( kilometres ) and it has an average speed of 16 . 86 km per sec .
-Walter Baade , who was born in the German Empire , discovered 1036 Ganymed .
-1036 Ganymed was discovered by Walter Baade , a German national .
-103 Hera was discovered by James Craig Watson , who later died from peritonitis .
-103 Hera was discovered by the Canadian James Craig Watson .
-Born in Nottingham , N . R . Pogson , discovered 107 Camilla .
-1089 Tama , with the epoch date of November 26th 2005 , was formerly called " A919 HA ; 1927 WB ; " .
-The temperature of 1089 Tama is 179 . 0 ( kelvins ) and its apoapsis is 373513000 . 0 ( kilometres ) .
-1097 Vicia has a periapsis of 279142000000 and an epoch date of 31st December 2006 .
-The temperature of the asteroid called 109 Felicitas is 170 . 0 kelvins and it has an apoapsis of 523329000 . 0 km .
-The epoch date of 109 Felicitas is the 31st December 2006 , and it has a periapsis of 283326000000 . 0 .
-The celestial body known as 109 Felicitas has a rotation period of 47487 . 6 and an epoch date of December 31st 2006 .
-10 Hygiea has an apoapsis of 523951582 . 33968 ( kilometres ) and a temperature of 164 kelvins .
-10 Hygiea has an epoch date of June 27th 2015 and was formerly named A900GA .
-110 Lydia , with a mass of 6 . 7 kilograms , has the epoch date 31st December 2006 .
-The celestial body known as 110 Lydia has an orbital period of 142603000 and an epoch date of 31 December 2006 .
-The A - Rosa Luna which is 125 . 8 metres long , is classed as a Cruise ship .
-The A - Rosa Luna ship which is 125800 . 0 millimetres in length , was ordered on January 22nd 2004 .
-AIDA Cruises is located in Germany and is operated by AIDAstella .
-AIDA Cruises , located in Rostock , are the operator of the ship AIDAluna .
-The AIDAluna has a top speed of 40 . 744 and it 252 metres long .
-The AIDAstella was christened on the 16th of March , 2013 and is 253260 . 0 millimetres long .
-The Diesel - electric transmission ALCO RS - 3 was built by the Montreal Locomotive Works .
-The ALV X - 1 rocket has 2 stages and a diameter of 1 . 524 metres .
-The AMC Matador is available in a 1974 model and was assembled in Kenosha , Wisconsin .
-Richard A . Teague is the Chrysler employee who designed the AMC Matador .
-The ARA Veinticinco de Mayo ( V - 2 ) which is derived from Argentina has a length of 192000 millimetres .
-The Alfa Romeo 164 , assembled in Milan , is a similar means of transport to the Saab 9000 .
-The Alfa Romeo 164 was assembled in Italy and is a similar means of transport to the , Fiat Croma .
-Alfa Romeo 164 is a related transport to Lancia Thema and is assembled in Italy .
-The Alvis Speed 25 was made by Coventry based Alvis Car and Engineering Company .
-The Alvis Speed 25 has an engine of 4387 cubic centimeters and a transmission system comprising a single plate clutch , separate 4 - speed gearbox all - silent and all - syncromesh , centre change lever , open tubular propellor shaft with metal joints and spiral bevel fully floating back axle .
-Alvis Speed 25 has a straight - six engine and has a transmission system comprising a single plate clutch , separate 4 - speed gearbox all - silent and all - syncromesh , centre change lever , open tubular propellor shaft with metal joints and spiral bevel fully floating back axle .
-The AMC Matador is made by American Motors who were succeeded by Eagle .
-The Antares rocket had its maiden flight on January 9th 2014 and was launched from the Mid - Atlantic Regional Spaceport .
-The ARA Veinticinco de Mayo ( V - 2 ) comes from Argentina which is led by Gabriela Michetti .
-The Ariane 5 which was launched at the ELA - 3 , was manufactured by Airbus Defence and Space .
-The Airbus Group is the parent company of Airbus Defence and Space who manufactured the Ariane 5 .
-Aston Martin V8 was made in the UK . The Aston Martin V8 is connected to the Aston Martin RHAM / 1 .
-The Aston Martin V8 was manufactured by Aston Martin and was succeeded by the Aston Martin Virage .
-The Aston Martin V8 ( which was succeeded by the Aston Martin Virage ) and the Aston Martin DBS are a related means of transport .
-Aston Martin Virage succeeded the Aston Martin V8 and is manufactured by Aston Martin .
-The final flight of Atlas II , which has a diameter of 3 . 04m , was on 16 March 1998 .
-The Atlas II , manufactured by Lockheed Martin , was launched from Cape Canaveral Air Force Station .
-Audi which is the manufacturer of the Audi A1 has a division called the Audi e - tron .
-The Audi A1 is made by Audi who also own Ducati .
-The Quattro Gmbh is a subsidiary of the Audi who manufacture the Audi A1 .
-The power type of the AIDAluna is an engine manufactured by Caterpillar Inc where Douglas R Oberhelman is a key person .
-The rocket Antares is comparable to the Delta II which was launched from the Vandenberg Air Force base .
-The icebreaker , the Aleksey Chirikov , is built by Finland , where the leader is Juha Sipila .
-General Dynamics is the parent company of the General Dynamics Electric Boat Co which built the American submarine NR - 1 .
-The A - Rosa Luna is powered by the Rolls - Royce Holdings owned , MTU Friedrichshafen , made engines .
-Aston Martin V8 was assembled in the United Kingdom which is ruled by Queen Elizabeth II .
-Born in Maine , Purple Heart recipient , Aaron S Daggett has fought in battles , the most notable being the Battle of Fredericksburg .
-Born in the Netherlands , Ab Klink attended Erasmus University Rotterdam and belongs to the Christian Democratic Appeal party .
-Abdul Taib Mahmud ' s birthplace was Kingdom of Sarawak and he was succeeded by Abdul Rahman Ya ' Kub whose deputy was Stephen Yong Kuet Tze .
-Abdul Taib Mahmud was born and lives in the Kingdom of Sarawak and is a member of the " Barisan Ra ' ayat Jati Sarawak " party .
-Abdulsalami Abubakar was born in Niger State , graduated from the Technical Institute in Kaduna and became the Chief of the Defence Staff in Nigeria .
-Nigerian Air Force member Abdulsalami Akubar was succeeded by Olusegun Obasanjo who was in office whilst Atiku Akubakar was Vice President .
-Olusegun Obasanjo , who was in office while Atiku Abubakar was Vice President , succeeded Nigerian Army man Abdulsalami Abubakar .
-Abel Caballero , born in Ponteareas , Galicia , Spain , worked as a Member of the Congress of Deputies .
-Abel Caballero was born in Galicia in Spain and is a member of the Spanish Socialist Workers ' Party .
-Abner W . Sibal served in the United States Army and fought in WWII . Joseph Stalin was a commander in that war .
-Born in Ridgewood , Queens , Abner W . Sibal , was a member of both the Connecticut Senate from the 26th District , and the Republican party of the United States .
-During the Gulf war George H W Bush was a commander and Adam Holloway was involved in the battles whilst serving in the Grenadier guards .
-Magdalene College Cambridge , was the alma mater of Adam Holloway , who was born in Faversham , and is a member of the Tories .
-Leon Trotsky was a commander in the Polish Soviet war in which Adam Koc was also involved . Koc was born in Congress , Poland .
-Leon Trotsky was a commander in the Polish - Soviet war , part of the Russian Civil War military conflict in which Adam Koc was involved .
-Born in Athens , Greece , Adonis Georgiadis , worked as the Deputy Parliamentary Spokesman of Popular Orthodox Rally .
-Adonis Georgiadis , born in Athens , Greece , worked as the Minister for Health .
-Adonis Georgiadis was a member of the New Democracy party in Greece whose color is blue . Mr . Georgiadis was in office while Antonis Samaras was Prime Minister .
-Agnes Kant is a national of the Netherlands and worked at the House of Representatives , where the leader is Mark Rutte .
-Agnes Kant is a member of the Socialist Party in the Netherlands whose leader is Mark Rutte .
-Agnes Kant was born in West Germany . She was a Member of the House of Representatives and her Alma mater was Radboud University in Nijmegen .
-Airey Neave participated in World War II and his career lasted from 30 June 1953 to 30 March 1979 .
-Airey Neave , began his career on March 4th 1974 , fought in World War II and ended his career on 30th March 1979 .
-Born on 22nd September 1856 , Albert B White , died on the 3rd July 1941 .
-William M . O . Dawson succeeded Albert B . White , whose spouse was Agnes Ward White , who was born in Marietta , Ohio .
-Albert Jennings Fountain was born in Staten Island and he died in the U . S . African Americans live in the United States .
-Albert Jennings Fountain was born in Staten Island , New York City and died in New Mexico Territory .
-Albert Jennings Fountain was born in Staten Island , New York and also died in the US .
-Alberto Teisaire died in Buenos Aires , the country which is governed by the Buenos Aires City Legislature and the leader is , Horacio Rodríguez Larreta .
-Alberto Teisaire was born in Mendoza in Argentina and was a Rear Admiral who was succeeded by Isaac Rojas .
-Alfons Gorbach was born in the County of Tyrol in Austria and later died in Graz .
-Alfred N . Phillips was a Member of the U . S . House of Representatives from Connecticut ' s 4th district who was born in Connecticut and succeeded by Albert E Austin .
-Born in Darien Connecticut , Alfred N Phillips , worked as Member of the U . S . House of Representatives from Connecticut ' s 4th district and was succeeded by , Albert E . Austin .
-Allan Shivers served in the U . S . Democratic Party , was a member of the Texas State Senate District 4 for Port Arthur and was succeeded by Wilfred R . Cousins , Jr .
-Alvah Sabin , who retired on 3rd March 1857 , represented Vermont , where the largest city is Burlington .
-Alvah Sabin , who was born on October 23rd , 1793 , was a member of the Whig Party of the United States which was led by Henry Clay .
-Alvah Sabin was born in Georgia Vermont and became a member of the Whig Party of the United States which is led by Daniel Webster .
-Abraham Lincoln was a commander in the American Civil War , where US born Albert Jennings Fountain fought .
-Alfred Moore Scales was in the American Civil War , Battle of Fredericksburg . Jefferson Davis was an American Civil War commander .
-Alfons Gorbach , was born in the County of Tyrol and died in Austria , the leader of which , is Doris Bures .
-Alfons Gorbach was born in the state of Tyrol and died in Austria , where the leader is Doris Bures .
-Doris Bures is the leader of Austria where Alfons Gorbach died in Styria .
-Robert E Lee was a commander in the Battle of Salem Church , which was one of the military conflicts in the American Civil War . Aaron S Daggett fought in the same battle .
-Born in Stellendam , Ab Klink is a national of the Netherlands where the Euro is the currency .
-The Polish language is used in Poland , where Adam koc was from . Poland has an ethnic group called Kashubians .
-19255 1994 VK8 has a mass of 5 . 6kg and an escape velocity of 0 . 0925 kilometres per second . Its apoapsis is 6603633000 . 0 km .
-( 410777 ) 2009 FD , which was discovered by Spacewatch , has an orbital period of 39447000 . 0 and a periapsis of 88234300000 . 0 .
-With an apoapsis of 254989570 . 60815 kilometres , ( 66063 ) 1998 RO1 , has a minimum temperature of - 71 . 0 degrees Celsius and a maximum temperature of 500 . 0 kelvins .
-Having a density of 2 . 0 gm per cu cm , ( 66391 ) 1999 KW4 , has an apoapsis of 162164091 . 8388 kilometres , an the average speed of 37 . 16 km per sec .
-
-1001 Gaussia , which was formerly called " 1923 OAA907 XC " , has an epoch date of 31 July 2016 and a periapsis of 419113394 . 55312 kilometres .
-101 Helena ; has a mass of 3 . 0 kgs , an escape velocity of 0 . 0348 kilometres per second , and an apoapsis of 441092000 . 0 kilometres .
-Walter Baade , a German national who graduated from the University of Gottingen , discovered 1036 Ganymed .
-James Craig Watson was the discoverer of 103 Hera , the epoch of which is on the 31st of July 2016 . He died in Madison , Wisconsin .
-103 Hera was discovered by James Craig Watson . He died in Madison , Wisconsin of peritonitis .
-103 Hera has the epoch of 27 August 2011 . It has an orbital period of 1622 . 213 days and an apoapsis of 437170000 . 0 ( kilometres ) .
-The celestial body known as 103 Hera has a temperature of 170 kelvins . It has has an escape velocity of 0 . 0482 kilometres per second and an apoapsis of 437170000 . 0 kilometres .
-NR Pogson was an English National who was born in Nottingham and discovered 107 Camilla .
-The 1089 Tama ( formally known as A894 VA ; A904 VD ) has an orbital period of 1202 . 846 days and an epoch date of the 26th November 2005 .
-1089 Tama , with the epoch date November 26th 2005 , has a periapsis of 288749000000 . 0 . and an apoapsis of 373513000 . 0 kilometres .
-
-Weighing 7 . 5kgs , 109 Felicitas , has an epoch date of December 31st 2006 , and its orbital period is , 139705000 . 0 .
-109 Felicitas has an epoch date of December 31st 2006 . Its orbital period is is 139705000 . 0 and its apoapsis is 523329000 . 0 ( kilometres ) .
-10 Hygiea ; has an average speed of 16 . 76 kilometres per second , an apoapsis of 523951582 . 33968 kilometre and takes 5 . 57 days to orbit .
-The celestial body known as 10 Hygiea , has a surface area of 837080 . 744 square km and an average speed of 16 . 76 km per secs . 10 Hygiea has an apoapsis of 523951582 . 33968 kilometres .
-The celestial body known as 10 Hygiea has a surface area of 837080 . 744 square km . It has an apoapsis of 523951582 . 33968 kilometres and a temperature of 164 Kelvins .
-110 Lydia has a mass of 6 . 7 kg , a periapsis of 377016000000 . 0 , and has an epoch date of December 31st , 2006 .
-110 Lydia , with the epoch date December 31st 2006 , has an apoapsis of 440756000 . 0 km and a periapsis measurement of 377016000000 . 0 .
-Aaron Bertram plays for the Suburban Legends pop music band . He is an artist with the band Kids Imagine Nation .
-From Indiana ( United States ) , Aaron Deer ' s musical genre is , indie rock .
-American , Aaron Deer , whose genre is Psychedelia , is from Indiana .
-Aaron Turner ' s music genre is Black Metal and he played with the Twilight band . He is also associated with the Greymachine band .
-Aaron Turner ; played with the band Twilight , is part of the drone music genre and is associated with the group Greymachine .
-Aaron Turner ; performs ambient music , played with the band Twilight and performs for Mamiffer .
-Death metal is a musical fusion of black metal , the music played by electric guitarist , Aaron Turner .
-Aaron Turner is a singer and Black metal musician . Death metal is a musical fusion of black metal .
-Born on 12th November , 1978 , Abradab , played with the band Kaliber 44 and is associated with the rapper , Magik .
-Abradab comes from Katowice and plays for the Kaliber 44 band . He plays with rapper , Magik .
-The musical genre of Ace Wilder is hip hop music . Hip Hop music originates from Funk and has its stylistic origins in disco .
-Agustín Barboza was born in Asunción , Paraguay . The leader of Paraguay is Juan Afara .
-Al Anderson is a singer who plays with the band NRBQ . His genre is rock music .
-Alan Frew is a performer of rock music which originated from country music . A musical fusion of rock music is bhangra music .
-Albennie Jones is a Jazz musician . Jazz comes from Blues music and the Afrobeat is a fusion genre of that music .
-Albennie Jones was born in Errata Mississippi and his musical genre is rhythm and blues which is where Disco derives .
-Aleksandra Kovač is associated with the musical artist Bebi Dol , is part of the band K2 ( Kovac sisters duo ) , and musical genre is Pop .
-Aleksandra Kovač , a performer of pop music , is associated with the musical artists Bebi Dol and Kornelije Kovač .
-Rhythm and Blues artist Aleksandra Kovač is a member of sister duo , K2 , with musician Kristina Kovač .
-The musical genre of Alex Day is Synthpop , a form of pop music which originated from Disco .
-Born in Manchester , England , Alfred Garth Jones , died in Sidcup .
-Alfred Garth Jones , born in England in the U . K . , died in London .
-Alfred Garth Jones , was born in Manchester , in the United Kingdom and died in London .
-Alfred Garth Jones was born in Manchester and died in Sidcup . The majority in Manchester is the Labour Party .
-Alfred Garth Jones died in Sidcup , London . Boris Johnson is a leader in the city .
-Irish Folk musician Alison O ' Donnell is part of the Flibbertigibbet band and formerly of Mellow Candle .
-Folk music is the genre of Alison O ' Donnell , who was in the bands Mellow Candle and the Flibbertigibbet band .
-Alison O ' Donnell is a jazz ( funk is a derivative of Jazz ) performer who sings , plays percussion , autoharp and bodhan .
-Funk is a derivative of Jazz , the music Alison O ' Donnell performs . Alison O ' Donnell recorded on the record label , Static Caravan Recordings .
-Allen Forrest ( Dothan , Alabama ) is a solo singer and an exponent of Pop music .
-Allen Forrest , born in Dothan , Alabama , performs rhythm and blues . He was originally a solo singer .
-Musician Andrew White ' s genre is alternative rock which originated from new wave music . Nu metal is a music fusion genre of alternative rock .
-Anders Osborne is associated with the musical artists Billy Iuso and Kirk Joseph and also associated with Tab Benoit .
-Anders Osborne ’ s musical genre is rock music and record label is Rabadash Records . The music Bhangra is part of the fusion genre , partly coming from Rock music .
-Andra is a singer and her music genre is Dance - pop . She is associated with the band CRBL and with the singer Puya .
-Rhythm and blues singer Andra is associated with musicians Marius Moga and Andreea Balan .
-Andra began her career as a solo singer and is a rhythm and blues singer . Disco derives from rhythm and blues .
-The musical genre of Andrew Rayel is trance music . He is associated with the musical artists Jonathan Mendelsohn and Christian Burns .
-Andrew Rayel , of the music genre trance music , is associated with the musical artists Jonathan Mendelsohn and Bobina .
-Musicians Andrew Rayel and Christian Burns are associates and while the latter plays house music , the former is associated with musician Jwaydan Moyine .
-Andrew white was once a member of Kaiser Chiefs and is associated with Marry Banilow . His record label is the now defunct Universal Records .
-Aaron Bertram plays for the Suburban Legends band and performs ska punk music , which has its origins in Ska .
-Albennie Jones was born in Errata , Mississippi , United States , where African Americans are one of the ethnic groups .
-The 1955 Dodge , also named the Dodge Coronet , has a 3 - speed automatic transmission and a V8 engine .
-A - Rosa - Luna , a cruise ship 125800 . 0 millimetres in length , was ordered on January 22 , 2004 .
-A - Rosa Luna has a ship displacement of 1850 tonnes and a top speed of 24 km / h . Its length is 125 . 8 metres .
-The AIDAstella is owned by Cost Crociere and it ' s operator is German based AIDA Cruises .
-The AIDAstella was christened on the 16th of March , 2013 , put in service on March 17 , 2013 , and is 253260 . 0 millimetres in length .
-The ALCO RS - 3 has a four - stroke engine , a length of 17068 . 8 millimetres and was built by the American Locomotive Company .
-The ALCO RS - 3 was built by the American Locomotive Company . It is 17068 . 8mm long and has a V12 engine .
-The American Locomotive Company , founded in Schenectady , New York , were the builders of the ALCO RS - 3 , which has a length of 17068 . 8 mm .
-ALVX - 1 comes from the US where Americans live and African Americans are an ethnic group .
-The ALV X - 1 originated in the United States , a country whose capital is Washington DC and has Native Americans as an ethnic group .
-The ALV X - 1 rocket which has a diameter of 1 . 524 meters and has 2 stages was launched one .
-The Abarth 1000 GT Coupé , with its straight four engine , completed production in 1958 .
-The Abarth 1000 Gt Coupe is a 2 door coupe which is 1 . 55m wide with a wheelbase of 2160mm .
-The icebreaker Aleksey Chirikov which has a ship beam of 21 . 2 , was built at the Arctech Helsinki Shipyard , in Helsinki .
-Alfa Romeo 164 , asembled in Italy ( capital : Rome ) , is a related mode of transportation as the Fiat Croma .
-The Lancia Thema and the Alfa Romeo 164 are related . The latter is built in Italy where the capital is Rome .
-The Arese assembled , Alfa Romeo 164 and the Fiat Croma as well as the Lancia Thema , are related types of transportation .
-The Alfa Romeo 164 , made in Milan , along with the Fiat Croma and the Saab 9000 are related cars .
-The Alhambra has a ship beam of 8 . 3m , is 63800 . 0 millimetres long , and was launched on 1855 - 05 - 31 .
-The Alhambra , which was wrecked , had a ship beam of 8 . 3 metres and was launched on 31 May 1855 .
-Alvis Car and Engineering Company was founded in Coventry and made the Alvis Speed 25 . Alvis Speed 25 has a petrol engine .
-The AMC Matador is made by American Motors who has a key person called Roy D Chapin . The AMC was succeeded by the Eagle Co .
-The Antares rocket , manufactured at the Yuzhnoye Design Office , is relative to the United States based , Delta II .
-The Antares rocket function is a medium expendable launch system manufactured at the Yuzhnoye Design Office and launched at the Mid - Atlantic Regional Spaceport Launch Pad 0 .
-Arianespace is the manufacturer of Ariane 5 which was launched from ELA - 3 at the Guiana Space Centre .
-The Aston Martin V8 assembly took place in Newport Pagnell , Buckinghamshire , England , United Kingdom . The Aston Martin V8 ( has a engine volume of 5 . 3 litres ) and the Aston Martin DBS are related means of transport .
-The Aston Martin V8 and the Aston Martin DBS are related means of transport . The V8 model is assembled in the United kingdom with a 5 . 3 litre engine .
-The US Atlas II was launched from Vandenberg Air Force Base and Cape Canaveral .
-The Atlas II originated from the United States , where Native Americans are an ethnic group . The leader of the United States has the title President of the United States .
-Originating from the U . S , the Atlas II was launched from the Spaceport Florida Launch Complex 36 , from the Cape Canaveral Air Force Station .
-The Audi A1 , a hatchback , has a 1 . 2 liter engine and is assembled by Audi Brussels .
-Audi ' s A1 is simiilar to the Seat Ibiza and the VW Polo .
-Caterpillar Inc . , founded in California and located in Peoria , Illinois , powers the AIDAluna .
-Caterpillar Inc . is found in Illinois and they powered the AIDAluna . AIDACruises owns the AIDAluna .
-The ship AIDAstella is operated by AIDA Cruises which is owned by Costa Crociere is in Genoa .
-The rocket Antares is comparable to the American , Delta II . The launch site of the Delta II was at the Vandenberg AFB Space Launch Complex 2 .
-The Ariane 5 was launched at ELA - 3 at the Guiana Space Centre . The Guiana Space Centre has its headquarters in French Guiana .
-The launch site of the Ariane was ELA - 3 at the Guiana Space Centre at Kourou , French Guiana .
-The builder of the A - Rosa is Neptun Werft , which headquartered in Rostock , Germany .
-The Atlas II originated from the U . S , where Americans live and one of the ethnic groups is African Americans .
-Aaron Hunt represented the club Goslarer SC 08 at youth level and has since played for both SV Werder Bremen and Vfl Wolfsburg .
-Aaron Hunt plays for the club SV Werder Bremen II and also VfL Wolfsburg which is managed by Dieter Hecking .
-Abel Hernandez is a member of the Central Espanol youth team and he plays for Hull City AFC but his club is US Citta di Palermo .
-Abel Hernández played football at youth level for Central Español . At senior level he has played for US Citta di Palermo and Penarol .
-Adam Maher was born in the Netherlands and his clubs are PSV Eindhoven and AZ Alkmaar .
-Akeem Adams played for W Connection F . C . and is a member of the United Petrotrin F . C . club . which play in Palo Seco .
-Akeem Ayers , whose former team was the Los Angeles Rams , was in draft round 2 and his draft pick number was 39 .
-Akeem Ayers , who formerly played for St Louis Rams , was number 39 in the draft pick and in draft round 2 .
-Akeem Dent , who was born on 27 September 1987 in Atlanta , Georgia , made his debut with the Atlanta Falcons .
-Iraqi born , Alaa Abdul - Zahra , whose club is Shabab Al - Ordon Club , plays for the Iraq national under 20 football team .
-Alaa Abdul - Zahra ' s clubs are Shabab Al - Ordon and also Al Kharaitiyat SC whose ground is Al Khor .
-Born on 1 January 1989 , Alan Martin currently plays for Hamilton Academical FC , having previously played with Clyde FC .
-Alan Martin ' s football club is Motherwell FC and he has also played for the Accrington based club Accrington Stanley .
-Born September 2 , 1995 , Aleksander Barkov Jr of Tampere , Finland , played for the Florida Panthers .
-Aleksander Barkov Jr was born in Tampere , Finland on Sept . 2 , 1995 and his draft team is the Florida Panthers .
-Aleksandr Chumakov was born in the Soviet Union and died there in Russia . The leader of Russia is Vladimir Putin .
-Born on 24th February 1989 , Aleksandr Prudnikov , plays for both , FC Alania Vladikavkaz and FC Kuban Krasnodar club .
-Aleksandr Prudnikov , whose club is FC Tom Tomsk , was born on 24th February 1989 and has played for the Russia national football B team .
-AZAL PFK player , Aleksandre Guruli , played for the Olympique Lyonnais club , the home ground of which , is the Parc Olympique Lyonnais stadium .
-Aleksandre Guruli , whose club is US Lesquin , played for the Olympique Lyonnais club who have their home ground at Parc Olympique Lyonnais stadium .
-Footballer Alessio Romagnoli , who represented Italy at Under 16 level , plays for C Milan , where the manager is Siniša Mihajlović .
-Alessio Romagnoli , who is connected to UC Sampdoria , plays for A . C . Milan which , is managed by , Siniša Mihajlović .
-Alessio Romagnoli plays for A . S . Roma and he use to play for the Italian national under 16 football team , which is coached by Daniele Zoratto .
-Alessio Romagnoli played for the club U . C . Sampdoria , and is a member of club Italy national under 17 ' s . He was born in Italy .
-Alex Plante was born in Brandon , Manitoba and is 1 . 9304 m tall . He plays for the Anyang Halla club .
-Born in Canada , Alex Plante is 1 . 9304 metres tall and has played for the club Anyang Halla .
-Alex Tyus plays for Maccabi Ashdod B . C . in the Euroleague . The coach of the Ashdod team is Zvi Sherf .
-Alex Tyus plays for Maccabi Ashdod B . C who are coached by Zvi Sherf and are part of the Turkish Basketball Super League .
-Aleksandr Prudnikov plays for FC Tom Tomsk and his club is FC Spartak Moscow , who have their home ground at the Otkrytiye Arena .
-Otkrytiye Arena is the home ground of FC Spartak Moscow , where Aleksandr Prudnikov played youth football . He later represented FC Anzhi Makhachkala .
-Aleksandr Chumakov plays for FC Torpedo Moscow who are managed by Valery Petrakov and played in the 2014 - 15 Russian Premier league .
-Abel Hernández plays for the Uruguay Olympic football team and his club is Hull City A . F . C . which is managed by Steve Bruce .
-Aleksandr Chumakov was born in Moscow and died in Russia . Sergey Sobyanin is Moscow ' s leader .
-Abner plays football for the Brazilian national under 20 football team and also for Real Madrid Castilla who are managed by Luis Miguel Ramis .
-Footballer , Abner plays for the club , Real Madrid Castilla and belongs to C . D . FAS club . Luis Miguel Ramis manages the Real Madrid Castilla .
-Alex Tyus was born in St Louis , ( part of greater St . Louis ) , where Francis G . Slay is the leader .
-Akeem Ayers , whose former team is the New England Patriots , made his debut with the American football team Tennessee Titans based in the city of Nashville .
-Akeem Adams , who plays for the Trinidad and Tobago national under - 20 football team previously played for United Petrotin FC whose ground is at Palo Seco .
-Alexander Nouri is the manager of SV Werder Bremen , which Aaron Hunt plays for . He also plays for , SV Werder Bremen II which is in the league 3 Liga .
-Abel Hernandez , who played for Penarol , was a member of the Central Espanol youth team . Abel Hernández ' s club is Hull City A . F . C . which is managed by , Steve Bruce .
-Abel Hernández was a member of youth club Peñarol , managed by , Jorge Orosmán da Silva . Abel Hernandezalso played for the Central Espanol club and now his club is US Citta di Palermo .
-When he was younger , Abel Hernández played for Peñarol . He now plays for US Citta di Palermo in the Serie A . League and managed by Giuseppe Iachini .
-Adam McQuaid was born October 12th 1986 on Prince Edward Island . He weighs 94 . 8024 kilograms .
-Don Sweeney is general manager for the Boston Bruins , the team Adam McQuaid played for . McQuaid was drafted to the Columbus Blue Jackets , from Columbus , Ohio .
-Akeem Ayers ; was born on 10th July 1989 , made his debut for the Tennessee Titans and used to play for the St . Louis Rams .
-Akeem Dent was born in Atlanta , Georgia on 27th September 1987 and played for the Houston Texans .
-Akeem Dent , born September 27 , 1987 in Atlanta , Georgia , on the Atlanta Falcons . He also played for the Houston Texans formerly .
-Alaa Abdul Zahra , whose club is Al - Zawra ' a SC , is also a member of the club , AL Kharaitiyat SC Amar Osim is the manager of Al Kharaitiyat SC . which is located in Al Khor .
-Alaa Abdul Zahra plays for Al Kharaitiyat SC , in Al Khor , and for the Iraq national under 23 football team . Al Kharaitiyat SC is managed by Amar Osim .
-Alaa Abdul - Zahra , whose club is Shabab Al - Ordon Club , also plays for Al Kharaitiyat SC . which is located in Al Khor . The manager of Al Kharaitiyat SC is Amar Osim .
-Footballer , Alan Martin , was born on the 1st January 1989 . He is 185 . 42 cm tall and plays for both the Hamilton Academical FC and Crewe Alexandra FC .
-Alan martin , was born on the 1st January 1989 . He is 185 . 42 cm tall , a footballer for the Crewe Alexandra FC and plays in the Scottish National under 21 football team .
-Born on Feb . 24 , 1989 and measuring 185 cm tall , Aleksandr Prudnikov plays for the FC Kuban Krasnodar and is part of the Dynamo Moscow FC .
-Aleksandr Prudnikov was born on 24 - 02 - 1989 , he is now 185cm tall . His club is FC Spartak Moscow but he currently plays for FC Rubin Kazan .
-Aleksandre Guruli was born in Batumi and he is 1 . 78m tall . He has played for FC Karpaty Lviv and FC Zestafoni .
-Alex Plante , who played for Anyang Halla , was born on 1989 - 05 - 09 , in Canada .
-1 . 9304m tall Alex Plante , whose club is Anyang Halla , was born in Canada , in 1989 .
-Aaron Boogaard ' s birthplace is Canada . The country , where one of the languages spoken is Inuktitut . It is also where O Canada is the national anthem and the leader is Elizabeth II .
-The anthem of Canada is O Canada , the leader is Elizabeth II , one of the ethic groups in Canada are the Asian Canadians and it is the birthplace of Aaron Boogaard .
-Elizabeth II is Canada ' s leader and the national anthem is " O Canada " . It is home to Aaron Boogaard and the Slavey language is spoken .
-Aleksandr Prudnikov , who plays for FC Kuban Krasnodar , also plays for FC Terek Grozny . Rashid Rakhimov is the manager of FC Terek Grozny , the ground of which , is located in Grozny .
-FC Torpedo Moscow who are managed by Aleksandr Chumakov and whose chairman is Aleksandr Tukmanov , played the 2014 – 15 season in the Russian Premier League . Aleksandr Chumakov has played for the club .
-Akeem Dent ' s first team were the Atlanta Falcons and his former team are the Houston Texans , which are based in the city of Houston and play in Texas .
-Abel Hernández was a member of youth club Peñarol , that play in the Uruguayan Primera División league . His current club is Hull City A . F . C . which is managed by , Steve Bruce .
-
-( 66063 ) 1998 RO1 had its epoch date on 2013 - 11 - 04 and has an orbital period of 360 . 29 days . It has an escape velocity of 0 . 0999 km / s and its apoapsis is 254989570 . 60815 kilometres .
-The mean temperature of ( 66063 ) 1998 RO1 is 265 . 0 kelvins and its apoapsis is 254989570 . 60815 kilometres . It has an epoch date of 4 November 2013 and an orbital period of 360 . 29 days .
-The epoch of 1000 Piazzia is 2015 - 06 - 27 . It has an escape velocity of 0 . 0252 km / sec , a periapsis of 352497000000 . 0 and an orbital period of 488160 . 0 .
-1923 OAA907 XC is the original name of 1001 Gaussia , which was discovered by Sergey Belyavsky and has an epoch date of June 27th 2015 . Its periapsis measures 419113394 . 55312 kilometres .
-1036 Ganymed was discovered by Walter Baade whose alma mater was the University of Gottingen . He had a doctoral student named Allan Sandage . Mr . Baade was born in Germany .
-1036 Ganymed was discovered by Walter Baade . Baade was born in Preußisch Oldendorf and attended the University of Gottingen where one of his doctoral students was Halton Arp .
-Walter Baade , who had a doctoral student named Halton Arp , discovered 1036 Ganymed . He had graduated from the University of Gottingen and later died in West Germany .
-James Craig Watson was the discoverer of 103 Hera . His Alma mater is the University of Michigan and he died in Madison , Wisconsin of peritonitis .
-Canadian James Craig Watson , who dies in Madison , Wisconsin , was the discoverer of 103 Hera , which has an apoapsis of 437170000 . 0 ( kilometres ) .
-James Craig Watson of Canada passed in Madison , Wisconsin from peritonitis . He was the discoverer of 103 Hera .
-N . R . Pogson discovered 107 Camilla which has a periapsis of 479 , 343 , 000 kilometres . Pogson was born in Nottingham and died in Chennai .
-107 Camilla was discovered by N . R . Pogson , who was born in Nottingham and died in Chennai . It was discovered on 1 March 2001 .
-1089 Tama ( previously called A894 VA ; A904 VD ) ; has an orbital period of 1202 . 846 days , a periapsis of 288749000000 . 0 , and the epoch date , 2005 - 11 - 26 .
-1089 Tama , with the epoch date November 26th 2011 , has an escape velocity of 0 . 0068 kmps . It orbital period is 1202 . 846 days and it has an apoapsis of 373513000 . 0 ( kilometres ) .
-1097 Vicia , with the epoch date December 31st 2006 , has a mass of 98 kgs , an apoapsis of 511592000 . 0 km and an orbital period of 135589000 . 0 .
-109 Felicitas has an orbital period of 139705000 . 0 and a periapsis of 283326000000 . 0 . Its epoch date is 31 December 2006 , and it has an escape velocity of 0 . 0473 kilometres per second .
-10 Hygiea was formerly known as A900 GA and has an epoch date of 27 June 2015 . The orbital period is 5 . 57 days and the periapsis measurement is 416136000000 . 0 .
-The celestial body known as 1101 Clematis has the epoch date of 31 July 2016 and an apoapsis of 520906000 . 0 ( kilometres ) . It has an orbital period of 183309000 . 0 and an escape velocity of 0 . 02 kmps .
-1101 Clematis , formerly known as " 1928 SJ " , has an orbital period of 183309000 . 0 and a periapsis of 445895000000 . Its epoch date is December 31st 2006 .
-1101 Clematis ' s escape velocity is 0 . 02 km / s , prbital period of 183309000 , periapsis of 445895000000 , and an epoch on the 31st of December .
-The 1955 Dodge is manufactured by Dodge and it has a V8 engine . It has a wheelbase of 120 inches and has a 3 speed automatic transmission .
-The 1955 Dodge is related to the Chrysler Newport and the DeSoto Custom which was made by DeSoto and succeeded by the DeSoto Firedome .
-Located at Rostock , AIDA Cruises operate AIDAstella ship which was built by Meyer Werft and owned by Costa Crociere .
-AIDAstella is 253260 . 0 millimetres long and was built by Meyer Werft . It is owned by Costa Crociere and operated by AIDA Cruises .
-The ALCO RS - 3 , built by the American Locomotive Company , has a diesel - electric , V12 engine and was produced from May 1950 to August 1956 .
-The ALCO RS - 3 has a V12 engine and a length of 17068 . 8 millimetres . It was produced between May 1950 and August 1956 by the American Locomotive Company .
-The ALCO RS - 3 was made in the U . S . in Schenectady , N . Y . by the American Locomotive Co . The ALCO RS - 3 is 17068 . 8 millimetres long .
-The ALCO RS - 3 was built by the Montreal Locomotive Works and produced between May 1950 and August 1956 . It has a V12 engine and a diesel - electric transmission .
-The ALCO RS - 3 was built by the Montreal Locomotive Works and produced between May 1950 and August 1956 . It has 12 cylinders and a four - stroke engine .
-The AMC Matador which is assembled in Mexico City is also known as the American Motors Matador . It is in the style of a station wagon and has an AMC V8 engine .
-The AMC Matador ( alternative name , VAM Classic ) was assembled in Kenosha , Wisconsin . It is classed as a mid - size car and it has an AMC straight - 6 engine .
-The Acura TLX is classed as a mid - size car , with a Honda K engine and front - wheel and all - wheel drive . It is assembled in Marysville , Ohio .
-The Acura TLX is a luxury vehicle with a V6 front engine design . It is assembled at the Marysville Auto Plant .
-The Finnish built Aleksey Chirikov is an icebreaker and currently in service . It was built by the Archtech Helsinki Shipyard and has a ship beam of 21 . 2m .
-The icebreaker Aleksey Chirikov was built in Helsinki , Finland . Finland is led by Juha Sipila and the demonym is Finns .
-The icebreaker Aleksey Chirikov was built in Helsinki by the Arctech Helsinki Shipyard It has a 21 . 2 m long shipbeam and is in service .
-The Alfa Romeo 164 is related to the Lancia Thema and the to the Saab 9000 and in that they are both cars . The Alfa Romeo 164 has a Straight four engine and was assembled in Italy .
-The Fiat Croma , Saab 9000 and Alfa Romeo 164 are all cars and therefore are related forms of transportation . The Alfa Romeo 164 , has a V6 engine and its assembly line is in Italy .
-The Alhambra has a ship beam of 8 . 3m and is 63800 . 0 millimetres long . It was launched on 1855 - 05 - 31 and had wrecked .
-The Alvis Speed 25 , which has a petrol engine , was manufactured by the Alvis Car and Engineering Company . The company was founded in Coventry and succeeded by the Rover Co . .
-The Alvis Speed 25 , with its straight - six engine , was made by Coventry area , Alvis Car and Engineering Company , which was succeeded by the Rover Company .
-American Motors was succeeded by Eagle and acquired by Chrysler , it includes figure Roy D . Chapin Jr . The AMC Matador is made by American Motors .
-General Dynamics Electric Boat is the builder of the American submarine NR - 1 and it was launched on January 25th 1969 . It ' s top speed is 8 . 334 and it has a ship beam of 3 . 8 m .
-The American submarine NR - 1 , which was launched on The 25th of January 1969 , has a top speed of 9 . 334 km / hr , a ship beam of 3 . 8m and a length of 45000 . 0 mms .
-The Antares rocket was made by the Yuzhnoye Design Office and launched from the Mid - Atlantic Regional Spaceport Launch Pad 0 . It ' s maiden flight was on 21 April 2013 and the final flight on 28 October 2014 .
-
-Aston Martin V8 was made by Aston Martin in the UK whose capital is London . The Martin was succeeded by the Aston Martin Virage .
-The Aston Martin RHAM / 1 , Aston Martin V8 and Aston Martin DBS are a related means of transport . It is assembled in the United Kingdom and has a 5 . 3 litre engine .
-The Aston Martin V8 , manufactured by Aston Martin , has a 5 . 3 litre engine and was succeeded by the Aston Martin Virage . The Aston Martin V8 and Aston Martin DBS are a related means of transport .
-The Atlas II , which is 3 . 04m in diameter , has been launched from Cape Canaveral Air Force Station and Vandenberg Air Force Base . Its final flight was December 5 , 2002 .
-Audi A1 belongs to the supermini class and is assembled at Audi Brussels . It has a 1 . 2 litre engine and a front engine , front - wheel drive layout .
-August Horch founded Audi , which makes the Audi A1 . Audi e - tron is a division of Audi and the company Ducati is owned by them .
-Caterpillar Inc was founded in California and is located in Illinois . It powers the AIDAluna which is owned by AIDA Cruises .
-The AIDAstella was built by Meyer Werft and is operated by AIDA Cruise Line . The AIDAstella is owned by Costa Crociere , who are located in Genoa .
-The Delta II originated in the United States and launched from the Cape Canaveral Air Force Station . It is similar to the Antares rocket which launched from the Mid - Atlantic Regional Spaceport Launch Pad 0 .
-Launched at Cape Canaveral Air Force Station and the Vandenberg AFB Space Launch Complex 2 was the Delta II US rocket . The Antares rocket is similar to the Delta .
-The Alfa Romeo 164 is a sedan that is assembled in Italy . It is a similar means of transport to the Fiat Croma and also related to the Opel Vectra .
-The Alfa Romeo 164 , Opel Vectra and Fiat Croma are similar means of transport . The Alfa Romeo 164 is a sedan which was assembled in Milan .
-General Dynamics is the parent company of the General Dynamics Electric Boat Co . out of Groton , CT . The GD Electric Boat Co built the American sub called NR - 1 which has a 3 . 8 m beam .
-Neptun Werft built the A - Rosa Luna at Rostock Germany where Stanislaw Tillich is leader .
-The Atlas II is from the United States , where African Americans are among the ethnic groups . Washington D . C . is the capital city of the United States and English is spoken there .
-Americans live in the U . S . whose capital is Washington , D . C . and an ethnic group there is known as African Americans . The Atlas II comes from the U . S .
-Aaron Bertram plays for the Kids Imagine Nation band and his musical genre is Ska punk . He also plays for the Suburban Legends band in which Brian Robertson plays the trombone .
-Coming from Indianapolis , Indiana , Aaron Deer , has a background as a solo singer and performs Psychedelia music .
-Aaron Turner , a singer who performs electroacoustic music , is with the band Isis and has performed with the group Sumac .
-Aaron Turner played with Twilight and Old Man Gloom bands . He started performing Post metal in 1995 .
-Aaron Turner plays electric guitar and his genre is Black Metal music in which Death metal is a fusion . He performed with the band Sumac .
-Ace Wilder was born on July 23 , 1982 in Stockholm . He is a solo singer .
-Singer Ace Wilder was born July 23 , 1982 in Sweden .
-Solo singer Ace Wilder was born in Stockholm in 1982 . He is also a songwriter .
-Born in 1982 in Sweden , Ace Wilder is a solo singer and songwriter .
-Ahmet Ertegun originates from Washington D . C , United States . He started out as a non performing personnel in the rhythm and blues .
-Ahmet Ertegun is from the United States , where African Americans are an ethnic group . His genre is Rock and roll , which has its stylistic origin in the Blues .
-Ending his career in 1950 , Albennie Jones was a performer of rhythm and blues . This genre originated from the blues and has disco as a derivative .
-Albennie Jones performs jazz music which originated its style from Blues music . Albennie Jones was born in the U . S . A , where on of the ethnic groups , is African Americans .
-Pop musician and solo singer Aleksandra Kovač was born 1972 , in Belgrade .
-Born in the Socialist Republic of Serbia ( 1972 ) , Aleksandra Kovac , a solo singer , is an exponent of Rhythm and blues .
-Acoustic musician Alex Day began in 2006 and is associated with the Chameleon Circuit and Charlie McDonnell .
-Alex Day performs electronic music and plays with the band Chameleon Circuit . His active musical years started in 2006 and he is associated with the musical artist , Charlie McDonnell .
-Alfred Garth Jones was born in 1872 in Manchester , England and died in London .
-Alfredo Zitarrosa died in Montevideo , Uruguay . The city ' s leader is Daniel Martinez and the country ' s inhabitants are known as Uruguayans .
-With a background as a solo singer , Uruguay born Alfredo Zitarrosa was signed to the RCA Records label and performed in the musical genre of Candombe .
-Folk musician , Alison O ' Donnell ; started performing in 1963 , was with the band Bajik and was a member of the Flibbertigibbet band .
-Alison O ' Donnell began performing folk music in 1963 . She ' s been associated with the bands Head South By Weaving and Mellow Candle .
-Alison O ' Donnell is a jazz musician whose record label is the London - based Deram Records . She is signed to the record label " Floating World Records . " .
-Previously signed to the record label Fruits de Mer Records , jazz musician , Alison O ' Donnell is signed with the London based , record label , Deram Records .
-Fort Campbell is the birth place of Allen Forrest , who was born in the year 1981 . He is a solo singer who plays acoustic music .
-Allen Forrest was born in 1981 in Fort Campbell , KY and raised in Dothan , AL . He was originally a solo singer and performs hip hop music .
-Andrew White is associated with the musical artist Marry Banilow and he plays alternative rock . That type of music originated from punk rock . Nu metal music is a fusion of alternative rock music .
-Anders Osborne is associated with the musical artists Billy Iuso and Tab Benoit . He is an exponent of rock music and worked with the Galactic band .
-Alligator records is based in Chicago and the main genre they deal with is blues . Anders Osborne ' s record labels are Alligator Records and Shanachie Records .
-Anders is a professional Dance - pop music singer . She is a solo singer and was born in Romania .
-Andra is a rhythm and blues singer . Originating from blues music , rhythm and blues has funk and disco as derivatives .
-In 2009 Andrew Rayel started his music career . He played Trance music . Mr . Rayel is associated with Christian Burns and Jonathan Mendelsohn .
-Musicians Jwaydan Moyine and Christian Burns are associated with Andrew Rayel , whose musical genre is trance music , which has its origins in House music .
-Andrew White started his musical career in 2003 and is associated with the musical artist , Marry Banilow . He plays for the band Kaiser Chiefs and his genre is alternative rock .
-Andrew White , who began his musical career in 2003 and was associated with Marry Banilow , was signed to the now defunct record label Universal Records . He was a member of the band The Kaiser Chiefs .
-Agustin Barboza was born in Paraguay which is led by Juan Afra . He died in Asuncion which is part of Gran Asuncion .
-Al Anderson ( NRBQ band ) performs country music and also was a member of the Wildweeds . Banjo is used for Country Music .
-Allen Forrest performs hip hop music , which has its stylistic origins in disco and funk . Drum and bass is a derivative of hip hop .
-The birthplace of Alfred Garth Jones is Manchester , ( part of Greater Manchester ) , England . In Manchester the Labour Party is in the majority .
-Aaron Turner played post - metal music with the Twilight band . He also played with the House of Low Culture . Cello is a post - metal instrument .
-Aaron Turner plays electric guitar and played with the band Twilight . Twilight performs black metal music which when part of a musical fusion is called death metal .
-Rhythm and blues artist Albennie Jones was born in the United States . R and B originated from the blues and among the ethnic groups in the U . S . are African Americans .
-Maine born Aaron S Daggett fought in the American Civil War , was awarded the Purple Heart and died in West Roxbury .
-Born in Maine , Aaron S . Daggett fought in the Battle of the Wilderness , awarded the Purple Heart , and died in West Roxbury .
-Ab Klink worked at the Ministry of Health , Welfare and Sport in Netherlands , the country where he was born . He was a student of Erasmus University in Rotterdam which is affiliated with the Association of MBAs .
-Mirir , Malaysia born Abdul Taib Mahmud , who lives in Kuching , represented the Asajaya region and was a member of the Parti Pesaka Bumiputera Bersatu .
-Abdul Taib Mahmud was born and resided in the Kingdom of Sarawak . He was in the Parti Pesaka Bumiputera Bersatu and represented the Asajaya region .
-Japanese occupied , British Borneo , was the birthplace of Adenan Satem , who succeeded Abdul Taib Mahmud . Abdul Taid Mahmud is a member of Barisan Ra ' ayat Jati Sarawak party and resides in Sarawak .
-Abdul Taib Mahmud , who lives in Sarawak , belongs to the Parti Pesaka Bumiputera Bersatu . He was succeeded by Adenan Satem , who was born in the Japanese occupation Of British Borneo .
-Abdulsalami Abubakar served in the Nigerian Army and was in office while Mike Akhigbe was Vice President . Oladipo Diya was the predecessor of Mike Akhigbe and Atiku Abubakar was his successor .
-Abdulsalami Abubakar was a member of the Nigerian Air Force . He was in office while Mike Akhigbe was Vice President . Oladipo Diya was the predecessor of Mike Akhigbe and Al - Amin Daggash was the successor of Abdulsalami Abubakar .
-Abel Caballero , born in Galicia , Spain , served office during Prime Minister Felipe Gonzalez ' leadership and Juan Carlos I of Spain ' s Monarchy . Francisco Franco preceded Juan Carlos I .
-Abel Caballero was born in Galicia in Spain , is a member of the Spanish Socialist Workers ' Party and worked as Minister of Transport .
-Abraham A Ribicoff , married to Casey Ribicoff , was born in New Britain , Connecticut which is in the United States , where Native Americans are an ethnic group .
-Adam Holloway was born in Kent and his alma mater was Magdalene College , Cambridge . His career began on 5 May 2005 and he fought in the Gulf war .
-Adam Koc , a Polish nationalist , fought in the Polish - Soviet War . Joseph Stalin was a commander in that war . The Polish language is used in Poland .
-
-Adonis Georgiadis , who was born in Athens , Greece , served as the Vice President of New Democracy and was later succeeded by Makis Voridis .
-Adonis Georgiadis , who was born in Athens Greece worked for the Ministry of Economy , Development and Tourism and his successor was Makis Voridis .
-Adonis Georgiadis was born in Athens in Greece and before being succeeded by Makis Voridis worked as a member of the Hellenic Parliament .
-Emile Roemer is a leader of the Socialist Party in Netherlands of which Agnes Kant is also a member . The country uses the Euro as its currency .
-Agnes Kant is a national of the Netherlands where Mark Rutte is a leader . Kant is also a member of the Socialist Party and worked at the House of Representatives in the Netherlands .
-Agnes Kant is from the Netherlands , where the leader is Mark Rutte . Emile Roemer is a member of ( and leader of ) the Socialist Party in the Netherlands .
-Agnes Kant , a Netherland national , is a member of the Socialist Party of the Netherlands which is led by Emile Roemer and uses the colour of red .
-Airey Neave was born in Knightsbridge in London and started his career on the 30th June 1953 . He fought in the Battle of France and ended his career on the 30th March 1979 .
-Airey Neave , who was born in Knightsbridge , London , fought in the Battle of France . His career lasted only five years beginning March 4th , 1974 and ending on the 30th of the same month in 1979 .
-Airey Neave served in the Royal Artillery Unit which has a garrison in Hohne . He also participated in World War II where Chiang Kai - shek was a commander .
-Albert B . White , who was born in Cleveland an died at Parkersburg , West Virginia was succeeded by William M . O . Dawson who was born in Bloomington Maryland .
-Albert B . White was born in Cleveland and his successor was William M . O . Dawson . He started his career on March 4 , 1901 and finished it on March 4th 1905 .
-Born in New York city ( where French is one of the languages spoken ) , Albert Jennings Fountain battled in the American Civil War . The same conflict in which Abraham Lincoln was a commander .
-New York City was the birthplace of Albert Jennings and he passed away in Dona Ana County , New Mexico . He fought in the American Civil War and one commander in that war was Jefferson Davis .
-Albert Jennings Fountain was born in New York on Staten Island and died in New Mexico Territory .
-Alberto Teisaire belongs to the Justicialist Party and was in office while Juan Peron was President . Teisaire died in Buenos Aires , where the leader is Horacio Rodríguez Larreta .
-Alberto Teisaire was born in Mendoza in Agentina and he was a Rear Admiral . He worked as a Provisional President of the Argentine Senate and his successor was Isaac Rojas .
-Alfred Moore Scales was born in Reidsville , North Carolina , is a member of the Democratic Party in the United States and served as Governor of North Carolina . He was succeeded by Daniel Gould Fowle .
-Connecticut born Alfred N Phillips served in the US Army and fought in the Whiskey Rebellion battle . He was later a Member of the U . S . House of Representatives from Connecticut ' s 4th district .
-Alfred N . Phillips , born in Connecticut was a member of the United States Democratic Party and worked as a Member of the U . S . House of Representatives from the Connecticut ' s 4th district . His successor was Albert E . Austin .
-Darien , Connecticut is the birthplace of Alfred N . Phillips and he was a member of the United States Democratic Party . He was also the Mayor of Stamford Connecticut and his successor was Albert E . Austin .
-U . S . Democratic Party member and Texas Governor , Allan Shivers , was born in Lufkin , Texas . He was succeeded by Price Daniel .
-Allan Shivers was born in Lufkin , Texas , and served in the Democratic Party of the US . He worked as the Governor of Texas and was eventually succeeded by Wilfred R Cousins Jr .
-Alvah Sabin is from the state of Vermont , which has the largest city of Burlington . Sabin worked as the Secretary of State of Vermont and represented Vermont ' s 3rd Congressional District .
-Alvah Sabin was a member of the Whig Party of the United States and he represented Vermont , whose biggest city is Burlington . Daniel Webster was a leader of the Whig Party in the United States .
-The Battle of Gettysburg took place during the American Civil War when Robert E Lee was a commander . Aaron S Daggett fought at the Battle of Gettysburg and was awarded the Purple Heart .
-Argentinian , Alberto Teisaire was in office while Juan Peron was President . Perón was a member of the Labour Party in Argentina where the dominant language is Spanish .
-Juan Peron was a member of the Labour Party of Argentina and during his Presidency Alberto Teisaire was in office . Teisaire was born in Mendoza in Argentina and was eventually succeeded by Isaac Rojas .
-Carnival Corporation & amp ; plc is the parent company of Costa Crociere which is the owner of the AIDAstella . The AIDAstella was built by Meyer Werft and is operated by AIDA Cruises which is based in Germany .
-The AIDAstella was built by Meyer Werft and operated by the AIDA Cruise Line . It is 253260 . 0 millimetres long with a beam of 32 . 2 metres and a top speed of 38 . 892 km / h .
-The ALCO RS - 3 was built by the American Locomotive Company and was produced between May 1950 and August 1956 . It has a cylinder count of 12 , is 17068 . 8 ( millimetres ) in length , and has a four - stroke engine .
-The ALCO RS - 3 , built by the American Locomotive Company , has a V12 cylinder engine and is 17068 . 8mm long . It was produced from May 1950 to August 1956 .
-The ALV X - 1 originated in the United States where the inhabitants are known as Americans and include the ethnic group of Native Americans . The capital city is Washington DC and the national anthem is the Star Spangled Banner .
-The AMC Matador , also known as American Motors Matador , was assembled in Thames , New Zealand . The AMC Matador is a mid - size station wagon with a V8 engine type .
-A transport London company called P & amp ; O owns the Alhambra ship which contains a Humphrys , Tennant and Dykes power type and has a ship beam of 8 . 3 m . The ship was built by the Samuda Brothers .
-The AMC Matador is manufactured by American Motors , whose subsidiary is The Wheel Horse and successor is Eagle . American Motors was acquired by Chrysler and Roy D Chapin Jr is a key person there .
-The American submarine NR - 1 which was launched on January 25th 1969 has a top speed of 8 . 334 km / h . It has a 3 . 8m ship beam , a draft of 4 . 6m and measures 45000 mms in length .
-The Antares rocket is comparable to the Delta II , which originates from the United States . The launch site of the Antares was the Mid Atlantic Regional Spaceport Launch Pad 0 , which is also associated with the rocket Minotaur IV .
-The Antares rocket ' s maiden flight was on the 28th October 2014 and its last flight on 2014 - 07 - 13 . Its launch site was the Mid - Atlantic Regional Spaceport Launch Pad 0 . It is manufactured at the Yuzhnoye Design Office and is 3 . 9 m in diameter .
-The Antares rocket , manufactured by the Yuzhnoye Design Office , was launched from the Mid - Atlantic Regional Spaceport Launch Pad 0 . At 3 . 9m in diameter , the Antares rocket had its maiden flight on the 28th October , 2014 and final flight on the 18th of September , 2013 .
-The Airbus Defence and Space manufactured the Ariane 5 which has a diameter of 5 . 4 metres . It was launched from the Guiana Space Centre , making its maiden flight on 11 August 2005 and the final flight on 18 December 2009 .
-The Guiana Space Centre ' s headquarters are located in French Guiana , it is the location of the ELA - 3 launchpad where the Ariane 5 was launched . ELA - 3 is operated by Arianespace , which is located in Courcouronnes .
-The Aston Martin DBS ( later succeeded by the AM Vantage ) and the Aston Martin V8 are related means of transport . The latter is assembled at Newport Pagnell by Aston Martin and has a 5 . 3 litre engine volume .
-The Aston Martin RHAM / 1 , and the Aston Martin DBS are related means of transport to the Aston Martin V8 . The latter vehicle is a coupe with a 5 . 3 litre engine and is assembled at Newport Pagnell .
-The Aston Martin V8 , suceeded by the the Aston Martin Virage and made n the United Kingdom , led by Elizabeth II . The Vs , the Virage ( made by Aston Martin ) and the Aston Martin DBS , are related modes of transportation .
-The Audi A1 is a hatchback belonging to the supermini class . It has a 1 . 2 litre engine , a front - engine with front - wheel - drive and is assembled in Brussels , Belgium .
-Made by Audi , whose founder is August Horch , is the Audi A1 . Subsidiaries of Audi are the Ducati , Audi e - tron and Lamborghini .
-The power type of the AIDAluna , owned by AIDA Cruises , is the Caterpillar Inc . engine . Caterpillar , Inc . was founded in California in the U . S . and is located in Peoria , Illinois .
-Douglas R . Oberhelman is the key person at Caterpillar Inc which was founded in the United states . The company powers the AIDAluna which is owned by AIDA Cruises located in Rostock .
-Douglas R . Oberhelman is a key person at Caterpillar Inc . who provide the power type for the AIDAluna owned by AIDA Cruises . The company was founded in the United States and located in Peoria , Illinois .
-The AIDAstella , which was built by Meyer Werft , is operated by AIDA Cruises . It ' s owner are Costa Crociere who are located in Genoa and a subsidiary of Carnival Corporation & amp ; Plc .
-Finland is led by Juha Sipila and is home to the Finns . Sami languages are spoken there and the icebreaker ship , Aleksey Chirikov , was built there in the Arctech Helsinki Shipyard .
-The builder of the A - Rosa is Neptun Werft whose HQ is in Rostock , Germany . Berlin is the capital in that country and Joachim Gauck is the name of one of its leaders .
-The A Rosa Luna was built on the Neptun Werft which is found in Rostock , Germany . Berlin is its capital and Andreas Vosskuhle is one leader there .
-The United States , has a capital city of Washington D . C . , it ' s inhabitants are known as Americans and an ethnic group that lives there are Native Americans . The language of the US is English and it is the creator of the Atlas II .
-Abel Hernandez is a member of Penarol ' s youth club and the club is managed by Jorge Orosmán da Silva . US Citta di Palermo and the Central Espanol are also Mr . Hernandez ' s clubs . The latter club is part of the Uruguayan Segunda División league .
-Former Soviet Union international footballer Aleksandr Chumakov died in Russia , where the leader is Valentina Matviyenko . FC Torpedo Moscow , managed by Valery Petrakov , once signed Aleksandr Chumakov .
-Aleksandre Guruli played for the Olympique Lyonnais club who play their home games at the Parc Olympique Lyonnais and have the chairman , Jean - Michel Aulas . His current club is FC Karpaty Lviv managed by Oleh Luzhny .
-Defender Alessio Romagnoli , whose former clubs include UC Sampdoria , has played for the Serie A side AC Milan , which is managed by Siniša Mihajlović .
-Alessio Romagnoli is a member of the Italian national under 17 football team and has represented the club U . C . Sampdoria . He is presently with the AC Milan that is managed by Siniša Mihajlović and whose chairman is Silvio Berlusconi .
-Central Español , where Abel Hernandez played youth football , are part of the Uruguayan Segunda División league . Hernández has represented Uruguay at international level and also played for the club U . S . Città di Palermo , where the manager is Giuseppe Iachini .
-Aleksandr Prudnikov plays for FC Spartak Moscow who have their home ground at Otkrytiye Arena and are chaired by Sergey Rodionov . He also plays for FC Amkar Perm under the management of Gadzhi Gadzhiyev .
-Aleksandr Prydnikov belongs to FC Terek Grozny , which is managed by Rashid Rakhimov , and has its grounds at Grozny . Prudnikov plays for FC Spartak Moscow , which includes chairman Sergey Rodionov .
-Aleksandr Prudnikov once played for FC Spartak Moscow ' s youth team but now plays for the FC Dynamo Moscow and the FC Terek Grozny out of Grozny . The FC Terek Grozny sees a manager in Rashid Rakhimov .
-Aleksandr Chumakov was born in the Soviet Union and was a member of the Soviet Union national football team . He has also played for FC Torpedo Moscow who are managed by Valery Petrakov and participated in the 2014 - 15 Russian Premier League .
-Akeem Adams is a member of the United Petrotrin F . C . club and also Ferencvarosi TC . The latter club , whose ground is Palo Seco , is chaired by Gabor Kubatov and managed by Thomas Doll .
-Akeem Adams belongs to Ferencvárosi TC , which is managed by Thomas Doll and includes chairman Gábor Kubatov . He has played for United Petrotrin F . C . , who play in Palo Seco Velodrome .
-The epoch of 19255 1994 VK8 , which has a mass of 5 . 6 kilograms is December 31st , 2006 . Its orbital period is 8 , 788 , 850 , 000 kilometres , with a periapsis of 6 , 155 , 910 , 000 , 000 kilometres and an apoapsis of 6 , 603 , 633 , 000 kilometres .
-101 Helena was discovered by the Canadian James Craig Watson on August 15th 1868 . Mr Watson , who studied at the University of Michigan , died in Madison , Wisconsin .
-101 Helena was discovered by James Craig Watson who originated from Canada and graduated from the University of Michigan . He later died of peritonitis in Madison , Wisconsin .
-Walter Baade , who had a doctoral student named Allan Sandage , was born in the German Empire and graduated from the University of Gottingen . He discovered 1036 Ganymed and later died in Gottingen .
-Walter Baade , born in the German Empire and graduate of the University of Gottingen , discovered 1036 Ganymed . Halton Arp and Allan Sandage were doctoral students of Walter Baade .
-
-James Craig Watson , a Canadian who attended the University of Michigan , discovered 103 Hera on Sept . 7 , 1868 . He died in Madison , Wisconsin .
-103 Hera was discovered by James Craig Watson , a Canadian who studied at the University of Michigan and died in Madison , Wisconsin . Its periapsis is 371240000 . 0km .
-B . Zellner was the discoverer of 107 Camilla that has an orbital period of 2368 . 05 days . It ' s epoch is Dec . 31 , 2006 . The celestial body has a periapsis of 479343000 . 0 kilometres and an apoapsis of 560937000 . 0 km .
-107 Camilla , epoch date 31 December 2006 , was discovered by C Woods and has an orbital period of 2368 . 05 days . The apoapsis and periapsis measurements are 560937000 . 0 km and 479343000 . 0 km respectively .
-107 Camilla , which has an epoch date of December 31st 2006 , was discovered by F . Vilas . Its orbital period is 2 , 368 . 05 days , its periapsis is 479 , 343 , 000 kilometres and has an apoapsis of 560 , 937 , 000 kilometres .
-N . R . Pogson was born in Nottingham in the U . K . and died in Chennai . He discovered 107 Camilla which has an absolute magnitude of 7 . 08 .
-1089 Tama was formerly known as A919 HA ; 1927 WB , has an epoch of November 26th , 2005 and an orbit of 1 , 202 . 846 days . Its escape velocity is . 0068 kilometres a second and it has an apoapsis of 373 , 513 , 000 kilometres .
-The epoch of 1101 Clematis is on the 31st of July 2016 and it has a mass of 5 . 7 kilos . The orbital period for 1101 Clematis is 183309000 . 0 , has an apoapsis of 520906000 . 0 kilometres , and an escape velocity of 0 . 02 kilometres per second .
-11264 Claudiomaccone has the epoch date of 26 November 2005 , its temperature is 173 . 0 kelvins and has an orbital period of 1513 . 722 days . It has a periapsis of 296521000 . 0 kilometres and its apoapsis is 475426000 kms .
-Abdul Taib Mahmud was born in Miri , Malaysia , on May 21st 1936 and lives in Kuching . He represented Asajaya and was a member of the Parti Pesaka Bumiputera Bersatu .
-Abdul Taib Mahmud was born in the Kingdom of Sarawak and lives in Demak Jaya , Jalan Bako , Kuching , Sarawak . He is a member of the Parti Pesaka Bumiputera Bersatu and was succeeded by the University of Adelaide educated Adenan Satem .
-Abdulsalami Abubakar ended his career on 1999 - 05 - 29 , having been in office while Mike Akhigbe was the Vice President . Oladipo Diya was predecessor to Mike Akhigbe , who belonged to the Nigerian Navy branch of the Military and his successor was Atiku Abubakar .
-Abdulsalami Abubakar , who served in the Nigerian Army , ended his career on May 29th , 1999 and served in office while Mike Akhigbe was the Vice President . Akhigbe succeeded Oladipo Diya while Olusegun Obasanjo took over from Abubaka when he left office .
-Abraham A Ribicoff was an American National born in Connecticut . He was a member of the United States Democratic Party and held the office of Governor of Connecticut before he died in the US .
-Abraham A . Ribicoff who was born in Connecticut , United States , worked as the United States Secretary of Health , Education , and Welfare and he was a member of the Democratic Party in the United States . He died in New York City .
-Abraham A . Ribicoff was born in Connecticut . He was married to Casey Ribicoff . He was also a national to the United States and he died in New York . The Native Americans are an ethnic group in the U . S .
-Gravesham Parliament member and Magdalene College Cambridge alum Adam Holloway , was born in Kent . A Grenadier Guard , he began his career 05 / 05 / 2005 .
-Englishman Adam Holloway , born in Faversham , Kent and having attended Magdalene College in Cambridge , then joined the Grenadier Guards . He is a member of the UK Conservative Party and began his political career on 5th May 2005 .
-Adonis Georgiadis , was born in Athens , Greece and was succeeded by Makis Voridis . Adonis Georgiadis , was in office while Antonis Samaras was Prime Minister . Antonis Samaras was in office while Konstantinos Mitsotakis was Prime Minister .
-Agnes Kant is a national of the Netherlands , where the leader is , Mark Rutte . Agnes Kant worked at the House of Representatives in the Netherlands . Emile Roemer is leader and member of the Socialist Party in the Netherlands .
-Agnes Kant is a national of the Netherlands which is led by Mark Rutte . She was a resident of Doesburg and worked at the House of Representatives which is led by Khadija Arib .
-Agnes Kant of Netherlands lives in Doesburg . Mark Rutte is leader of the country and one of its political parties is the Socialist Party which is led by Emile Roemer .
-Born on the 22nd of September , 1856 , Albert B White died at Parkersburg , West Virginia on 1941 - 07 - 03 .
-Cleveland born Albert B White , whose wife was Agnes Ward White , died in Parkersburg , West Virginia . He was succeeded by William M O Dawson , who was born in Bloomington , Maryland .
-Albert B White was born in Cleveland and was married to Agnes Ward White . He worked as the Governor of West Virginia and finished his career on 4 March 1905 being succeeded by William M O Dawson .
-Succeeded by William M . O . Dawson , Albert B . White was born in Cleveland and was a member of the Republican Party in the United States . Albert B . White started his career on March 4 , 1901 and finished his career on March 4th 1905 .
-Alberto Teisaire was in office while Labour Party member Juan Peron , who was married to Eva Peron , was President of Argentina . Teisaire died in Buenos Aires whose leader is Horacio Rodríguez Larreta .
-Born on 1891 - 05 - 20 , born in Mendoza , Argentina , Alberto Teisaire , was a Rear Admiral by profession . He worked as the Provisional President of the Argentine Senate and his successor was Isaac Rojas .
-Alfons Gorbach ' s place of birth was the state , Tyrol , in Austria . He was a politician from the Austrian People ' s Party , who died in Graz , in Styria .
-Alfons Gorbach was born in Imst in Tyrol and died in Graz in Styria . He was a politician from the Austrian People ' s Party .
-Alvah Sabin represented Vermont ' s 3rd Congressional District and his career ended on March 3rd 1857 . He was from Vermont , where the largest city is Burlington and he died in Sycamore , Illinois .
-Burlington is the largest city in Vermont , where Alvah Sabin was born . He represented Vermont ' s 3rd Congressional District and died in Sycamore , Illinois .
-Native Americans are the ethnic group in the United States . Alfred Moore Scales lived in the United States and involved in was the Battle of Gettysburg . The Battle of Gettysburg was part of the American Civil War conflict , during which , one of the commanders was Jefferson Davis .
-Native Americans are one of the ethnic groups in the United States , Alfred Moore Scales ' s country . Alfred Moore Scales took part in the Siege of Petersburg , which occurred during the American Civil War . Jefferson Davis was a commander in the American Civil War .
-Argentina ' s Labour Party President Juan Peron was married to Eva Peron . Argentina is Spanish speaking and home to Alberto Teisaire ( in office during Peron ' s leadership ) .
-Aaron Bertram plays for the Kids Imagine Nation and the Suburban Legends bands , where he performs ska punk music , a form of punk rock . Brian Robertson , a trombonist , is a band member of Suburban Legends .
-Aaron Deer comes from Indiana , having been born in the United States . He is a solo singer / performer of the musical genre indie rock , and is an artist for the Wee Giant band .
-Aaron Turner came from the U . S . He is a Black metal musician who started performing in 1995 . He plays in the Lotus Eaters band having previously performed with Old Man Gloom .
-Aaron Turner is from Massachusetts . He is a musician who loves Sludge metal and played with the band Twilight as well as the Lotus Eater ' s Band , in 1995 .
-Abradab was born in Katowice , Poland on 12 November 1978 . He is associated with the rapper Magik and played with the Kaliber 44 band .
-Solo singer Ace Wilder was born on July 23 , 1982 in the country of Sweden .
-Ace Wilder was born in Stockholm on July 23 , 1982 . He is a songwriter with a background as a solo singer .
-Ace Wilder is a hip hop musician . Hip hop originates from funk and disco . Gangsta rap is a sub genre of hip hop and drum and bass is a derivative of it .
-Hip hop musician Ace Wilder was born in Sweden . Hip hop has its origins in Funk and disco while being an influence on Drum and Bass .
-Musician Al Anderson was born in Windsor Connecticut and began his career in 1966 . He was a member of the band The Wildweeds and is now part of the rock group NRBQ .
-Al Anderson is a guitarist and rock musician with the band NRBQ . Rock originates from country music and is an influence on the fusion style of Bhangra .
-Alan Frew is from Coatbridge , Newmarket , Ontario , Canada and he is a musician and solo singer .
-Pop music solo singer Aleksandra Kovač was born 1972 , in the Socialist Republic of Serbia . Disco is a fusion of pop music .
-Rhythm and blues singer Aleksandra Kovač , began her career circa 1990 and is a member of the duo K2 , with Kornelije Kovač .
-Alfred Garth Jones was born in Manchester , England in the United Kingdom in 1872 . He died in London .
-Alfred Garth Jones was Sidcup was born in Manchester and died , in Boris Johnson and European Parliament led , Sidcup , London .
-Alfred Garth Jones was born in Manchester and passed away in Sidcup , London . The Labour Party is the leader of Manchester . The European parliament is the leader of London .
-Ireland folk musician Alison O ' Donnell is signed to Floating World Records and became active in 1963 . She is associated with the Flibbertigibbet band and Mellow Candle .
-Funk is derived from jazz music as performed by Alison O Donnell . She is signed with the record label Stanyan Records and also Deram Records which is based in London .
-Alison O ' Donnell , who plays the autoharp , is a performer of jazz , which has its origins on folk music . Jazz has a derivative called funk and a fusion genre named Afrobeat .
-Jazz singer Alison O ' Donnell plays the bodhran , percussion and autoharp . Jazz derives from funk and blues while being an influence on funk and Afrobeat fusion .
-Allen Forrest was born in Fort Campbell , Dothan , Alabama in 1981 . He plays acoustic music and has a background as a solo singer .
-Anders Osborne , a rock musician , started performing in 1989 and has worked with Galactic and Voice of the Wetlands All - Stars band . Mr . Osborne is associated with Billy Iuso .
-Anders Osborne began his Blues musical career in 1989 and has worked with Galactic , Tab Benoit and Billy Iuso .
-Andra is a dance - pop singer who was born in Campia , Turzii in 1986 . She began her career as a solo singer and makes her living as a singer and reality television judge .
-The singer Andra was born in Romania in 1986 and performs rhythm and blues as a solo artist .
-Andrew Rayel is associated with a number of musical artists , these include : Armin Van Buuren , Bobina , Mark Sixma , Jonathan Mendelsohn , Christian Burns , Jwaydan , Alexander Popov , Jano , Alexandre Bergheau , Jonny Rose , Sylvia Tosun , Lira Yin , and Alexandra Badoi . His musical genre is Trance music which has its stylistic origins in pop .
-Andrew Rayel was born in Chisinau Moldova . He ' s an associate of Armin van Buuren and Christian Burns . Mr Rayel ' s musical genre is Trance which he started in 2009 .
-Andrew Rayel was born in Chisinau , Moldova and began his Trance Music career in 2009 . He is associated with jwaydan Moyine and Bobina .
-String instrumentalist Andrew Rayel , who performs Trance music , is associated with Christian Burns and Jwaydan Moyine , the latter of which has worked with the musical artist John Digweed .
-B - Unique Records and Polydor Records artist Andrew White began in 2003 and is associated with the Kaiser Chiefs and artist Marry Banilow .
-Allen Forrest was born in Fort Campbell and is a hip hop musician . Hip hop originates from funk and disco and was derived into drum and bass music .
-Allen Forrest was born in 1981 and plays Hip Hop music . Hip hop originated from disco and funk musics . Drum and bass gets its sounds from hip hop .
-Alfred Garth Jones was born in Manchester , where the Labour party is in the majority and died in Sidcup , London . Parliament of the United Kingdom is the leader of London .
-Agustin Barboza was born in Asuncion , Paraguay where the people speak Spanish . Juan Afara leads the country and an ethnic group in Paraguay are the Mestizo people .
-Musician Andrew White , is signed to the record label B - Unique Records and is signed to the London based , record label , Polydor Records . His genre is alternative rock , the fusion genre of which , is Nu metal .
-Andrew White is an alternative rock musician with Polydor Records and was once with Universal Records . Polydor Records is in London . Nu metal is a fusion of alternative rock sounds .
-Al Anderson plays the guitar for rock band NRBQ . Rock comes from country music which originates from blues . Bhangra music is a musical fusion of rock music .
-The banjo is a staple of country music , the origin of rock , which is also inspired by the Blues . Rock lends itself to bhangra and is the style of Al Anderson and NRBQ .
-Aaron Turner plays electric guitar and played with the black metal Twilight band and the Old Man Gloom band . A fusion of black metal is called Death metal .
-Alfredo Zitarrosa died in Montevideo , the leader of which , is Daniel Martinez . Montevideo is in Uruguay , where Spanish is the language and where Raúl Fernando Sendic Rodríguez is the leader .
-Abilene Regional Airport serves the city of Abilene in Texas .
-Adolfo Suarez Madrid - Barajas airport is located at Madrid , Paracuellos de Jarama , San Sebastián de los Reyes and Alcobendas .
-The runway name at Adolfo Suarez Madrid - Barajas airport is 18L / 36R .
-SBCT is the ICAO location identifier of Afonso Pena International Airport .
-Afonso Pena International Airport serves Curitiba .
-Al - Taqaddum Air Base serves the city of Fallujah .
-The length of the runway at Al - Taqaddum Air Base is 3684 . 0 .
-14 / 32 is the runway name of Alderney Airport .
-The runway at Allama Iqbal International Airport has a length of 3360 . 12 .
-The Amsterdam Airport Schiphol ' s 1st runway number is 18 .
-The fifth runway of Amsterdam Airport Schiphol has an asphalt surface .
-06 / 24 , Kaagbaan , is the runway name of Amsterdam Airport Schiphol .
-Andrews airport ' s is 973 . 0 above sea level .
-The owner of Andrews County airport is Andrews County , Texas .
-
-Asphalt is the surface of the first runway of Angola International Airport .
-Antwerp International Airport has an elevation of 12 . 0 metres above sea level . e .
-The operating organisation of Antwerp International airport is the Flemish government .
-The runway length of the Appleton International airport is 2439 units .
-The runway length of Ardmore Airport , New Zealand , is 518 . 0 .
-The ICAO Location Identifier of Ashgabat International Airport is UTAA .
-The runway name at Ashgabat International airport is 11 / 29 .
-South Jersey Transportation Authority is the owner of the Atlantic City International Airport .
-13 / 31 is the runway name for Atlantic City International airport .
-Dutch is the language spoken in Belgium .
-
-The inhabitants of Denmark have the demonym of Danes .
-Fallujah is located in the country of Iraq .
-Greenville , Wisconsin is located in the United States .
-Greenville , Wisconsin is in Grand Chute , Wisconsin .
-Arabic is the language in Iraq .
-The city of Madrid is found in Spain .
-Maple Ridge Township , Alpena County , Michigan is part of the United States .
-
-The Port Authority of N . Y . and N . J . serves New Jersey .
-
-The United States Air Force was fighting in the United States bombing of Libya in 1986 .
-The Boeing C - 17 Globemaster III is a transport aircraft of the United States Air Force .
-The 11th Mississippi Infantry Monument was established in 2000 .
-Adams County , Pennsylvania has Carroll County , Maryland to its southeast .
-Artur Rasizade is an Azerbaijan leader .
-The title of the leader of Azerbaijan is Prime Minister of Azerbaijan .
-The native name of the Baku Turkish Martyrs ' Memorial is Turk Sehitleri Aniti .
-The address , 11 Diagonal Street is located in South Africa .
-The architectural style of 250 Delaware Avenue is Postmodern .
-
-George Winkler is the architect of the 320 South Boston Building .
-Construction of the 320 South Boston Building began in 1910 .
-The number of rooms in the AC Hotel Bella Sky Copenhagen is 814 .
-James Pain and George Richard Pain are the architects of the Adare Manor .
-
-
-
-The address of Amdavad ni Gufa is Lalbhai Dalpatbhai Campus , near CEPT University , opp . Gujarat University , University Road .
-The Asher and Mary Isabelle Richardson House has a reference number of 88002539 in the National Register of Historic Places .
-The architect of Asilomar Conference Grounds was Julia Morgan .
-The architecture of Asilomar Conference Grounds is of the " Arts and Crafts Movement and American Craftsman Bungalows " .
-The Asilomar Conference Grounds was constructed in 1913 .
-The Asser Levy Public Baths are located in New York City .
-Buffalo , New York is part of Erie County in New York .
-Byron Brown is the leader of Buffalo , New York .
-County Limerick is part of Munster .
-
-The name of the leader in Ethiopia is Mulatu Teshome .
-A demonym for residents of India is Indian People .
-
-Live Nation Entertainment is located in Beverly Hills , California .
-Manhattan is a part of New York .
-New York city is part of New Netherland .
-Pacific Grove is part of California .
-One of the ethnic groups in South Africa is White South Africans .
-The leader of the United Kingdom is Elizabeth II .
-1634 : The Ram Rebellion has the ISBN number 1 - 4165 - 2060 - 0 .
-Eric Flint wrote the book " 1634 : The Ram Rebellion " .
-
-AIDS journal is from the United Kingdom .
-The OCLC number of " A Glastonbury Romance is 76798317 .
-A Glastonbury Romance is available in hardcover .
-
-A Wizard of Mars was written by Diane Duane .
-Abhandlungen aus dem Mathematischen Seminar der Universität Hamburg can be located by the ISSN number " 0025 - 5858 " .
-The author of Above the Veil is Garth Nix .
-
-The Acta Palaeontologica Polonica ISSN number is " 0567 - 7920 " .
-The Addiction journal has an LCCN number of 93645978 .
-Addiction ( journal ) is about Addiction .
-
-The book Alcatraz Versus the Evil Librarians comes from the U . S .
-Alcatraz Versus the Evil Librarians was in English .
-The American Journal of Mathematics discipline is Math .
-Castle ( the novel ) is written in the English language .
-Eric Flint was born in Burbank , California .
-The parent company of Farrar , Straus and Giroux is Macmillan Publishers .
-A notable work of John Cowper Powys is A Glastonbury Romance .
-Soho Press is located in the United States .
-Faber and Faber publish The Secret Scripture .
-Asian Americans is one of the ethnic groups in the United States .
-The language of the United States is English .
-A Glastonbury Romance was published before Weymouth Sands .
-Associazione Calcio ChievoVerona is managed by Rolando Maran .
-A . D . Isidro Metapán is in the Salvadoran Primera División league .
-A . F . C . Blackpool fullname is " Association Football Club Blackpool " .
-
-AFC Blackpool ground is located in Blackpool .
-A . S . Gubbio 1910 has a ground in Gubbio .
-A . S . Gubbio has 5300 members .
-
-
-AZAL Arena is located in Baku .
-The AZAL PFK competes in The Azerbaijan Premier League .
-
-Akron , Ohio is in the USA .
-Akron , Ohio is located in Summit County , Ohio , .
-Akron Summit Assault fullname is " Akron Metro Futbol Club Summit Assault " .
-Eberhard van der Laan is a leader in Amsterdam .
-
-Christian Panucci played for Inter Milan .
-Frank de Boer is attached to the club FC Barcelona .
-Gubbio is a region of Umbria .
-Sergio Mattarella is the leader of Italy .
-Jens Härtel played for FC Sachsen Leipzig .
-Jorge Humberto Rodríguez is in the FC Dallas club .
-Luciano Spalletti has been associated with Udinese Calcio .
-Massimo Drago plays for A . S . D . S . S . Nola 1925 .
-Michele Marcolini is part of the Atalanta B . C . club .
-Michele Marcolini is in the Vicenza Calcio club .
-Peter Stoger is attached to the club 1 FC Koln .
-Rolando Maran plays for F . C . Bari 1908 .
-Jong Ajax is the tenant of Sportpark De Toekomst .
-St . Vincent St . Mary High School is located in United States .
-
-Acharya Institute of Technology ' s president is B . M . Reddy .
-Kerala has to its northwest Mahé in India .
-Mendrisio is a neighbouring municipality of Meride .
-Bucharest is the capital of Romania .
-The dean of School of Business and Social Sciences at the Aarhus University is Thomas Pallesen .
-Aarhus University School of Business and Social Sciences ' number of students are 16000 .
-Alan Bean ' s nationality is the United States .
-Apollo 8 ' s backup pilot was Buzz Aldrin .
-Buzz Aldrin graduated in 1963 from MIT with a Sc . D .
-Buzz Aldrin was a member of the Apollo 11 crew .
-Buzz Aldrin was selected by NASA in 1963 .
-California has a gemstone called Benitoite .
-Elliot See died on the 28th of February 1966 .
-Elliot See died in St Louis .
-Elliot See has died .
-Kevin Eastman is the creator of April O ' Neil .
-Bananaman the TV series was shown on the BBC .
-Ben Urich ' s full name is Benjamin Urich .
-The creator of Bibbo Bibbowski is Jerry Ordway .
-Bo Bibbowski is often called Bibbo .
-
-The alternative name of Black Pirate is " Jon Valor " .
-
-Karl Kesel is an American .
-Marv Wolfman won the Kirby Award .
-Peter Laird is a United States American .
-Scott Adsit was born in Northbrook Illinois .
-The area code for Albany , Georgia , is 229 .
-Albany , Oregon is part of the United States .
-The Mayor leads Albuquerque , New Mexico .
-Albuquerque , New Mexico is led by the New Mexico house of representatives .
-Albuquerque , New Mexico is led by the New Mexico Senate .
-The Area of Amarillo , Texas is 233 . 9 ( square kilometers ) .
-Amarillo , Texas is part of Randall County , Texas .
-Anderson is part of Richland Township , Madison County , Indiana .
-The elevation above the sea level in Angola , Indiana , is 324 . 0 .
-The area code for Antioch , California is 925 .
-Antioch , California is a part of Contra Costa County California .
-There are 1472 people per square kilometer in Arlington , Texas .
-Kasim Reed is the leader of Atlanta .
-The total area of Atlantic City , New Jersey is 44 . 125 square kilometres .
-Atlantic City , is a part of New Jersey .
-Attica , Indiana is 166 above sea level .
-Auburn , Alabama is part of Lee County .
-The total area of Auburn , Washington is 77 . 41 sq kms .
-Austin is a part of Texas .
-The Spanish language is spoken in California .
-
-Fulton County , in Georgia is part of the U . S .
-The county seat of Madison County , Indiana is Anderson .
-Michigan is in the U . S .
-
-Orange County , California is located in the United States .
-Oregon ' s largest city is Portland .
-The largest city in Tarrant County , Texas , is Fort Worth .
-The leader of the United States is Barack Obama .
-The U . S . House of Representatives is in the U . S . Capitol .
-Pecorino Romano is an ingredient used in Amatriciana sauce .
-The chili pepper serves as an ingredient in Arrabbiata sauce .
-white rice is an ingredient in Arròs negre .
-Arròs negre is from the Catalonia region .
-
-Ayam penyet is a dish from Singapore .
-one of the ingredients of the BLT Sandwich is Tomato .
-Baked Alaska hails from Hong Kong .
-Bakewell pudding can be served warm or cold .
-Bandeja paisa is typical Colombian cuisine .
-An ingredient found in Bandeja paisa is Chicharrón .
-Bandeja paisa is a traditional dish from the Paisa region .
-Serving size for the Barny cakes is 30 . 0g .
-Shumai is a variation of Batagor .
-Batagor has these main ingredients - fried fish dumplings , tofu and vegetables in peanut sauce .
-one of the ingredients for Batchoy is Shrimp .
-Beef kway teow comes from the region of Indonesia .
-Bhajji is also known as Bhaji or bajji .
-Taro is an ingredient in Binignit .
-
-Bionico comes from the region Jalisco .
+aaron s . daggett was awarded the purple heart .
+aaron s . daggett fought in the battle of mine run .
+ab klink was born in stellendam , netherlands .
+abdul rahman ya ' kub was in office whilst tuanku bujang tuanku othman was vice president .
+abdul taib mahmud is a member of the parti bumiputera sarawak party .
+abdul taib mahmud was succeded by sulaiman abdul rahman taib .
+
+minna was the birthplace of abdulsalami abubakar .
+abdulsalami abubakar was born in niger state .
+
+abner w . sibal died in alexandria , virginia .
+
+adam holloway resided in gravesend .
+adenan satem ' s alma mater is the university of adelaide .
+adolf schärf was born in mikulov .
+adonis georgiadis was in office under antonis samaras , prime minister .
+adonis georgiadis was the deputy minister for development , competitiveness and shipping .
+
+agnes ward white was born in marietta , ohio .
+
+
+airey neave was born in knightsbridge , london .
+airey neave was a lieutenant colonel .
+airey neave started serving in military in 1935 .
+albert b . white is a member of the republican party in the united states .
+albert b . white is married to agnes ward white .
+albert jennings fountain was a member of the union army .
+alberto teisaire is argentinian .
+alberto teisaire was rear admiral in the argentine navy .
+alfons gorbach died in austria .
+
+alfred moore scales fought in the battle of chancellorsville .
+alfred n . phillips place of birth was darien connecticut .
+alfred n . phillips was the mayor of stamford connecticut .
+
+
+allan shivers was succeeded by price daniel .
+alvah sabin started active service on 1853 - 03 - 04 .
+alvah sabin belongs to the whig party ( united states ) .
+robert e . lee was a commander in the american civil war .
+the language in austria is austrian german .
+robert e . lee was a commander in the battle of antietam .
+
+the leader of buenos aires is called gabriela michetti .
+colin powell was the commander in the gulf war .
+dwight d . eisenhower preceded john f . kennedy as president .
+josef klaus alma mater is the university of vienna .
+the predecessor of juan carlos i f spain was francisco franco .
+juan peron belongs to the labour party in argentina .
+
+
+bloomington , maryland was the birthplace of william m o dawson .
+the 1955 dodge is also named the dodge coronet .
+the size of the engine in the 1955 dodge is 230 cubic inches .
+the a - rosa luna was " christened " on the 7th april 2005 .
+aida cruises are located at rostock .
+the aidaluna is operated by aida cruises .
+the aidastella was christened in march 16 2013 .
+the aidastella was completed on the 11th march 2013 .
+the ship aidastella had her maiden voyage on march 17th 2013 .
+the operator of aidastella is aida cruises .
+the launch site of the alv x - 1 was the mid - atlantic regional spaceport .
+amc matador is also known as american motors matador .
+the ara veinticinco de mayo ( v - 2 ) was sold to the netherlands on 01 / 04 / 1948 .
+the abarth 1000 gt coupe has the straight four engine .
+
+
+
+the acura tlx has a 9 - speed zf 9hp automatic ( v6 ) transmission .
+
+the related transport to the alfa romeo 164 is the lancia thema .
+
+the samuda brothers built the alhambra .
+the alhambra has a ship beam of 8 . 3m .
+
+the alhambra has a top speed of 18 . 52 .
+
+the alvis speed 25 was first manufactured in 1937 .
+the american submarine nr - 1 has a ship draft of 4 . 6 metres .
+the final flight of the antares rocket was on 2014 - 10 - 28 .
+the launch site of the antares rocket was the mid - atlantic regional spaceport launch pad 0 .
+
+the ariane 5 was launched from the guiana space centre .
+ariane 5 had its maiden flight on august 11th 2005 .
+
+the aston martin made the aston martin v8 .
+aston martin are the manufacturers of the aston martin virage .
+the final flight of atlas ii was on 1998 - 03 - 16 .
+the atlas ii was launched from vandenberg air force base .
+august horch founded audi .
+the audi a1 is assembled at audi brussels .
+the audi a1 and the seat ibiza are similar means of transport .
+caterpillar inc . is in peoria , illinois .
+costa crociere is in genoa .
+desoto custom is a related means of transport to chrysler newport .
+
+germans is the demonym for people who live in germany .
+the leader of germany is norbert lammert .
+stanislaw tillich is a leader of germany .
+
+the guiana space centre ' s headquarters are located in kourou , french guiana .
+honda are the makers of the honda k engine .
+the anthem of the united states is the star spangled banner .
+the united states has an ethnic group called native americans .
+silvio berlusconi is the chiarman of a . c . milan .
+aaron boogaard was born in canada .
+aaron hunt plays for sv werder bremen .
+abel hernandez played for the uruguay olympic football team .
+abel hernandez plays for the uruguay national football team .
+abner ( a footballer ) was born in brazil .
+diemen is the birth place of adam maher .
+
+adam maher plays for the netherlands national club for players under 17 .
+
+ahmad kadhim assad represented the iraq national football team .
+akeem adams ' birthplace is point fortin .
+akeem dent used to play for the atlanta falcons .
+akeem priestley plays for the connecticut huskies .
+al - khor sports club play in the qatar stars league .
+basim qasim manages al - zawra ' a sc .
+
+baghdad is the birth place of alaa abdul - zahra .
+alaa abdul zahra plays for sanat mes kerman fc .
+alan martin is a footballer for the hamilton academical fc .
+alan martin played football for the scotland national under 19 team .
+aleksander barkov jr . was born on the 2nd september 1995 .
+aleksander barkov , jr ' s club is the florida panthers .
+aleksander barkov , jr ' s height is 1 . 905 metres .
+aleksander barkov jr . plays in the national hockey league .
+aleksandr prudnikov was born on 24th february 1989 .
+aleksandr prudnikov plays for the fc amkar perm football club .
+aleksandre guruli ' s birth place is batumi .
+aleksandre guruli ' s club is fc samtredia .
+aleksandre guruli once played for the georgia national under - 21 football team .
+alessio romagnoli is a member of a . s . roma .
+alessio romagnoli plays for a . s . roma ' s youth team .
+alex plante ' s birthplace is manitoba .
+alex tyus plays in the turkish basketball super league .
+atlanta falcons play in the city of atlanta .
+don sweeney is general manager of the boston bruins .
+
+english language is spoken in canada .
+canada ' s language is the slavey language .
+the columbus blue jackets are based in the city of columbus , ohio .
+the manager of fc karpaty lviv is oleh luzhny .
+
+gabor kubatov is the chairman of ferencvarosi tc .
+the finnish language is spoken in finland .
+daniele zoratto is coach of the italy national under 16 football team .
+the coach of maccabi ashdod b . c . is zvi sherf .
+motherwell f . c . play their home games at fir park .
+jean - michel aulas is the owner of the olympique lyonnais .
+american football team , st . louis rams , are based in the city of st . louis .
+the tennessee titans are based in the city of nashville , tennessee .
+
+aaron deer plays with the horns of happiness .
+aaron deer is signed to the record label kill rock stars .
+aaron turner performs avant - garde metal music .
+aaron turner performs progressive metal music .
+abradab ' s background is that of solo singer .
+the birth date of abradab is 12th november 1978 .
+abradab was born in poland .
+abradab performs hip hop music .
+the genre guarania , is the musical genre that agustin barboza is involved in .
+
+alan frews ' musical genre is rock music .
+
+a solo singer is part of aleksandra kovač ' s background , .
+the birth place of aleksandra kovac is yugoslavia .
+aleksandra kovac ' s genre is rhythm and blues .
+aleksandra kovač performs soul music .
+alex day performs synthpop music .
+alfredo zitarrosa is associated with hector numa moraes .
+the birth place of alfredo zitarrosa is montevideo .
+
+alfredo zitarrosa ' s record label is rca records .
+1963 was the beginning of alison o ' donnell ' s active years .
+alison o ' donnell performs jazz music .
+alison o ' donnell is a musician who uses her voice , bodhran , percussion and autoharp .
+allen forrest ' s birth date is 04th february 1981 .
+allen forrest was a pop artist .
+alligator records is based in chicago .
+anders osborne and johnny sansone are associates .
+rhythm and blues is the musical genre of anders osborne .
+anders osborne is signed to the record label alligator records .
+andra performs rhythm and blues music .
+andrew rayel started his career in 2009 .
+the musicians andrew rayel and christian burns are associates .
+andrew rayel was born in chisinau , moldova .
+andrew white is associated with the musical artist marry banilow .
+the musician andrew white is signed to the record label b - unique records .
+asunción is part of gran asunción .
+christian burns plays guitar .
+gangsta rap is a sub genre of hip hop music .
+hip hop music has its origins in funk .
+indie rock has its origins in new wave music .
+manchester is a part of greater manchester .
+polydor records is located in london .
+rca records distribute through sony music entertainment .
+rock and roll has its stylistic origin in the blues .
+synthpop ' s stylistic origins come from pop music .
+the native people of the united kingdom are known as the british people .
+the celestial body known as ( 19255 ) 1994 vk8 has a density of 2 grams per cubic centimetres .
+carl a wirtanen discovered ( 29075 ) 1950 da .
+the absolute magnitude of ( 410777 ) 2009 fd is 22 . 1 .
+the apoapsis of ( 410777 ) 2009 fd is 259776702 . 47055 kilometers .
+the apoapsis for ( 66063 ) 1998 ro1 is 254989570 . 60815 kilometres .
+( 66063 ) 1998 ro1 has an epoch date of 2013 - 11 - 04 .
+the escape velocity of 1000 piazzia is 0 . 0252 km / sec .
+the former name of 1001 gaussia is " 1923 oaa907 xc " .
+the celestial body known as 1001 gaussia has a maximum temperature of 165 kelvins .
+101 helena has an apoapsis of 441092000 . 0 kilometres .
+101 helena has an epoch of 2006 - 12 - 31 .
+101 helena has a mass of 3 . 0 kilograms .
+1036 ganymed travels at an average speed of 16 . 86 kilometres per second .
+the celestial body known as 103 hera has an absolute magnitude of 7 . 66 .
+103 hera has a mass of 7 . 9 kilograms .
+the absolute magnitude of 107 camilla is 7 . 08 .
+a storrs discovered 107 camilla .
+1089 tama was formerly called " a894 va ; a904 vd ; " .
+
+the celestial body known as 1097 vicia has an average speed of 17 . 92 k . p . s .
+the epoch date of 1097 vicia is 2006 . 12 . 31 .
+1097 vicia has a rotation period of 95040 . 0 .
+109 felicitas was discovered by christian heinrich friedrich peters .
+the periapsis of 109 felicitas is 283326000000 . 0 .
+10 hygiea has an average speed of 16 . 76 kilometres per second .
+1101 clematis has a periapsis of 445895000000 . 0 .
+31 december 2006 is the epoch of 110 lydia .
+11264 claudiomaccone has a temperature of 173 . 0 kelvins .
+james craig watson ' s alma mater is the university of michigan .
+n . r . pogson was born in nottingham .
+aaron s daggett , fought in battles , most notably the battle of fredericksburg , he was awarded the purple heart .
+aaron s . daggett fought in the battle of gettysburg and was awarded the purple heart .
+abdul rahman ya ' kub , who succeeded abdul taib mahmud , has a deputy named stephen yong kuet tze .
+abdul taib mahmud was born in the kingdom of sarawak and his party is the parti pesaka bumiputera bersatu .
+abdulsalami abubakar was born in minna and he attended the technical institute kaduna .
+abdulsalami abubakar , who was born in niger state , was the chief of the defence staff in nigeria .
+abdulsalami abubakar was the chief of the defence staff in nigeria and he was succeeded by al - amin daggash .
+abdulsalami abubakar ended his career on 1999 - 05 - 29 and was succeeded by olusegun obasanjo .
+abdulsalami abubakar , who was succeeded by olusegun obasanjo . was in office while mike akhigbe was vice president .
+abner w . sibal fought in world war ii and the commander of russian during that war was joseph stalin .
+abner w . sibal served in the united states army , which fought in the korean war .
+adam holloway was born in kent and attended magdalene college in cambridge .
+adam holloway was born in kent and lives in gravesend .
+adam koc fought in wwi and he was awarded the virtuti militari award .
+adonis georgiadis was born in athens and worked as the deputy parliamentary spokesman for the popular orthodox rally .
+adonis georgiadis was born in athens , in greece .
+greek born adonis georgiadis he has worked as the deputy parliamentary spokesman of popular orthodox rally .
+agnes kant was born in hessisch oldendorf and was employed as a parliamentary group leader .
+airey neave received the military cross and served in the royal artillery .
+airey neave , began his career on march 4th 1974 , and fought in the battle of france .
+airey neave fought in the battle of france , the battle where hugo sperrle was the commander .
+born in kinightsbridge , airey neave fought in world war ii .
+franklin d roosevelt was a commander in world war ii , in which airey neave fought .
+joseph stalin was a commander in world war ii , the war airey neave was involved in .
+albert b white was born 1856 - 09 - 22 and died in 1941 .
+albert b white , born on 22nd september 1856 , profession was politician .
+born in new york city , albert jennings fountain , died in dona ana county , new mexico .
+albert jennings fountain , who died in the new mexico territory , was in office whilst edmund j . davis was vice president .
+albert jennings fountain was born in new york and is a member of the republican party .
+alberto teisaire worked as a provisional president of the argentine senate and was succeeded by isaac rojas .
+alfons gorbach was born in austria and austria - hungary .
+alfons gorbach was born in tyrol state in austria .
+alfred moore scales , was governor of north carolina , and was succeeded by the politician james w reid .
+daniel gould fowle , attended princeton university , and suceeded alfred moore scales .
+alfred n . phillips was born in connecticut and worked at the united states house of representatives .
+alfred n . phillip was a member of the us army that fought in the american civil war .
+allan shivers fought in world war ii where joseph stalin was also a commander .
+allan shivers who worked as a member of the texas state senate from district 4 ( port arthur ) , was born in lufkin , texas .
+allan shivers worked as a member of the texas state senate from district 4 ( port arthur ) he was succeed by ben ramsey .
+alvah sabin was born october 23 , 1793 . he worked as secretary of vermont .
+agnes kant is a resident of netherlands which uses the euro as its currency . .
+agnes kant is from the netherlands , the leader of which , is mark rutte .
+albert b white died at parkersburg , west virginia , in the united states .
+aaron boogaard was born in saskatchewan and plays for wichita thunder .
+abel hernandez has played for the club peñarol which is managed by jorge orosmán da silva .
+abel hernandez ' s club is us citta di palermo and penarol .
+az alkmaar player adam maher represented the netherlands national side at under 17 level .
+adam maher played for psv eindhoven and represented the netherlands under 17 football team .
+ahmad kadhim assad played for both steel azin f . c . and al shorta sc .
+akeem adams club is ferencvarosi tc , where the manager is thomas doll .
+akeem adams , who plays for the trinidad and tobago national football team formerly played for the t & amp ; tec sports club .
+akeem ayers draft pick is 39 ad his former team is the new england patriots .
+akeem ayers used to play for tennessee titans and he was number 39 in the draft pick .
+akeem dent date of birth is the 27th september 1987 .
+akeem priestley plays for the connecticut huskies , having previously played for sheikh russel kc .
+akeem priestley plays for sheikh russel kc and formerly for rops .
+alaa abdul - zahra has played for al - khor sports club , located in al - khor .
+alaa abdul zahra plays for al kharaitiyat sc managed by amar osim .
+alan martin plays football for hamilton academical f . c and leeds united f . c .
+hamilton academical fc ' s ground is new douglas park and is the club of alan martin .
+aleksander barkov jr . was born on the 2nd september 1995 and plays for the florida panthers .
+aleksander barkov jr was born in tampere finland and plays for the florida panthers .
+fc torpedo moscow , managed by valery petrakov , is a former club of aleksandr chumakov .
+former clubs of aleksandr prudnikov include fc spartak moscow and fc kuban krasnodar .
+aleksandr prudnikov plays for fc tom tomsk which plays in the russian football national league .
+aleksandre guruli ' s club is fc karpaty lviv and he also played for fc dinamo batumi .
+alex plante was born in manitoba in 1989 .
+born on january 8th 1988 , alex tyus plays for the club pallacanestro cantu .
+alex tyus has played in the turkish basketball super league and has also represented the club maccabi tel aviv bc .
+the conservative party of canada is the leader of brandon , manitoba , where alex plante was born .
+adam mcquaid came from canada whose anthem is o canada .
+the english language is spoken in canada which is the birthplace of adam mcquaid .
+aleksandre guruli plays for fc dinamo batumi managed by levan khomeriki .
+aleksandr prudnikov plays for fc spartak moscow at the otkrytiye arena .
+akeem priestley plays for the club rops in the veikkausliiga league .
+akeem adams played for united petrotrin fc , who were playing in palo seco velodrome .
+aaron deer plays the guitar and performs psychedelia music .
+aaron deer is from the united states , specifically indiana .
+aaron turner performs electroacoustic music and he played with the band twilight .
+aaron turner is an avant - garde metal music singer .
+abradab played with the band kaliber 44 and is associated with the rapper magik .
+abradab was born in katowice on 12th november 1978 .
+the birth place of abradab is poland , in katowice .
+the musical genre of ace wilder is hip hop music which has its origins in disco .
+ace wilder is a solo singer who uses the record label warner music group .
+paraguay born agustin barboza is signed to philips records .
+alan frew ' s genre is rock music of which bhangra is a fusion of rock .
+alan frews ' musical genre is rock music , which originated from country music .
+albennie jones plays jazz , which originated from blues music .
+with a background in solo singing , aleksandra kovač , belongs to the musical genre of pop .
+aleksandra kovac is an exponent of rhythm and blues , the music that originated from the blues .
+aleksandra kovač began her musical career in 1990 , she performs soul music .
+alex day performs synthpop music which has its stylistic origin in new wave music .
+alfred garth jones was born in england in 1872 .
+solo singer alfredo zitarrosa is a milonga stylist .
+alfredo zitarrosa started out as a solo singer and is an exponent of taquirari .
+born in uruguay , alfredo zitarrosa died in montevideo .
+
+alfredo zitarrosa has a background as a solo singer and performs zamba music .
+alison o ' donnell was with the bands bajik and plastik mak .
+alison o ' donnell ' s musical genre is folk rock and her recording label is floating world records .
+alison o ' donnell performs jazz music , she plays the bodhran , perscussion , and autoharp in addition to singing .
+allen forrest is a solo singer whose genre is hip hop music .
+the musician andrew white ' s genre is alternative rock which has the subgenre of christian alternative rock .
+anders osborne is associated with phil lesh and friends as well as tab benoit .
+anders osborne genre is rhythm and blues and his record label is rabadash records .
+anders osborne performs rhythm and blues music and is signed to shanachie records .
+andra is a pop singer who started in 2000 .
+andra performs rhythm and blues music , a style that originated from blues .
+andrew rayel is associated with christian burns and the musical artist jonathan mendelsohn .
+andrew rayel has worked musically with jonathan mendelsohn and mark sixma .
+andrew rayel is associated with the musician jwaydan moyine and the musical artist armin van buuren .
+new wave music is the origin of alternative rock , which is the genre of andrew white .
+al anderson of nrbq performs country music which is a genre of music which uses the banjo .
+andrew white is a musician signed to the record label polydor records which is located in london .
+( 19255 ) 1994 vk8 has an apoapsis of 6603633000 . 0 km and an escape velocity of 0 . 0925 km per sec .
+
+
+the escape velocity of ( 66063 ) 1998 r01 is 0 . 0999 km / sec and its epoch is on the 13th of january 2016 .
+( 66391 ) 1999 kw4 has an orbital period of 16244700 . 0 and an epoch date of 2004 - 07 . 14 .
+the epoch date for 66391 1999 kw4 is 2004 - 07 . 14 and it has a rotation period of 9953 . 28 .
+james craig watson who discovered 101 helena died of peritonitis .
+the apoapsis measurement of the celestial boy known as 1036 ganymed is 611961000 . 0 ( kilometres ) and it has an average speed of 16 . 86 km per sec .
+walter baade , who was born in the german empire , discovered 1036 ganymed .
+1036 ganymed was discovered by walter baade , a german national .
+103 hera was discovered by james craig watson , who later died from peritonitis .
+103 hera was discovered by the canadian james craig watson .
+born in nottingham , n . r . pogson , discovered 107 camilla .
+1089 tama , with the epoch date of november 26th 2005 , was formerly called " a919 ha ; 1927 wb ; " .
+the temperature of 1089 tama is 179 . 0 ( kelvins ) and its apoapsis is 373513000 . 0 ( kilometres ) .
+1097 vicia has a periapsis of 279142000000 and an epoch date of 31st december 2006 .
+the temperature of the asteroid called 109 felicitas is 170 . 0 kelvins and it has an apoapsis of 523329000 . 0 km .
+the epoch date of 109 felicitas is the 31st december 2006 , and it has a periapsis of 283326000000 . 0 .
+the celestial body known as 109 felicitas has a rotation period of 47487 . 6 and an epoch date of december 31st 2006 .
+10 hygiea has an apoapsis of 523951582 . 33968 ( kilometres ) and a temperature of 164 kelvins .
+10 hygiea has an epoch date of june 27th 2015 and was formerly named a900ga .
+110 lydia , with a mass of 6 . 7 kilograms , has the epoch date 31st december 2006 .
+the celestial body known as 110 lydia has an orbital period of 142603000 and an epoch date of 31 december 2006 .
+the a - rosa luna which is 125 . 8 metres long , is classed as a cruise ship .
+the a - rosa luna ship which is 125800 . 0 millimetres in length , was ordered on january 22nd 2004 .
+aida cruises is located in germany and is operated by aidastella .
+aida cruises , located in rostock , are the operator of the ship aidaluna .
+the aidaluna has a top speed of 40 . 744 and it 252 metres long .
+the aidastella was christened on the 16th of march , 2013 and is 253260 . 0 millimetres long .
+the diesel - electric transmission alco rs - 3 was built by the montreal locomotive works .
+the alv x - 1 rocket has 2 stages and a diameter of 1 . 524 metres .
+the amc matador is available in a 1974 model and was assembled in kenosha , wisconsin .
+richard a . teague is the chrysler employee who designed the amc matador .
+the ara veinticinco de mayo ( v - 2 ) which is derived from argentina has a length of 192000 millimetres .
+the alfa romeo 164 , assembled in milan , is a similar means of transport to the saab 9000 .
+the alfa romeo 164 was assembled in italy and is a similar means of transport to the , fiat croma .
+alfa romeo 164 is a related transport to lancia thema and is assembled in italy .
+the alvis speed 25 was made by coventry based alvis car and engineering company .
+the alvis speed 25 has an engine of 4387 cubic centimeters and a transmission system comprising a single plate clutch , separate 4 - speed gearbox all - silent and all - syncromesh , centre change lever , open tubular propellor shaft with metal joints and spiral bevel fully floating back axle .
+alvis speed 25 has a straight - six engine and has a transmission system comprising a single plate clutch , separate 4 - speed gearbox all - silent and all - syncromesh , centre change lever , open tubular propellor shaft with metal joints and spiral bevel fully floating back axle .
+the amc matador is made by american motors who were succeeded by eagle .
+the antares rocket had its maiden flight on january 9th 2014 and was launched from the mid - atlantic regional spaceport .
+the ara veinticinco de mayo ( v - 2 ) comes from argentina which is led by gabriela michetti .
+the ariane 5 which was launched at the ela - 3 , was manufactured by airbus defence and space .
+the airbus group is the parent company of airbus defence and space who manufactured the ariane 5 .
+aston martin v8 was made in the uk . the aston martin v8 is connected to the aston martin rham / 1 .
+the aston martin v8 was manufactured by aston martin and was succeeded by the aston martin virage .
+the aston martin v8 ( which was succeeded by the aston martin virage ) and the aston martin dbs are a related means of transport .
+aston martin virage succeeded the aston martin v8 and is manufactured by aston martin .
+the final flight of atlas ii , which has a diameter of 3 . 04m , was on 16 march 1998 .
+the atlas ii , manufactured by lockheed martin , was launched from cape canaveral air force station .
+audi which is the manufacturer of the audi a1 has a division called the audi e - tron .
+the audi a1 is made by audi who also own ducati .
+the quattro gmbh is a subsidiary of the audi who manufacture the audi a1 .
+the power type of the aidaluna is an engine manufactured by caterpillar inc where douglas r oberhelman is a key person .
+the rocket antares is comparable to the delta ii which was launched from the vandenberg air force base .
+the icebreaker , the aleksey chirikov , is built by finland , where the leader is juha sipila .
+general dynamics is the parent company of the general dynamics electric boat co which built the american submarine nr - 1 .
+the a - rosa luna is powered by the rolls - royce holdings owned , mtu friedrichshafen , made engines .
+aston martin v8 was assembled in the united kingdom which is ruled by queen elizabeth ii .
+born in maine , purple heart recipient , aaron s daggett has fought in battles , the most notable being the battle of fredericksburg .
+born in the netherlands , ab klink attended erasmus university rotterdam and belongs to the christian democratic appeal party .
+abdul taib mahmud ' s birthplace was kingdom of sarawak and he was succeeded by abdul rahman ya ' kub whose deputy was stephen yong kuet tze .
+abdul taib mahmud was born and lives in the kingdom of sarawak and is a member of the " barisan ra ' ayat jati sarawak " party .
+abdulsalami abubakar was born in niger state , graduated from the technical institute in kaduna and became the chief of the defence staff in nigeria .
+nigerian air force member abdulsalami akubar was succeeded by olusegun obasanjo who was in office whilst atiku akubakar was vice president .
+olusegun obasanjo , who was in office while atiku abubakar was vice president , succeeded nigerian army man abdulsalami abubakar .
+abel caballero , born in ponteareas , galicia , spain , worked as a member of the congress of deputies .
+abel caballero was born in galicia in spain and is a member of the spanish socialist workers ' party .
+abner w . sibal served in the united states army and fought in wwii . joseph stalin was a commander in that war .
+born in ridgewood , queens , abner w . sibal , was a member of both the connecticut senate from the 26th district , and the republican party of the united states .
+during the gulf war george h w bush was a commander and adam holloway was involved in the battles whilst serving in the grenadier guards .
+magdalene college cambridge , was the alma mater of adam holloway , who was born in faversham , and is a member of the tories .
+leon trotsky was a commander in the polish soviet war in which adam koc was also involved . koc was born in congress , poland .
+leon trotsky was a commander in the polish - soviet war , part of the russian civil war military conflict in which adam koc was involved .
+born in athens , greece , adonis georgiadis , worked as the deputy parliamentary spokesman of popular orthodox rally .
+adonis georgiadis , born in athens , greece , worked as the minister for health .
+adonis georgiadis was a member of the new democracy party in greece whose color is blue . mr . georgiadis was in office while antonis samaras was prime minister .
+agnes kant is a national of the netherlands and worked at the house of representatives , where the leader is mark rutte .
+agnes kant is a member of the socialist party in the netherlands whose leader is mark rutte .
+agnes kant was born in west germany . she was a member of the house of representatives and her alma mater was radboud university in nijmegen .
+airey neave participated in world war ii and his career lasted from 30 june 1953 to 30 march 1979 .
+airey neave , began his career on march 4th 1974 , fought in world war ii and ended his career on 30th march 1979 .
+born on 22nd september 1856 , albert b white , died on the 3rd july 1941 .
+william m . o . dawson succeeded albert b . white , whose spouse was agnes ward white , who was born in marietta , ohio .
+albert jennings fountain was born in staten island and he died in the u . s . african americans live in the united states .
+albert jennings fountain was born in staten island , new york city and died in new mexico territory .
+albert jennings fountain was born in staten island , new york and also died in the us .
+alberto teisaire died in buenos aires , the country which is governed by the buenos aires city legislature and the leader is , horacio rodríguez larreta .
+alberto teisaire was born in mendoza in argentina and was a rear admiral who was succeeded by isaac rojas .
+alfons gorbach was born in the county of tyrol in austria and later died in graz .
+alfred n . phillips was a member of the u . s . house of representatives from connecticut ' s 4th district who was born in connecticut and succeeded by albert e austin .
+born in darien connecticut , alfred n phillips , worked as member of the u . s . house of representatives from connecticut ' s 4th district and was succeeded by , albert e . austin .
+allan shivers served in the u . s . democratic party , was a member of the texas state senate district 4 for port arthur and was succeeded by wilfred r . cousins , jr .
+alvah sabin , who retired on 3rd march 1857 , represented vermont , where the largest city is burlington .
+alvah sabin , who was born on october 23rd , 1793 , was a member of the whig party of the united states which was led by henry clay .
+alvah sabin was born in georgia vermont and became a member of the whig party of the united states which is led by daniel webster .
+abraham lincoln was a commander in the american civil war , where us born albert jennings fountain fought .
+alfred moore scales was in the american civil war , battle of fredericksburg . jefferson davis was an american civil war commander .
+alfons gorbach , was born in the county of tyrol and died in austria , the leader of which , is doris bures .
+alfons gorbach was born in the state of tyrol and died in austria , where the leader is doris bures .
+doris bures is the leader of austria where alfons gorbach died in styria .
+robert e lee was a commander in the battle of salem church , which was one of the military conflicts in the american civil war . aaron s daggett fought in the same battle .
+born in stellendam , ab klink is a national of the netherlands where the euro is the currency .
+the polish language is used in poland , where adam koc was from . poland has an ethnic group called kashubians .
+19255 1994 vk8 has a mass of 5 . 6kg and an escape velocity of 0 . 0925 kilometres per second . its apoapsis is 6603633000 . 0 km .
+( 410777 ) 2009 fd , which was discovered by spacewatch , has an orbital period of 39447000 . 0 and a periapsis of 88234300000 . 0 .
+with an apoapsis of 254989570 . 60815 kilometres , ( 66063 ) 1998 ro1 , has a minimum temperature of - 71 . 0 degrees celsius and a maximum temperature of 500 . 0 kelvins .
+having a density of 2 . 0 gm per cu cm , ( 66391 ) 1999 kw4 , has an apoapsis of 162164091 . 8388 kilometres , an the average speed of 37 . 16 km per sec .
+
+1001 gaussia , which was formerly called " 1923 oaa907 xc " , has an epoch date of 31 july 2016 and a periapsis of 419113394 . 55312 kilometres .
+101 helena ; has a mass of 3 . 0 kgs , an escape velocity of 0 . 0348 kilometres per second , and an apoapsis of 441092000 . 0 kilometres .
+walter baade , a german national who graduated from the university of gottingen , discovered 1036 ganymed .
+james craig watson was the discoverer of 103 hera , the epoch of which is on the 31st of july 2016 . he died in madison , wisconsin .
+103 hera was discovered by james craig watson . he died in madison , wisconsin of peritonitis .
+103 hera has the epoch of 27 august 2011 . it has an orbital period of 1622 . 213 days and an apoapsis of 437170000 . 0 ( kilometres ) .
+the celestial body known as 103 hera has a temperature of 170 kelvins . it has has an escape velocity of 0 . 0482 kilometres per second and an apoapsis of 437170000 . 0 kilometres .
+nr pogson was an english national who was born in nottingham and discovered 107 camilla .
+the 1089 tama ( formally known as a894 va ; a904 vd ) has an orbital period of 1202 . 846 days and an epoch date of the 26th november 2005 .
+1089 tama , with the epoch date november 26th 2005 , has a periapsis of 288749000000 . 0 . and an apoapsis of 373513000 . 0 kilometres .
+
+weighing 7 . 5kgs , 109 felicitas , has an epoch date of december 31st 2006 , and its orbital period is , 139705000 . 0 .
+109 felicitas has an epoch date of december 31st 2006 . its orbital period is is 139705000 . 0 and its apoapsis is 523329000 . 0 ( kilometres ) .
+10 hygiea ; has an average speed of 16 . 76 kilometres per second , an apoapsis of 523951582 . 33968 kilometre and takes 5 . 57 days to orbit .
+the celestial body known as 10 hygiea , has a surface area of 837080 . 744 square km and an average speed of 16 . 76 km per secs . 10 hygiea has an apoapsis of 523951582 . 33968 kilometres .
+the celestial body known as 10 hygiea has a surface area of 837080 . 744 square km . it has an apoapsis of 523951582 . 33968 kilometres and a temperature of 164 kelvins .
+110 lydia has a mass of 6 . 7 kg , a periapsis of 377016000000 . 0 , and has an epoch date of december 31st , 2006 .
+110 lydia , with the epoch date december 31st 2006 , has an apoapsis of 440756000 . 0 km and a periapsis measurement of 377016000000 . 0 .
+aaron bertram plays for the suburban legends pop music band . he is an artist with the band kids imagine nation .
+from indiana ( united states ) , aaron deer ' s musical genre is , indie rock .
+american , aaron deer , whose genre is psychedelia , is from indiana .
+aaron turner ' s music genre is black metal and he played with the twilight band . he is also associated with the greymachine band .
+aaron turner ; played with the band twilight , is part of the drone music genre and is associated with the group greymachine .
+aaron turner ; performs ambient music , played with the band twilight and performs for mamiffer .
+death metal is a musical fusion of black metal , the music played by electric guitarist , aaron turner .
+aaron turner is a singer and black metal musician . death metal is a musical fusion of black metal .
+born on 12th november , 1978 , abradab , played with the band kaliber 44 and is associated with the rapper , magik .
+abradab comes from katowice and plays for the kaliber 44 band . he plays with rapper , magik .
+the musical genre of ace wilder is hip hop music . hip hop music originates from funk and has its stylistic origins in disco .
+agustín barboza was born in asunción , paraguay . the leader of paraguay is juan afara .
+al anderson is a singer who plays with the band nrbq . his genre is rock music .
+alan frew is a performer of rock music which originated from country music . a musical fusion of rock music is bhangra music .
+albennie jones is a jazz musician . jazz comes from blues music and the afrobeat is a fusion genre of that music .
+albennie jones was born in errata mississippi and his musical genre is rhythm and blues which is where disco derives .
+aleksandra kovač is associated with the musical artist bebi dol , is part of the band k2 ( kovac sisters duo ) , and musical genre is pop .
+aleksandra kovač , a performer of pop music , is associated with the musical artists bebi dol and kornelije kovač .
+rhythm and blues artist aleksandra kovač is a member of sister duo , k2 , with musician kristina kovač .
+the musical genre of alex day is synthpop , a form of pop music which originated from disco .
+born in manchester , england , alfred garth jones , died in sidcup .
+alfred garth jones , born in england in the u . k . , died in london .
+alfred garth jones , was born in manchester , in the united kingdom and died in london .
+alfred garth jones was born in manchester and died in sidcup . the majority in manchester is the labour party .
+alfred garth jones died in sidcup , london . boris johnson is a leader in the city .
+irish folk musician alison o ' donnell is part of the flibbertigibbet band and formerly of mellow candle .
+folk music is the genre of alison o ' donnell , who was in the bands mellow candle and the flibbertigibbet band .
+alison o ' donnell is a jazz ( funk is a derivative of jazz ) performer who sings , plays percussion , autoharp and bodhan .
+funk is a derivative of jazz , the music alison o ' donnell performs . alison o ' donnell recorded on the record label , static caravan recordings .
+allen forrest ( dothan , alabama ) is a solo singer and an exponent of pop music .
+allen forrest , born in dothan , alabama , performs rhythm and blues . he was originally a solo singer .
+musician andrew white ' s genre is alternative rock which originated from new wave music . nu metal is a music fusion genre of alternative rock .
+anders osborne is associated with the musical artists billy iuso and kirk joseph and also associated with tab benoit .
+anders osborne ’ s musical genre is rock music and record label is rabadash records . the music bhangra is part of the fusion genre , partly coming from rock music .
+andra is a singer and her music genre is dance - pop . she is associated with the band crbl and with the singer puya .
+rhythm and blues singer andra is associated with musicians marius moga and andreea balan .
+andra began her career as a solo singer and is a rhythm and blues singer . disco derives from rhythm and blues .
+the musical genre of andrew rayel is trance music . he is associated with the musical artists jonathan mendelsohn and christian burns .
+andrew rayel , of the music genre trance music , is associated with the musical artists jonathan mendelsohn and bobina .
+musicians andrew rayel and christian burns are associates and while the latter plays house music , the former is associated with musician jwaydan moyine .
+andrew white was once a member of kaiser chiefs and is associated with marry banilow . his record label is the now defunct universal records .
+aaron bertram plays for the suburban legends band and performs ska punk music , which has its origins in ska .
+albennie jones was born in errata , mississippi , united states , where african americans are one of the ethnic groups .
+the 1955 dodge , also named the dodge coronet , has a 3 - speed automatic transmission and a v8 engine .
+a - rosa - luna , a cruise ship 125800 . 0 millimetres in length , was ordered on january 22 , 2004 .
+a - rosa luna has a ship displacement of 1850 tonnes and a top speed of 24 km / h . its length is 125 . 8 metres .
+the aidastella is owned by cost crociere and it ' s operator is german based aida cruises .
+the aidastella was christened on the 16th of march , 2013 , put in service on march 17 , 2013 , and is 253260 . 0 millimetres in length .
+the alco rs - 3 has a four - stroke engine , a length of 17068 . 8 millimetres and was built by the american locomotive company .
+the alco rs - 3 was built by the american locomotive company . it is 17068 . 8mm long and has a v12 engine .
+the american locomotive company , founded in schenectady , new york , were the builders of the alco rs - 3 , which has a length of 17068 . 8 mm .
+alvx - 1 comes from the us where americans live and african americans are an ethnic group .
+the alv x - 1 originated in the united states , a country whose capital is washington dc and has native americans as an ethnic group .
+the alv x - 1 rocket which has a diameter of 1 . 524 meters and has 2 stages was launched one .
+the abarth 1000 gt coupé , with its straight four engine , completed production in 1958 .
+the abarth 1000 gt coupe is a 2 door coupe which is 1 . 55m wide with a wheelbase of 2160mm .
+the icebreaker aleksey chirikov which has a ship beam of 21 . 2 , was built at the arctech helsinki shipyard , in helsinki .
+alfa romeo 164 , asembled in italy ( capital : rome ) , is a related mode of transportation as the fiat croma .
+the lancia thema and the alfa romeo 164 are related . the latter is built in italy where the capital is rome .
+the arese assembled , alfa romeo 164 and the fiat croma as well as the lancia thema , are related types of transportation .
+the alfa romeo 164 , made in milan , along with the fiat croma and the saab 9000 are related cars .
+the alhambra has a ship beam of 8 . 3m , is 63800 . 0 millimetres long , and was launched on 1855 - 05 - 31 .
+the alhambra , which was wrecked , had a ship beam of 8 . 3 metres and was launched on 31 may 1855 .
+alvis car and engineering company was founded in coventry and made the alvis speed 25 . alvis speed 25 has a petrol engine .
+the amc matador is made by american motors who has a key person called roy d chapin . the amc was succeeded by the eagle co .
+the antares rocket , manufactured at the yuzhnoye design office , is relative to the united states based , delta ii .
+the antares rocket function is a medium expendable launch system manufactured at the yuzhnoye design office and launched at the mid - atlantic regional spaceport launch pad 0 .
+arianespace is the manufacturer of ariane 5 which was launched from ela - 3 at the guiana space centre .
+the aston martin v8 assembly took place in newport pagnell , buckinghamshire , england , united kingdom . the aston martin v8 ( has a engine volume of 5 . 3 litres ) and the aston martin dbs are related means of transport .
+the aston martin v8 and the aston martin dbs are related means of transport . the v8 model is assembled in the united kingdom with a 5 . 3 litre engine .
+the us atlas ii was launched from vandenberg air force base and cape canaveral .
+the atlas ii originated from the united states , where native americans are an ethnic group . the leader of the united states has the title president of the united states .
+originating from the u . s , the atlas ii was launched from the spaceport florida launch complex 36 , from the cape canaveral air force station .
+the audi a1 , a hatchback , has a 1 . 2 liter engine and is assembled by audi brussels .
+audi ' s a1 is simiilar to the seat ibiza and the vw polo .
+caterpillar inc . , founded in california and located in peoria , illinois , powers the aidaluna .
+caterpillar inc . is found in illinois and they powered the aidaluna . aidacruises owns the aidaluna .
+the ship aidastella is operated by aida cruises which is owned by costa crociere is in genoa .
+the rocket antares is comparable to the american , delta ii . the launch site of the delta ii was at the vandenberg afb space launch complex 2 .
+the ariane 5 was launched at ela - 3 at the guiana space centre . the guiana space centre has its headquarters in french guiana .
+the launch site of the ariane was ela - 3 at the guiana space centre at kourou , french guiana .
+the builder of the a - rosa is neptun werft , which headquartered in rostock , germany .
+the atlas ii originated from the u . s , where americans live and one of the ethnic groups is african americans .
+aaron hunt represented the club goslarer sc 08 at youth level and has since played for both sv werder bremen and vfl wolfsburg .
+aaron hunt plays for the club sv werder bremen ii and also vfl wolfsburg which is managed by dieter hecking .
+abel hernandez is a member of the central espanol youth team and he plays for hull city afc but his club is us citta di palermo .
+abel hernández played football at youth level for central español . at senior level he has played for us citta di palermo and penarol .
+adam maher was born in the netherlands and his clubs are psv eindhoven and az alkmaar .
+akeem adams played for w connection f . c . and is a member of the united petrotrin f . c . club . which play in palo seco .
+akeem ayers , whose former team was the los angeles rams , was in draft round 2 and his draft pick number was 39 .
+akeem ayers , who formerly played for st louis rams , was number 39 in the draft pick and in draft round 2 .
+akeem dent , who was born on 27 september 1987 in atlanta , georgia , made his debut with the atlanta falcons .
+iraqi born , alaa abdul - zahra , whose club is shabab al - ordon club , plays for the iraq national under 20 football team .
+alaa abdul - zahra ' s clubs are shabab al - ordon and also al kharaitiyat sc whose ground is al khor .
+born on 1 january 1989 , alan martin currently plays for hamilton academical fc , having previously played with clyde fc .
+alan martin ' s football club is motherwell fc and he has also played for the accrington based club accrington stanley .
+born september 2 , 1995 , aleksander barkov jr of tampere , finland , played for the florida panthers .
+aleksander barkov jr was born in tampere , finland on sept . 2 , 1995 and his draft team is the florida panthers .
+aleksandr chumakov was born in the soviet union and died there in russia . the leader of russia is vladimir putin .
+born on 24th february 1989 , aleksandr prudnikov , plays for both , fc alania vladikavkaz and fc kuban krasnodar club .
+aleksandr prudnikov , whose club is fc tom tomsk , was born on 24th february 1989 and has played for the russia national football b team .
+azal pfk player , aleksandre guruli , played for the olympique lyonnais club , the home ground of which , is the parc olympique lyonnais stadium .
+aleksandre guruli , whose club is us lesquin , played for the olympique lyonnais club who have their home ground at parc olympique lyonnais stadium .
+footballer alessio romagnoli , who represented italy at under 16 level , plays for c milan , where the manager is siniša mihajlović .
+alessio romagnoli , who is connected to uc sampdoria , plays for a . c . milan which , is managed by , siniša mihajlović .
+alessio romagnoli plays for a . s . roma and he use to play for the italian national under 16 football team , which is coached by daniele zoratto .
+alessio romagnoli played for the club u . c . sampdoria , and is a member of club italy national under 17 ' s . he was born in italy .
+alex plante was born in brandon , manitoba and is 1 . 9304 m tall . he plays for the anyang halla club .
+born in canada , alex plante is 1 . 9304 metres tall and has played for the club anyang halla .
+alex tyus plays for maccabi ashdod b . c . in the euroleague . the coach of the ashdod team is zvi sherf .
+alex tyus plays for maccabi ashdod b . c who are coached by zvi sherf and are part of the turkish basketball super league .
+aleksandr prudnikov plays for fc tom tomsk and his club is fc spartak moscow , who have their home ground at the otkrytiye arena .
+otkrytiye arena is the home ground of fc spartak moscow , where aleksandr prudnikov played youth football . he later represented fc anzhi makhachkala .
+aleksandr chumakov plays for fc torpedo moscow who are managed by valery petrakov and played in the 2014 - 15 russian premier league .
+abel hernández plays for the uruguay olympic football team and his club is hull city a . f . c . which is managed by steve bruce .
+aleksandr chumakov was born in moscow and died in russia . sergey sobyanin is moscow ' s leader .
+abner plays football for the brazilian national under 20 football team and also for real madrid castilla who are managed by luis miguel ramis .
+footballer , abner plays for the club , real madrid castilla and belongs to c . d . fas club . luis miguel ramis manages the real madrid castilla .
+alex tyus was born in st louis , ( part of greater st . louis ) , where francis g . slay is the leader .
+akeem ayers , whose former team is the new england patriots , made his debut with the american football team tennessee titans based in the city of nashville .
+akeem adams , who plays for the trinidad and tobago national under - 20 football team previously played for united petrotin fc whose ground is at palo seco .
+alexander nouri is the manager of sv werder bremen , which aaron hunt plays for . he also plays for , sv werder bremen ii which is in the league 3 liga .
+abel hernandez , who played for penarol , was a member of the central espanol youth team . abel hernández ' s club is hull city a . f . c . which is managed by , steve bruce .
+abel hernández was a member of youth club peñarol , managed by , jorge orosmán da silva . abel hernandezalso played for the central espanol club and now his club is us citta di palermo .
+when he was younger , abel hernández played for peñarol . he now plays for us citta di palermo in the serie a . league and managed by giuseppe iachini .
+adam mcquaid was born october 12th 1986 on prince edward island . he weighs 94 . 8024 kilograms .
+don sweeney is general manager for the boston bruins , the team adam mcquaid played for . mcquaid was drafted to the columbus blue jackets , from columbus , ohio .
+akeem ayers ; was born on 10th july 1989 , made his debut for the tennessee titans and used to play for the st . louis rams .
+akeem dent was born in atlanta , georgia on 27th september 1987 and played for the houston texans .
+akeem dent , born september 27 , 1987 in atlanta , georgia , on the atlanta falcons . he also played for the houston texans formerly .
+alaa abdul zahra , whose club is al - zawra ' a sc , is also a member of the club , al kharaitiyat sc amar osim is the manager of al kharaitiyat sc . which is located in al khor .
+alaa abdul zahra plays for al kharaitiyat sc , in al khor , and for the iraq national under 23 football team . al kharaitiyat sc is managed by amar osim .
+alaa abdul - zahra , whose club is shabab al - ordon club , also plays for al kharaitiyat sc . which is located in al khor . the manager of al kharaitiyat sc is amar osim .
+footballer , alan martin , was born on the 1st january 1989 . he is 185 . 42 cm tall and plays for both the hamilton academical fc and crewe alexandra fc .
+alan martin , was born on the 1st january 1989 . he is 185 . 42 cm tall , a footballer for the crewe alexandra fc and plays in the scottish national under 21 football team .
+born on feb . 24 , 1989 and measuring 185 cm tall , aleksandr prudnikov plays for the fc kuban krasnodar and is part of the dynamo moscow fc .
+aleksandr prudnikov was born on 24 - 02 - 1989 , he is now 185cm tall . his club is fc spartak moscow but he currently plays for fc rubin kazan .
+aleksandre guruli was born in batumi and he is 1 . 78m tall . he has played for fc karpaty lviv and fc zestafoni .
+alex plante , who played for anyang halla , was born on 1989 - 05 - 09 , in canada .
+1 . 9304m tall alex plante , whose club is anyang halla , was born in canada , in 1989 .
+aaron boogaard ' s birthplace is canada . the country , where one of the languages spoken is inuktitut . it is also where o canada is the national anthem and the leader is elizabeth ii .
+the anthem of canada is o canada , the leader is elizabeth ii , one of the ethic groups in canada are the asian canadians and it is the birthplace of aaron boogaard .
+elizabeth ii is canada ' s leader and the national anthem is " o canada " . it is home to aaron boogaard and the slavey language is spoken .
+aleksandr prudnikov , who plays for fc kuban krasnodar , also plays for fc terek grozny . rashid rakhimov is the manager of fc terek grozny , the ground of which , is located in grozny .
+fc torpedo moscow who are managed by aleksandr chumakov and whose chairman is aleksandr tukmanov , played the 2014 – 15 season in the russian premier league . aleksandr chumakov has played for the club .
+akeem dent ' s first team were the atlanta falcons and his former team are the houston texans , which are based in the city of houston and play in texas .
+abel hernández was a member of youth club peñarol , that play in the uruguayan primera división league . his current club is hull city a . f . c . which is managed by , steve bruce .
+
+( 66063 ) 1998 ro1 had its epoch date on 2013 - 11 - 04 and has an orbital period of 360 . 29 days . it has an escape velocity of 0 . 0999 km / s and its apoapsis is 254989570 . 60815 kilometres .
+the mean temperature of ( 66063 ) 1998 ro1 is 265 . 0 kelvins and its apoapsis is 254989570 . 60815 kilometres . it has an epoch date of 4 november 2013 and an orbital period of 360 . 29 days .
+the epoch of 1000 piazzia is 2015 - 06 - 27 . it has an escape velocity of 0 . 0252 km / sec , a periapsis of 352497000000 . 0 and an orbital period of 488160 . 0 .
+1923 oaa907 xc is the original name of 1001 gaussia , which was discovered by sergey belyavsky and has an epoch date of june 27th 2015 . its periapsis measures 419113394 . 55312 kilometres .
+1036 ganymed was discovered by walter baade whose alma mater was the university of gottingen . he had a doctoral student named allan sandage . mr . baade was born in germany .
+1036 ganymed was discovered by walter baade . baade was born in preußisch oldendorf and attended the university of gottingen where one of his doctoral students was halton arp .
+walter baade , who had a doctoral student named halton arp , discovered 1036 ganymed . he had graduated from the university of gottingen and later died in west germany .
+james craig watson was the discoverer of 103 hera . his alma mater is the university of michigan and he died in madison , wisconsin of peritonitis .
+canadian james craig watson , who dies in madison , wisconsin , was the discoverer of 103 hera , which has an apoapsis of 437170000 . 0 ( kilometres ) .
+james craig watson of canada passed in madison , wisconsin from peritonitis . he was the discoverer of 103 hera .
+n . r . pogson discovered 107 camilla which has a periapsis of 479 , 343 , 000 kilometres . pogson was born in nottingham and died in chennai .
+107 camilla was discovered by n . r . pogson , who was born in nottingham and died in chennai . it was discovered on 1 march 2001 .
+1089 tama ( previously called a894 va ; a904 vd ) ; has an orbital period of 1202 . 846 days , a periapsis of 288749000000 . 0 , and the epoch date , 2005 - 11 - 26 .
+1089 tama , with the epoch date november 26th 2011 , has an escape velocity of 0 . 0068 kmps . it orbital period is 1202 . 846 days and it has an apoapsis of 373513000 . 0 ( kilometres ) .
+1097 vicia , with the epoch date december 31st 2006 , has a mass of 98 kgs , an apoapsis of 511592000 . 0 km and an orbital period of 135589000 . 0 .
+109 felicitas has an orbital period of 139705000 . 0 and a periapsis of 283326000000 . 0 . its epoch date is 31 december 2006 , and it has an escape velocity of 0 . 0473 kilometres per second .
+10 hygiea was formerly known as a900 ga and has an epoch date of 27 june 2015 . the orbital period is 5 . 57 days and the periapsis measurement is 416136000000 . 0 .
+the celestial body known as 1101 clematis has the epoch date of 31 july 2016 and an apoapsis of 520906000 . 0 ( kilometres ) . it has an orbital period of 183309000 . 0 and an escape velocity of 0 . 02 kmps .
+1101 clematis , formerly known as " 1928 sj " , has an orbital period of 183309000 . 0 and a periapsis of 445895000000 . its epoch date is december 31st 2006 .
+1101 clematis ' s escape velocity is 0 . 02 km / s , prbital period of 183309000 , periapsis of 445895000000 , and an epoch on the 31st of december .
+the 1955 dodge is manufactured by dodge and it has a v8 engine . it has a wheelbase of 120 inches and has a 3 speed automatic transmission .
+the 1955 dodge is related to the chrysler newport and the desoto custom which was made by desoto and succeeded by the desoto firedome .
+located at rostock , aida cruises operate aidastella ship which was built by meyer werft and owned by costa crociere .
+aidastella is 253260 . 0 millimetres long and was built by meyer werft . it is owned by costa crociere and operated by aida cruises .
+the alco rs - 3 , built by the american locomotive company , has a diesel - electric , v12 engine and was produced from may 1950 to august 1956 .
+the alco rs - 3 has a v12 engine and a length of 17068 . 8 millimetres . it was produced between may 1950 and august 1956 by the american locomotive company .
+the alco rs - 3 was made in the u . s . in schenectady , n . y . by the american locomotive co . the alco rs - 3 is 17068 . 8 millimetres long .
+the alco rs - 3 was built by the montreal locomotive works and produced between may 1950 and august 1956 . it has a v12 engine and a diesel - electric transmission .
+the alco rs - 3 was built by the montreal locomotive works and produced between may 1950 and august 1956 . it has 12 cylinders and a four - stroke engine .
+the amc matador which is assembled in mexico city is also known as the american motors matador . it is in the style of a station wagon and has an amc v8 engine .
+the amc matador ( alternative name , vam classic ) was assembled in kenosha , wisconsin . it is classed as a mid - size car and it has an amc straight - 6 engine .
+the acura tlx is classed as a mid - size car , with a honda k engine and front - wheel and all - wheel drive . it is assembled in marysville , ohio .
+the acura tlx is a luxury vehicle with a v6 front engine design . it is assembled at the marysville auto plant .
+the finnish built aleksey chirikov is an icebreaker and currently in service . it was built by the archtech helsinki shipyard and has a ship beam of 21 . 2m .
+the icebreaker aleksey chirikov was built in helsinki , finland . finland is led by juha sipila and the demonym is finns .
+the icebreaker aleksey chirikov was built in helsinki by the arctech helsinki shipyard it has a 21 . 2 m long shipbeam and is in service .
+the alfa romeo 164 is related to the lancia thema and the to the saab 9000 and in that they are both cars . the alfa romeo 164 has a straight four engine and was assembled in italy .
+the fiat croma , saab 9000 and alfa romeo 164 are all cars and therefore are related forms of transportation . the alfa romeo 164 , has a v6 engine and its assembly line is in italy .
+the alhambra has a ship beam of 8 . 3m and is 63800 . 0 millimetres long . it was launched on 1855 - 05 - 31 and had wrecked .
+the alvis speed 25 , which has a petrol engine , was manufactured by the alvis car and engineering company . the company was founded in coventry and succeeded by the rover co . .
+the alvis speed 25 , with its straight - six engine , was made by coventry area , alvis car and engineering company , which was succeeded by the rover company .
+american motors was succeeded by eagle and acquired by chrysler , it includes figure roy d . chapin jr . the amc matador is made by american motors .
+general dynamics electric boat is the builder of the american submarine nr - 1 and it was launched on january 25th 1969 . it ' s top speed is 8 . 334 and it has a ship beam of 3 . 8 m .
+the american submarine nr - 1 , which was launched on the 25th of january 1969 , has a top speed of 9 . 334 km / hr , a ship beam of 3 . 8m and a length of 45000 . 0 mms .
+the antares rocket was made by the yuzhnoye design office and launched from the mid - atlantic regional spaceport launch pad 0 . it ' s maiden flight was on 21 april 2013 and the final flight on 28 october 2014 .
+
+aston martin v8 was made by aston martin in the uk whose capital is london . the martin was succeeded by the aston martin virage .
+the aston martin rham / 1 , aston martin v8 and aston martin dbs are a related means of transport . it is assembled in the united kingdom and has a 5 . 3 litre engine .
+the aston martin v8 , manufactured by aston martin , has a 5 . 3 litre engine and was succeeded by the aston martin virage . the aston martin v8 and aston martin dbs are a related means of transport .
+the atlas ii , which is 3 . 04m in diameter , has been launched from cape canaveral air force station and vandenberg air force base . its final flight was december 5 , 2002 .
+audi a1 belongs to the supermini class and is assembled at audi brussels . it has a 1 . 2 litre engine and a front engine , front - wheel drive layout .
+august horch founded audi , which makes the audi a1 . audi e - tron is a division of audi and the company ducati is owned by them .
+caterpillar inc was founded in california and is located in illinois . it powers the aidaluna which is owned by aida cruises .
+the aidastella was built by meyer werft and is operated by aida cruise line . the aidastella is owned by costa crociere , who are located in genoa .
+the delta ii originated in the united states and launched from the cape canaveral air force station . it is similar to the antares rocket which launched from the mid - atlantic regional spaceport launch pad 0 .
+launched at cape canaveral air force station and the vandenberg afb space launch complex 2 was the delta ii us rocket . the antares rocket is similar to the delta .
+the alfa romeo 164 is a sedan that is assembled in italy . it is a similar means of transport to the fiat croma and also related to the opel vectra .
+the alfa romeo 164 , opel vectra and fiat croma are similar means of transport . the alfa romeo 164 is a sedan which was assembled in milan .
+general dynamics is the parent company of the general dynamics electric boat co . out of groton , ct . the gd electric boat co built the american sub called nr - 1 which has a 3 . 8 m beam .
+neptun werft built the a - rosa luna at rostock germany where stanislaw tillich is leader .
+the atlas ii is from the united states , where african americans are among the ethnic groups . washington d . c . is the capital city of the united states and english is spoken there .
+americans live in the u . s . whose capital is washington , d . c . and an ethnic group there is known as african americans . the atlas ii comes from the u . s .
+aaron bertram plays for the kids imagine nation band and his musical genre is ska punk . he also plays for the suburban legends band in which brian robertson plays the trombone .
+coming from indianapolis , indiana , aaron deer , has a background as a solo singer and performs psychedelia music .
+aaron turner , a singer who performs electroacoustic music , is with the band isis and has performed with the group sumac .
+aaron turner played with twilight and old man gloom bands . he started performing post metal in 1995 .
+aaron turner plays electric guitar and his genre is black metal music in which death metal is a fusion . he performed with the band sumac .
+ace wilder was born on july 23 , 1982 in stockholm . he is a solo singer .
+singer ace wilder was born july 23 , 1982 in sweden .
+solo singer ace wilder was born in stockholm in 1982 . he is also a songwriter .
+born in 1982 in sweden , ace wilder is a solo singer and songwriter .
+ahmet ertegun originates from washington d . c , united states . he started out as a non performing personnel in the rhythm and blues .
+ahmet ertegun is from the united states , where african americans are an ethnic group . his genre is rock and roll , which has its stylistic origin in the blues .
+ending his career in 1950 , albennie jones was a performer of rhythm and blues . this genre originated from the blues and has disco as a derivative .
+albennie jones performs jazz music which originated its style from blues music . albennie jones was born in the u . s . a , where on of the ethnic groups , is african americans .
+pop musician and solo singer aleksandra kovač was born 1972 , in belgrade .
+born in the socialist republic of serbia ( 1972 ) , aleksandra kovac , a solo singer , is an exponent of rhythm and blues .
+acoustic musician alex day began in 2006 and is associated with the chameleon circuit and charlie mcdonnell .
+alex day performs electronic music and plays with the band chameleon circuit . his active musical years started in 2006 and he is associated with the musical artist , charlie mcdonnell .
+alfred garth jones was born in 1872 in manchester , england and died in london .
+alfredo zitarrosa died in montevideo , uruguay . the city ' s leader is daniel martinez and the country ' s inhabitants are known as uruguayans .
+with a background as a solo singer , uruguay born alfredo zitarrosa was signed to the rca records label and performed in the musical genre of candombe .
+folk musician , alison o ' donnell ; started performing in 1963 , was with the band bajik and was a member of the flibbertigibbet band .
+alison o ' donnell began performing folk music in 1963 . she ' s been associated with the bands head south by weaving and mellow candle .
+alison o ' donnell is a jazz musician whose record label is the london - based deram records . she is signed to the record label " floating world records . " .
+previously signed to the record label fruits de mer records , jazz musician , alison o ' donnell is signed with the london based , record label , deram records .
+fort campbell is the birth place of allen forrest , who was born in the year 1981 . he is a solo singer who plays acoustic music .
+allen forrest was born in 1981 in fort campbell , ky and raised in dothan , al . he was originally a solo singer and performs hip hop music .
+andrew white is associated with the musical artist marry banilow and he plays alternative rock . that type of music originated from punk rock . nu metal music is a fusion of alternative rock music .
+anders osborne is associated with the musical artists billy iuso and tab benoit . he is an exponent of rock music and worked with the galactic band .
+alligator records is based in chicago and the main genre they deal with is blues . anders osborne ' s record labels are alligator records and shanachie records .
+anders is a professional dance - pop music singer . she is a solo singer and was born in romania .
+andra is a rhythm and blues singer . originating from blues music , rhythm and blues has funk and disco as derivatives .
+in 2009 andrew rayel started his music career . he played trance music . mr . rayel is associated with christian burns and jonathan mendelsohn .
+musicians jwaydan moyine and christian burns are associated with andrew rayel , whose musical genre is trance music , which has its origins in house music .
+andrew white started his musical career in 2003 and is associated with the musical artist , marry banilow . he plays for the band kaiser chiefs and his genre is alternative rock .
+andrew white , who began his musical career in 2003 and was associated with marry banilow , was signed to the now defunct record label universal records . he was a member of the band the kaiser chiefs .
+agustin barboza was born in paraguay which is led by juan afra . he died in asuncion which is part of gran asuncion .
+al anderson ( nrbq band ) performs country music and also was a member of the wildweeds . banjo is used for country music .
+allen forrest performs hip hop music , which has its stylistic origins in disco and funk . drum and bass is a derivative of hip hop .
+the birthplace of alfred garth jones is manchester , ( part of greater manchester ) , england . in manchester the labour party is in the majority .
+aaron turner played post - metal music with the twilight band . he also played with the house of low culture . cello is a post - metal instrument .
+aaron turner plays electric guitar and played with the band twilight . twilight performs black metal music which when part of a musical fusion is called death metal .
+rhythm and blues artist albennie jones was born in the united states . r and b originated from the blues and among the ethnic groups in the u . s . are african americans .
+maine born aaron s daggett fought in the american civil war , was awarded the purple heart and died in west roxbury .
+born in maine , aaron s . daggett fought in the battle of the wilderness , awarded the purple heart , and died in west roxbury .
+ab klink worked at the ministry of health , welfare and sport in netherlands , the country where he was born . he was a student of erasmus university in rotterdam which is affiliated with the association of mbas .
+mirir , malaysia born abdul taib mahmud , who lives in kuching , represented the asajaya region and was a member of the parti pesaka bumiputera bersatu .
+abdul taib mahmud was born and resided in the kingdom of sarawak . he was in the parti pesaka bumiputera bersatu and represented the asajaya region .
+japanese occupied , british borneo , was the birthplace of adenan satem , who succeeded abdul taib mahmud . abdul taid mahmud is a member of barisan ra ' ayat jati sarawak party and resides in sarawak .
+abdul taib mahmud , who lives in sarawak , belongs to the parti pesaka bumiputera bersatu . he was succeeded by adenan satem , who was born in the japanese occupation of british borneo .
+abdulsalami abubakar served in the nigerian army and was in office while mike akhigbe was vice president . oladipo diya was the predecessor of mike akhigbe and atiku abubakar was his successor .
+abdulsalami abubakar was a member of the nigerian air force . he was in office while mike akhigbe was vice president . oladipo diya was the predecessor of mike akhigbe and al - amin daggash was the successor of abdulsalami abubakar .
+abel caballero , born in galicia , spain , served office during prime minister felipe gonzalez ' leadership and juan carlos i of spain ' s monarchy . francisco franco preceded juan carlos i .
+abel caballero was born in galicia in spain , is a member of the spanish socialist workers ' party and worked as minister of transport .
+abraham a ribicoff , married to casey ribicoff , was born in new britain , connecticut which is in the united states , where native americans are an ethnic group .
+adam holloway was born in kent and his alma mater was magdalene college , cambridge . his career began on 5 may 2005 and he fought in the gulf war .
+adam koc , a polish nationalist , fought in the polish - soviet war . joseph stalin was a commander in that war . the polish language is used in poland .
+
+adonis georgiadis , who was born in athens , greece , served as the vice president of new democracy and was later succeeded by makis voridis .
+adonis georgiadis , who was born in athens greece worked for the ministry of economy , development and tourism and his successor was makis voridis .
+adonis georgiadis was born in athens in greece and before being succeeded by makis voridis worked as a member of the hellenic parliament .
+emile roemer is a leader of the socialist party in netherlands of which agnes kant is also a member . the country uses the euro as its currency .
+agnes kant is a national of the netherlands where mark rutte is a leader . kant is also a member of the socialist party and worked at the house of representatives in the netherlands .
+agnes kant is from the netherlands , where the leader is mark rutte . emile roemer is a member of ( and leader of ) the socialist party in the netherlands .
+agnes kant , a netherland national , is a member of the socialist party of the netherlands which is led by emile roemer and uses the colour of red .
+airey neave was born in knightsbridge in london and started his career on the 30th june 1953 . he fought in the battle of france and ended his career on the 30th march 1979 .
+airey neave , who was born in knightsbridge , london , fought in the battle of france . his career lasted only five years beginning march 4th , 1974 and ending on the 30th of the same month in 1979 .
+airey neave served in the royal artillery unit which has a garrison in hohne . he also participated in world war ii where chiang kai - shek was a commander .
+albert b . white , who was born in cleveland an died at parkersburg , west virginia was succeeded by william m . o . dawson who was born in bloomington maryland .
+albert b . white was born in cleveland and his successor was william m . o . dawson . he started his career on march 4 , 1901 and finished it on march 4th 1905 .
+born in new york city ( where french is one of the languages spoken ) , albert jennings fountain battled in the american civil war . the same conflict in which abraham lincoln was a commander .
+new york city was the birthplace of albert jennings and he passed away in dona ana county , new mexico . he fought in the american civil war and one commander in that war was jefferson davis .
+albert jennings fountain was born in new york on staten island and died in new mexico territory .
+alberto teisaire belongs to the justicialist party and was in office while juan peron was president . teisaire died in buenos aires , where the leader is horacio rodríguez larreta .
+alberto teisaire was born in mendoza in agentina and he was a rear admiral . he worked as a provisional president of the argentine senate and his successor was isaac rojas .
+alfred moore scales was born in reidsville , north carolina , is a member of the democratic party in the united states and served as governor of north carolina . he was succeeded by daniel gould fowle .
+connecticut born alfred n phillips served in the us army and fought in the whiskey rebellion battle . he was later a member of the u . s . house of representatives from connecticut ' s 4th district .
+alfred n . phillips , born in connecticut was a member of the united states democratic party and worked as a member of the u . s . house of representatives from the connecticut ' s 4th district . his successor was albert e . austin .
+darien , connecticut is the birthplace of alfred n . phillips and he was a member of the united states democratic party . he was also the mayor of stamford connecticut and his successor was albert e . austin .
+u . s . democratic party member and texas governor , allan shivers , was born in lufkin , texas . he was succeeded by price daniel .
+allan shivers was born in lufkin , texas , and served in the democratic party of the us . he worked as the governor of texas and was eventually succeeded by wilfred r cousins jr .
+alvah sabin is from the state of vermont , which has the largest city of burlington . sabin worked as the secretary of state of vermont and represented vermont ' s 3rd congressional district .
+alvah sabin was a member of the whig party of the united states and he represented vermont , whose biggest city is burlington . daniel webster was a leader of the whig party in the united states .
+the battle of gettysburg took place during the american civil war when robert e lee was a commander . aaron s daggett fought at the battle of gettysburg and was awarded the purple heart .
+argentinian , alberto teisaire was in office while juan peron was president . perón was a member of the labour party in argentina where the dominant language is spanish .
+juan peron was a member of the labour party of argentina and during his presidency alberto teisaire was in office . teisaire was born in mendoza in argentina and was eventually succeeded by isaac rojas .
+carnival corporation & amp ; plc is the parent company of costa crociere which is the owner of the aidastella . the aidastella was built by meyer werft and is operated by aida cruises which is based in germany .
+the aidastella was built by meyer werft and operated by the aida cruise line . it is 253260 . 0 millimetres long with a beam of 32 . 2 metres and a top speed of 38 . 892 km / h .
+the alco rs - 3 was built by the american locomotive company and was produced between may 1950 and august 1956 . it has a cylinder count of 12 , is 17068 . 8 ( millimetres ) in length , and has a four - stroke engine .
+the alco rs - 3 , built by the american locomotive company , has a v12 cylinder engine and is 17068 . 8mm long . it was produced from may 1950 to august 1956 .
+the alv x - 1 originated in the united states where the inhabitants are known as americans and include the ethnic group of native americans . the capital city is washington dc and the national anthem is the star spangled banner .
+the amc matador , also known as american motors matador , was assembled in thames , new zealand . the amc matador is a mid - size station wagon with a v8 engine type .
+a transport london company called p & amp ; o owns the alhambra ship which contains a humphrys , tennant and dykes power type and has a ship beam of 8 . 3 m . the ship was built by the samuda brothers .
+the amc matador is manufactured by american motors , whose subsidiary is the wheel horse and successor is eagle . american motors was acquired by chrysler and roy d chapin jr is a key person there .
+the american submarine nr - 1 which was launched on january 25th 1969 has a top speed of 8 . 334 km / h . it has a 3 . 8m ship beam , a draft of 4 . 6m and measures 45000 mms in length .
+the antares rocket is comparable to the delta ii , which originates from the united states . the launch site of the antares was the mid atlantic regional spaceport launch pad 0 , which is also associated with the rocket minotaur iv .
+the antares rocket ' s maiden flight was on the 28th october 2014 and its last flight on 2014 - 07 - 13 . its launch site was the mid - atlantic regional spaceport launch pad 0 . it is manufactured at the yuzhnoye design office and is 3 . 9 m in diameter .
+the antares rocket , manufactured by the yuzhnoye design office , was launched from the mid - atlantic regional spaceport launch pad 0 . at 3 . 9m in diameter , the antares rocket had its maiden flight on the 28th october , 2014 and final flight on the 18th of september , 2013 .
+the airbus defence and space manufactured the ariane 5 which has a diameter of 5 . 4 metres . it was launched from the guiana space centre , making its maiden flight on 11 august 2005 and the final flight on 18 december 2009 .
+the guiana space centre ' s headquarters are located in french guiana , it is the location of the ela - 3 launchpad where the ariane 5 was launched . ela - 3 is operated by arianespace , which is located in courcouronnes .
+the aston martin dbs ( later succeeded by the am vantage ) and the aston martin v8 are related means of transport . the latter is assembled at newport pagnell by aston martin and has a 5 . 3 litre engine volume .
+the aston martin rham / 1 , and the aston martin dbs are related means of transport to the aston martin v8 . the latter vehicle is a coupe with a 5 . 3 litre engine and is assembled at newport pagnell .
+the aston martin v8 , suceeded by the the aston martin virage and made n the united kingdom , led by elizabeth ii . the vs , the virage ( made by aston martin ) and the aston martin dbs , are related modes of transportation .
+the audi a1 is a hatchback belonging to the supermini class . it has a 1 . 2 litre engine , a front - engine with front - wheel - drive and is assembled in brussels , belgium .
+made by audi , whose founder is august horch , is the audi a1 . subsidiaries of audi are the ducati , audi e - tron and lamborghini .
+the power type of the aidaluna , owned by aida cruises , is the caterpillar inc . engine . caterpillar , inc . was founded in california in the u . s . and is located in peoria , illinois .
+douglas r . oberhelman is the key person at caterpillar inc which was founded in the united states . the company powers the aidaluna which is owned by aida cruises located in rostock .
+douglas r . oberhelman is a key person at caterpillar inc . who provide the power type for the aidaluna owned by aida cruises . the company was founded in the united states and located in peoria , illinois .
+the aidastella , which was built by meyer werft , is operated by aida cruises . it ' s owner are costa crociere who are located in genoa and a subsidiary of carnival corporation & amp ; plc .
+finland is led by juha sipila and is home to the finns . sami languages are spoken there and the icebreaker ship , aleksey chirikov , was built there in the arctech helsinki shipyard .
+the builder of the a - rosa is neptun werft whose hq is in rostock , germany . berlin is the capital in that country and joachim gauck is the name of one of its leaders .
+the a rosa luna was built on the neptun werft which is found in rostock , germany . berlin is its capital and andreas vosskuhle is one leader there .
+the united states , has a capital city of washington d . c . , it ' s inhabitants are known as americans and an ethnic group that lives there are native americans . the language of the us is english and it is the creator of the atlas ii .
+abel hernandez is a member of penarol ' s youth club and the club is managed by jorge orosmán da silva . us citta di palermo and the central espanol are also mr . hernandez ' s clubs . the latter club is part of the uruguayan segunda división league .
+former soviet union international footballer aleksandr chumakov died in russia , where the leader is valentina matviyenko . fc torpedo moscow , managed by valery petrakov , once signed aleksandr chumakov .
+aleksandre guruli played for the olympique lyonnais club who play their home games at the parc olympique lyonnais and have the chairman , jean - michel aulas . his current club is fc karpaty lviv managed by oleh luzhny .
+defender alessio romagnoli , whose former clubs include uc sampdoria , has played for the serie a side ac milan , which is managed by siniša mihajlović .
+alessio romagnoli is a member of the italian national under 17 football team and has represented the club u . c . sampdoria . he is presently with the ac milan that is managed by siniša mihajlović and whose chairman is silvio berlusconi .
+central español , where abel hernandez played youth football , are part of the uruguayan segunda división league . hernández has represented uruguay at international level and also played for the club u . s . città di palermo , where the manager is giuseppe iachini .
+aleksandr prudnikov plays for fc spartak moscow who have their home ground at otkrytiye arena and are chaired by sergey rodionov . he also plays for fc amkar perm under the management of gadzhi gadzhiyev .
+aleksandr prydnikov belongs to fc terek grozny , which is managed by rashid rakhimov , and has its grounds at grozny . prudnikov plays for fc spartak moscow , which includes chairman sergey rodionov .
+aleksandr prudnikov once played for fc spartak moscow ' s youth team but now plays for the fc dynamo moscow and the fc terek grozny out of grozny . the fc terek grozny sees a manager in rashid rakhimov .
+aleksandr chumakov was born in the soviet union and was a member of the soviet union national football team . he has also played for fc torpedo moscow who are managed by valery petrakov and participated in the 2014 - 15 russian premier league .
+akeem adams is a member of the united petrotrin f . c . club and also ferencvarosi tc . the latter club , whose ground is palo seco , is chaired by gabor kubatov and managed by thomas doll .
+akeem adams belongs to ferencvárosi tc , which is managed by thomas doll and includes chairman gábor kubatov . he has played for united petrotrin f . c . , who play in palo seco velodrome .
+the epoch of 19255 1994 vk8 , which has a mass of 5 . 6 kilograms is december 31st , 2006 . its orbital period is 8 , 788 , 850 , 000 kilometres , with a periapsis of 6 , 155 , 910 , 000 , 000 kilometres and an apoapsis of 6 , 603 , 633 , 000 kilometres .
+101 helena was discovered by the canadian james craig watson on august 15th 1868 . mr watson , who studied at the university of michigan , died in madison , wisconsin .
+101 helena was discovered by james craig watson who originated from canada and graduated from the university of michigan . he later died of peritonitis in madison , wisconsin .
+walter baade , who had a doctoral student named allan sandage , was born in the german empire and graduated from the university of gottingen . he discovered 1036 ganymed and later died in gottingen .
+walter baade , born in the german empire and graduate of the university of gottingen , discovered 1036 ganymed . halton arp and allan sandage were doctoral students of walter baade .
+
+james craig watson , a canadian who attended the university of michigan , discovered 103 hera on sept . 7 , 1868 . he died in madison , wisconsin .
+103 hera was discovered by james craig watson , a canadian who studied at the university of michigan and died in madison , wisconsin . its periapsis is 371240000 . 0km .
+b . zellner was the discoverer of 107 camilla that has an orbital period of 2368 . 05 days . it ' s epoch is dec . 31 , 2006 . the celestial body has a periapsis of 479343000 . 0 kilometres and an apoapsis of 560937000 . 0 km .
+107 camilla , epoch date 31 december 2006 , was discovered by c woods and has an orbital period of 2368 . 05 days . the apoapsis and periapsis measurements are 560937000 . 0 km and 479343000 . 0 km respectively .
+107 camilla , which has an epoch date of december 31st 2006 , was discovered by f . vilas . its orbital period is 2 , 368 . 05 days , its periapsis is 479 , 343 , 000 kilometres and has an apoapsis of 560 , 937 , 000 kilometres .
+n . r . pogson was born in nottingham in the u . k . and died in chennai . he discovered 107 camilla which has an absolute magnitude of 7 . 08 .
+1089 tama was formerly known as a919 ha ; 1927 wb , has an epoch of november 26th , 2005 and an orbit of 1 , 202 . 846 days . its escape velocity is . 0068 kilometres a second and it has an apoapsis of 373 , 513 , 000 kilometres .
+the epoch of 1101 clematis is on the 31st of july 2016 and it has a mass of 5 . 7 kilos . the orbital period for 1101 clematis is 183309000 . 0 , has an apoapsis of 520906000 . 0 kilometres , and an escape velocity of 0 . 02 kilometres per second .
+11264 claudiomaccone has the epoch date of 26 november 2005 , its temperature is 173 . 0 kelvins and has an orbital period of 1513 . 722 days . it has a periapsis of 296521000 . 0 kilometres and its apoapsis is 475426000 kms .
+abdul taib mahmud was born in miri , malaysia , on may 21st 1936 and lives in kuching . he represented asajaya and was a member of the parti pesaka bumiputera bersatu .
+abdul taib mahmud was born in the kingdom of sarawak and lives in demak jaya , jalan bako , kuching , sarawak . he is a member of the parti pesaka bumiputera bersatu and was succeeded by the university of adelaide educated adenan satem .
+abdulsalami abubakar ended his career on 1999 - 05 - 29 , having been in office while mike akhigbe was the vice president . oladipo diya was predecessor to mike akhigbe , who belonged to the nigerian navy branch of the military and his successor was atiku abubakar .
+abdulsalami abubakar , who served in the nigerian army , ended his career on may 29th , 1999 and served in office while mike akhigbe was the vice president . akhigbe succeeded oladipo diya while olusegun obasanjo took over from abubaka when he left office .
+abraham a ribicoff was an american national born in connecticut . he was a member of the united states democratic party and held the office of governor of connecticut before he died in the us .
+abraham a . ribicoff who was born in connecticut , united states , worked as the united states secretary of health , education , and welfare and he was a member of the democratic party in the united states . he died in new york city .
+abraham a . ribicoff was born in connecticut . he was married to casey ribicoff . he was also a national to the united states and he died in new york . the native americans are an ethnic group in the u . s .
+gravesham parliament member and magdalene college cambridge alum adam holloway , was born in kent . a grenadier guard , he began his career 05 / 05 / 2005 .
+englishman adam holloway , born in faversham , kent and having attended magdalene college in cambridge , then joined the grenadier guards . he is a member of the uk conservative party and began his political career on 5th may 2005 .
+adonis georgiadis , was born in athens , greece and was succeeded by makis voridis . adonis georgiadis , was in office while antonis samaras was prime minister . antonis samaras was in office while konstantinos mitsotakis was prime minister .
+agnes kant is a national of the netherlands , where the leader is , mark rutte . agnes kant worked at the house of representatives in the netherlands . emile roemer is leader and member of the socialist party in the netherlands .
+agnes kant is a national of the netherlands which is led by mark rutte . she was a resident of doesburg and worked at the house of representatives which is led by khadija arib .
+agnes kant of netherlands lives in doesburg . mark rutte is leader of the country and one of its political parties is the socialist party which is led by emile roemer .
+born on the 22nd of september , 1856 , albert b white died at parkersburg , west virginia on 1941 - 07 - 03 .
+cleveland born albert b white , whose wife was agnes ward white , died in parkersburg , west virginia . he was succeeded by william m o dawson , who was born in bloomington , maryland .
+albert b white was born in cleveland and was married to agnes ward white . he worked as the governor of west virginia and finished his career on 4 march 1905 being succeeded by william m o dawson .
+succeeded by william m . o . dawson , albert b . white was born in cleveland and was a member of the republican party in the united states . albert b . white started his career on march 4 , 1901 and finished his career on march 4th 1905 .
+alberto teisaire was in office while labour party member juan peron , who was married to eva peron , was president of argentina . teisaire died in buenos aires whose leader is horacio rodríguez larreta .
+born on 1891 - 05 - 20 , born in mendoza , argentina , alberto teisaire , was a rear admiral by profession . he worked as the provisional president of the argentine senate and his successor was isaac rojas .
+alfons gorbach ' s place of birth was the state , tyrol , in austria . he was a politician from the austrian people ' s party , who died in graz , in styria .
+alfons gorbach was born in imst in tyrol and died in graz in styria . he was a politician from the austrian people ' s party .
+alvah sabin represented vermont ' s 3rd congressional district and his career ended on march 3rd 1857 . he was from vermont , where the largest city is burlington and he died in sycamore , illinois .
+burlington is the largest city in vermont , where alvah sabin was born . he represented vermont ' s 3rd congressional district and died in sycamore , illinois .
+native americans are the ethnic group in the united states . alfred moore scales lived in the united states and involved in was the battle of gettysburg . the battle of gettysburg was part of the american civil war conflict , during which , one of the commanders was jefferson davis .
+native americans are one of the ethnic groups in the united states , alfred moore scales ' s country . alfred moore scales took part in the siege of petersburg , which occurred during the american civil war . jefferson davis was a commander in the american civil war .
+argentina ' s labour party president juan peron was married to eva peron . argentina is spanish speaking and home to alberto teisaire ( in office during peron ' s leadership ) .
+aaron bertram plays for the kids imagine nation and the suburban legends bands , where he performs ska punk music , a form of punk rock . brian robertson , a trombonist , is a band member of suburban legends .
+aaron deer comes from indiana , having been born in the united states . he is a solo singer / performer of the musical genre indie rock , and is an artist for the wee giant band .
+aaron turner came from the u . s . he is a black metal musician who started performing in 1995 . he plays in the lotus eaters band having previously performed with old man gloom .
+aaron turner is from massachusetts . he is a musician who loves sludge metal and played with the band twilight as well as the lotus eater ' s band , in 1995 .
+abradab was born in katowice , poland on 12 november 1978 . he is associated with the rapper magik and played with the kaliber 44 band .
+solo singer ace wilder was born on july 23 , 1982 in the country of sweden .
+ace wilder was born in stockholm on july 23 , 1982 . he is a songwriter with a background as a solo singer .
+ace wilder is a hip hop musician . hip hop originates from funk and disco . gangsta rap is a sub genre of hip hop and drum and bass is a derivative of it .
+hip hop musician ace wilder was born in sweden . hip hop has its origins in funk and disco while being an influence on drum and bass .
+musician al anderson was born in windsor connecticut and began his career in 1966 . he was a member of the band the wildweeds and is now part of the rock group nrbq .
+al anderson is a guitarist and rock musician with the band nrbq . rock originates from country music and is an influence on the fusion style of bhangra .
+alan frew is from coatbridge , newmarket , ontario , canada and he is a musician and solo singer .
+pop music solo singer aleksandra kovač was born 1972 , in the socialist republic of serbia . disco is a fusion of pop music .
+rhythm and blues singer aleksandra kovač , began her career circa 1990 and is a member of the duo k2 , with kornelije kovač .
+alfred garth jones was born in manchester , england in the united kingdom in 1872 . he died in london .
+alfred garth jones was sidcup was born in manchester and died , in boris johnson and european parliament led , sidcup , london .
+alfred garth jones was born in manchester and passed away in sidcup , london . the labour party is the leader of manchester . the european parliament is the leader of london .
+ireland folk musician alison o ' donnell is signed to floating world records and became active in 1963 . she is associated with the flibbertigibbet band and mellow candle .
+funk is derived from jazz music as performed by alison o donnell . she is signed with the record label stanyan records and also deram records which is based in london .
+alison o ' donnell , who plays the autoharp , is a performer of jazz , which has its origins on folk music . jazz has a derivative called funk and a fusion genre named afrobeat .
+jazz singer alison o ' donnell plays the bodhran , percussion and autoharp . jazz derives from funk and blues while being an influence on funk and afrobeat fusion .
+allen forrest was born in fort campbell , dothan , alabama in 1981 . he plays acoustic music and has a background as a solo singer .
+anders osborne , a rock musician , started performing in 1989 and has worked with galactic and voice of the wetlands all - stars band . mr . osborne is associated with billy iuso .
+anders osborne began his blues musical career in 1989 and has worked with galactic , tab benoit and billy iuso .
+andra is a dance - pop singer who was born in campia , turzii in 1986 . she began her career as a solo singer and makes her living as a singer and reality television judge .
+the singer andra was born in romania in 1986 and performs rhythm and blues as a solo artist .
+andrew rayel is associated with a number of musical artists , these include : armin van buuren , bobina , mark sixma , jonathan mendelsohn , christian burns , jwaydan , alexander popov , jano , alexandre bergheau , jonny rose , sylvia tosun , lira yin , and alexandra badoi . his musical genre is trance music which has its stylistic origins in pop .
+andrew rayel was born in chisinau moldova . he ' s an associate of armin van buuren and christian burns . mr rayel ' s musical genre is trance which he started in 2009 .
+andrew rayel was born in chisinau , moldova and began his trance music career in 2009 . he is associated with jwaydan moyine and bobina .
+string instrumentalist andrew rayel , who performs trance music , is associated with christian burns and jwaydan moyine , the latter of which has worked with the musical artist john digweed .
+b - unique records and polydor records artist andrew white began in 2003 and is associated with the kaiser chiefs and artist marry banilow .
+allen forrest was born in fort campbell and is a hip hop musician . hip hop originates from funk and disco and was derived into drum and bass music .
+allen forrest was born in 1981 and plays hip hop music . hip hop originated from disco and funk musics . drum and bass gets its sounds from hip hop .
+alfred garth jones was born in manchester , where the labour party is in the majority and died in sidcup , london . parliament of the united kingdom is the leader of london .
+agustin barboza was born in asuncion , paraguay where the people speak spanish . juan afara leads the country and an ethnic group in paraguay are the mestizo people .
+musician andrew white , is signed to the record label b - unique records and is signed to the london based , record label , polydor records . his genre is alternative rock , the fusion genre of which , is nu metal .
+andrew white is an alternative rock musician with polydor records and was once with universal records . polydor records is in london . nu metal is a fusion of alternative rock sounds .
+al anderson plays the guitar for rock band nrbq . rock comes from country music which originates from blues . bhangra music is a musical fusion of rock music .
+the banjo is a staple of country music , the origin of rock , which is also inspired by the blues . rock lends itself to bhangra and is the style of al anderson and nrbq .
+aaron turner plays electric guitar and played with the black metal twilight band and the old man gloom band . a fusion of black metal is called death metal .
+alfredo zitarrosa died in montevideo , the leader of which , is daniel martinez . montevideo is in uruguay , where spanish is the language and where raúl fernando sendic rodríguez is the leader .
+abilene regional airport serves the city of abilene in texas .
+adolfo suarez madrid - barajas airport is located at madrid , paracuellos de jarama , san sebastián de los reyes and alcobendas .
+the runway name at adolfo suarez madrid - barajas airport is 18l / 36r .
+sbct is the icao location identifier of afonso pena international airport .
+afonso pena international airport serves curitiba .
+al - taqaddum air base serves the city of fallujah .
+the length of the runway at al - taqaddum air base is 3684 . 0 .
+14 / 32 is the runway name of alderney airport .
+the runway at allama iqbal international airport has a length of 3360 . 12 .
+the amsterdam airport schiphol ' s 1st runway number is 18 .
+the fifth runway of amsterdam airport schiphol has an asphalt surface .
+06 / 24 , kaagbaan , is the runway name of amsterdam airport schiphol .
+andrews airport ' s is 973 . 0 above sea level .
+the owner of andrews county airport is andrews county , texas .
+
+asphalt is the surface of the first runway of angola international airport .
+antwerp international airport has an elevation of 12 . 0 metres above sea level . e .
+the operating organisation of antwerp international airport is the flemish government .
+the runway length of the appleton international airport is 2439 units .
+the runway length of ardmore airport , new zealand , is 518 . 0 .
+the icao location identifier of ashgabat international airport is utaa .
+the runway name at ashgabat international airport is 11 / 29 .
+south jersey transportation authority is the owner of the atlantic city international airport .
+13 / 31 is the runway name for atlantic city international airport .
+dutch is the language spoken in belgium .
+
+the inhabitants of denmark have the demonym of danes .
+fallujah is located in the country of iraq .
+greenville , wisconsin is located in the united states .
+greenville , wisconsin is in grand chute , wisconsin .
+arabic is the language in iraq .
+the city of madrid is found in spain .
+maple ridge township , alpena county , michigan is part of the united states .
+
+the port authority of n . y . and n . j . serves new jersey .
+
+the united states air force was fighting in the united states bombing of libya in 1986 .
+the boeing c - 17 globemaster iii is a transport aircraft of the united states air force .
+the 11th mississippi infantry monument was established in 2000 .
+adams county , pennsylvania has carroll county , maryland to its southeast .
+artur rasizade is an azerbaijan leader .
+the title of the leader of azerbaijan is prime minister of azerbaijan .
+the native name of the baku turkish martyrs ' memorial is turk sehitleri aniti .
+the address , 11 diagonal street is located in south africa .
+the architectural style of 250 delaware avenue is postmodern .
+
+george winkler is the architect of the 320 south boston building .
+construction of the 320 south boston building began in 1910 .
+the number of rooms in the ac hotel bella sky copenhagen is 814 .
+james pain and george richard pain are the architects of the adare manor .
+
+
+
+the address of amdavad ni gufa is lalbhai dalpatbhai campus , near cept university , opp . gujarat university , university road .
+the asher and mary isabelle richardson house has a reference number of 88002539 in the national register of historic places .
+the architect of asilomar conference grounds was julia morgan .
+the architecture of asilomar conference grounds is of the " arts and crafts movement and american craftsman bungalows " .
+the asilomar conference grounds was constructed in 1913 .
+the asser levy public baths are located in new york city .
+buffalo , new york is part of erie county in new york .
+byron brown is the leader of buffalo , new york .
+county limerick is part of munster .
+
+the name of the leader in ethiopia is mulatu teshome .
+a demonym for residents of india is indian people .
+
+live nation entertainment is located in beverly hills , california .
+manhattan is a part of new york .
+new york city is part of new netherland .
+pacific grove is part of california .
+one of the ethnic groups in south africa is white south africans .
+the leader of the united kingdom is elizabeth ii .
+1634 : the ram rebellion has the isbn number 1 - 4165 - 2060 - 0 .
+eric flint wrote the book " 1634 : the ram rebellion " .
+
+aids journal is from the united kingdom .
+the oclc number of " a glastonbury romance is 76798317 .
+a glastonbury romance is available in hardcover .
+
+a wizard of mars was written by diane duane .
+abhandlungen aus dem mathematischen seminar der universität hamburg can be located by the issn number " 0025 - 5858 " .
+the author of above the veil is garth nix .
+
+the acta palaeontologica polonica issn number is " 0567 - 7920 " .
+the addiction journal has an lccn number of 93645978 .
+addiction ( journal ) is about addiction .
+
+the book alcatraz versus the evil librarians comes from the u . s .
+alcatraz versus the evil librarians was in english .
+the american journal of mathematics discipline is math .
+castle ( the novel ) is written in the english language .
+eric flint was born in burbank , california .
+the parent company of farrar , straus and giroux is macmillan publishers .
+a notable work of john cowper powys is a glastonbury romance .
+soho press is located in the united states .
+faber and faber publish the secret scripture .
+asian americans is one of the ethnic groups in the united states .
+the language of the united states is english .
+a glastonbury romance was published before weymouth sands .
+associazione calcio chievoverona is managed by rolando maran .
+a . d . isidro metapán is in the salvadoran primera división league .
+a . f . c . blackpool fullname is " association football club blackpool " .
+
+afc blackpool ground is located in blackpool .
+a . s . gubbio 1910 has a ground in gubbio .
+a . s . gubbio has 5300 members .
+
+
+azal arena is located in baku .
+the azal pfk competes in the azerbaijan premier league .
+
+akron , ohio is in the usa .
+akron , ohio is located in summit county , ohio , .
+akron summit assault fullname is " akron metro futbol club summit assault " .
+eberhard van der laan is a leader in amsterdam .
+
+christian panucci played for inter milan .
+frank de boer is attached to the club fc barcelona .
+gubbio is a region of umbria .
+sergio mattarella is the leader of italy .
+jens härtel played for fc sachsen leipzig .
+jorge humberto rodríguez is in the fc dallas club .
+luciano spalletti has been associated with udinese calcio .
+massimo drago plays for a . s . d . s . s . nola 1925 .
+michele marcolini is part of the atalanta b . c . club .
+michele marcolini is in the vicenza calcio club .
+peter stoger is attached to the club 1 fc koln .
+rolando maran plays for f . c . bari 1908 .
+jong ajax is the tenant of sportpark de toekomst .
+st . vincent st . mary high school is located in united states .
+
+acharya institute of technology ' s president is b . m . reddy .
+kerala has to its northwest mahé in india .
+mendrisio is a neighbouring municipality of meride .
+bucharest is the capital of romania .
+the dean of school of business and social sciences at the aarhus university is thomas pallesen .
+aarhus university school of business and social sciences ' number of students are 16000 .
+alan bean ' s nationality is the united states .
+apollo 8 ' s backup pilot was buzz aldrin .
+buzz aldrin graduated in 1963 from mit with a sc . d .
+buzz aldrin was a member of the apollo 11 crew .
+buzz aldrin was selected by nasa in 1963 .
+california has a gemstone called benitoite .
+elliot see died on the 28th of february 1966 .
+elliot see died in st louis .
+elliot see has died .
+kevin eastman is the creator of april o ' neil .
+bananaman the tv series was shown on the bbc .
+ben urich ' s full name is benjamin urich .
+the creator of bibbo bibbowski is jerry ordway .
+bo bibbowski is often called bibbo .
+
+the alternative name of black pirate is " jon valor " .
+
+karl kesel is an american .
+marv wolfman won the kirby award .
+peter laird is a united states american .
+scott adsit was born in northbrook illinois .
+the area code for albany , georgia , is 229 .
+albany , oregon is part of the united states .
+the mayor leads albuquerque , new mexico .
+albuquerque , new mexico is led by the new mexico house of representatives .
+albuquerque , new mexico is led by the new mexico senate .
+the area of amarillo , texas is 233 . 9 ( square kilometers ) .
+amarillo , texas is part of randall county , texas .
+anderson is part of richland township , madison county , indiana .
+the elevation above the sea level in angola , indiana , is 324 . 0 .
+the area code for antioch , california is 925 .
+antioch , california is a part of contra costa county california .
+there are 1472 people per square kilometer in arlington , texas .
+kasim reed is the leader of atlanta .
+the total area of atlantic city , new jersey is 44 . 125 square kilometres .
+atlantic city , is a part of new jersey .
+attica , indiana is 166 above sea level .
+auburn , alabama is part of lee county .
+the total area of auburn , washington is 77 . 41 sq kms .
+austin is a part of texas .
+the spanish language is spoken in california .
+
+fulton county , in georgia is part of the u . s .
+the county seat of madison county , indiana is anderson .
+michigan is in the u . s .
+
+orange county , california is located in the united states .
+oregon ' s largest city is portland .
+the largest city in tarrant county , texas , is fort worth .
+the leader of the united states is barack obama .
+the u . s . house of representatives is in the u . s . capitol .
+pecorino romano is an ingredient used in amatriciana sauce .
+the chili pepper serves as an ingredient in arrabbiata sauce .
+white rice is an ingredient in arròs negre .
+arròs negre is from the catalonia region .
+
+ayam penyet is a dish from singapore .
+one of the ingredients of the blt sandwich is tomato .
+baked alaska hails from hong kong .
+bakewell pudding can be served warm or cold .
+bandeja paisa is typical colombian cuisine .
+an ingredient found in bandeja paisa is chicharrón .
+bandeja paisa is a traditional dish from the paisa region .
+serving size for the barny cakes is 30 . 0g .
+shumai is a variation of batagor .
+batagor has these main ingredients - fried fish dumplings , tofu and vegetables in peanut sauce .
+one of the ingredients for batchoy is shrimp .
+beef kway teow comes from the region of indonesia .
+bhajji is also known as bhaji or bajji .
+taro is an ingredient in binignit .
+
+bionico comes from the region jalisco .
 the class of chickens is bird .
-Indian rupee is the currency in India .
-Sumitra Mahajan is the leader of India .
-Indonesian is the language of Indonesia .
-Aristoteles Sandoval is a leader in Jalisco .
-The Banyumasan people are an ethnic group in Java .
-Malaysian Malay is an ethnic group in Malaysia .
-The name of the leader of Mexico is Silvano Aureoles Conejo .
-one of the languages of New York is Spanish .
-Shumai is a dish from China .
-Peanut sauce is an ingredient of Siomay .
-Malays are an ethnic group in Sumatra .
-David Cameron is a leader in the United Kingdom .
-The 11th Mississippi Infantry Monument was established in the year 2000 and is categorised as a contributing property .
-The 14th New Jersey Volunteer Infantry Monument is located in the Monocacy National Battlefield which nearest city is Frederick , Maryland .
-The Baku Turkish Martyrs ' Memorial is dedicated to the Ottoman Army Soldiers killed in the Battle of Baku and located in Azerbaijan .
-The Baku Turkish Martyrs ' Memorial is known locally as Türk Şehitleri Anıtı and is dedicated to the Ottoman Army soldiers killed in the Battle of Baku .
-An ethnic group in the United States are African Americans . Akron , Ohio is located in the U . S .
-Albany is a city in Oregon whose capital is Salem .
-New Mexico in the United States is home to Albuquerque , where the leader is the United States House of Representatives .
-Amarillo is part of Texas and is located in the United States .
-The United States House of Representatives leads Anaheim , which is part of California .
-Anaheim is part of Orange County , California , United States .
-Anderson can be found within Adams Township , Madison County , Indiana , United States .
-Antioch , California lies 13 . 0 metres above sea level and covers an area of 75 . 324 square kilometres .
-Arlington , Texas , located 184 . 0 above sea level , covers an area of 258 . 2 square kilometres .
-Arlington is part of the state of Texas U . S .
-Atlanta is part of Georgia in the US .
-Atlantic City is part of Atlantic County , New Jersey , United States .
-The United States has the capital city of Washington DC and is the location of Atlantic City , New Jersey .
-Atlantic City is part of Atlantic County , New Jersey , in the United States .
-Atlantic City , New Jersey , has a population density of 1421 . 2 inhabitants per square kilometre . The total area of the city is 44 . 125 square kilometres .
-Auburn is in Pierce County , Washington , United States .
-Washington DC is the capital of the United States , where Albany , Oregon is located .
-Washington , D . C . is the capital of the United States , which is the home country to Amarillo , Texas .
-Albuquerque , New Mexico , is part of the United States , where the African Americans are an ethnic group .
-The United States is the location of Albany , Georgia and includes Native Americans among its ethnic groups .
-The Native Americans are an ethnic group in the United States , where Auburn , Alabama can be found .
-Akron , Ohio is located within the United States , where English is the language spoken .
-Albuquerque , New Mexico , is within the United States ; the leader of which , is called the President of the United States .
-Amatriciana is a sauce containing tomato that comes from Italy .
-Arem - arem is commonly served in Indonesia where Jusuf Kalla is leader .
-Arrabbiata sauce is from Italy where the Italian language is spoken .
-Arrabbiata sauce can be found in Italy where Sergio Mattarella is the leader .
-Arrabbiata sauce can be found in Italy and one of the ingredients in it is chili pepper .
-Arros negre comes from the region of the Valencian Community in Spain .
-Fish is cooked in sour and hot sauce to create an Asam Pedas which originates from the country of Indonesia .
-Ayam penyet comes from both Malaysia and Indonesia .
-BLT is a variation of the club sandwich and the bacon sandwich .
-Aside from the main ingredient bacon , sausage is included in the Bacon Explosion .
-The bacon sandwich , which always includes bacon , has different names including : Bacon butty , bacon sarnie , rasher sandwich , bacon sanger , piece ' n bacon , bacon cob , bacon barm and bacon muffin .
-An ingredient in a bacon sandwich is bread and a variation is the BLT .
-Baked Alaska ( France ) uses sponge cake as an ingredient .
-France ( led by Manuel Valls ) is the origin of Baked Alaska .
-Baked Alaska , a United States dish , includes the ingredient meringue .
-The Bakewell tart , containing fruit preserves , is a variation of Bakewell pudding .
-Vermicelli is included in the Indonesian dish of bakso .
-Celery , which is part of the Apiaceae family , is an ingredient of Bakso .
-Chicharrón is one of the ingredients in Colombian cuisine ' s Bandeja paisa .
-Barny cakes can be found in France where the leader is Claude Bartolone .
-Batagor , which has peanut sauce as an ingredient , is found in Indonesia .
-The dishes Batagor and Siomay both contain the ingredient peanut sauce .
-Palm sugar is an ingredient in beef kway teow which comes from Singapore .
-Beef kway teow is a dish from Singapore where Halimah Yacob is the leader .
-Kway teow , beef tender loin , gula Melaka , sliced dried black beans , garlic , soy sauce , lengkuas , oyster sauce , soya sauce , chilli and sesame oil are the main ingredients of Beef Kway Teow which is a dish found in Indonesia and Singapore .
-Bhajji originates from India which is where Indian people are from .
-Bhajji and T . S . Thakur are from India and Thakkur is the leader .
-The Igorot people are an ethnic group found in the Philippines which is also home to the binignit dish .
-One of the main ingredients in binignit is banana and it can be found in the Philippines .
-One of the main ingredients of Binignit is the sweet potato , and it also contains banana .
-Enrique Pena Nieto is the leader of Mexico , where the food bionico is found .
-Granola is a required ingredient of the Guadalajara regional dish , Bionico .
-Bionico is a dish served for dessert as is cake .
-Indonesia is the country Bakso comes from and the leader is Joko Widodo .
-Shiitake is an ingredient of Shumai which has a variation known as Batagor .
-Aarhus Lufthavn A / S is the operation organisation of Aarhus Airport which has a runway length of 2777 .
-Adolfo Suarez Madrid - Barajas Airport is located in Madrid , Paracuellos de Jarama , San Sebastian de los Reyes and Alcobendas and lies 610 metres above sea level .
-The runway length at Adolfo Suarez Madrid - Barajas airport is 3500 . It is located in Madrid , Paracuellos de Jarama , San Sebastian de los Reyes and Alcobendas .
-Agra Airport is located in Uttar Pradesh , which is part of Awadh .
-Al Asad Airbase is located in Al Anbar Province , Iraq and has a runway length of 3090 . 0 .
-Al Asad Airbase is found in Iraq where the language is Arabic .
-Al Asad Airbase is operated by the United States Air Force who were involved in battles at the Invasion of Grenada .
-The 1st runway at Alderney Airport is made from Poaceae , which is in the Monocotyledon class .
-The first runway at Alderney Airport is made of asphalt , and its length is 877 .
-Allama Iqbal International airport is located in Pakistan who ' s leader is Anwar Zaheer Jamali .
-The Allama Iqbal International Airport is found in Punjab , Pakistan and has a runway length of 2900 . 0 .
-Amsterdam Airport Schiphol is - 3 . 3528 from sea level and the length of its first runway is 3800 metres .
-Amsterdam airport Schiphol os - 3 . 3528 from sea level and the 1st runway is made from Asphalt .
-
-
-Andrews County Airport is located in Texas where the largest city is Houston .
-The runway length of Angola International Airport , which serves the city of Luanda , is 3800 . 0 .
-The runway length of Ardmore Airport ( New Zealand ) is 597 . 0 and its 3rd runway has a surface type of Poaceae .
-The Ashgabat International Airport is 211 metres above sea level and its first runway has a length of 12467 feet .
-The headquarters of Turkmenistan Airlines are located in Turkmenistan and they are the operating organisation for Ashgabat International Airport .
-Atlantic City International Airport is located in Egg Harbor Township , New Jersey , United States .
-The Port Authority of New York and New Jersey operate the Atlantic City International Airport which has a runway known as 4 / 22 .
-Operated by the Port Authority of New York and New Jersey , Atlantic City International Airport has a runway which is 3048 . 0 metres long .
-Afonso Pena International Airport is operated by Infraero , Brasilia .
-FC Magdeburg played in the Regionalliga in 2014 - 15 season and has 27250 members .
-Verona , Italy is the home to A . C . Chievo Verona who have 39371 members .
-Associazione Calcio ChievoVerona is managed by Italian born Rolando Maran .
-Jorge Humberto Rodriguez , manager of A D Isidro Metapan , plays for FC Dallas .
-A . E Dimitra Efxeinoupolis were in the 2014 – 15 A EPSTH . Greece season , and have 1500 members .
-The manager of A . F . C . Blackpool is Stuart Parker who played for Blackburn Rovers FC .
-The manager of A . F . C . Blackpool is Stuart Parker ( footballer ) who is a member of the Irlam Town F . C .
-The ground of AFC Fylde , which holds 3180 fans , can be found in the county of Lancashire .
-A . S . Gubbio 1910 , which has its ground in Gubbio , has 5300 members .
-AS Livorno Calcio play in Serie B , and their grounds are in Livorno .
-A . S Livorno Calcio is managed by Christian Panucci , who plays for A S Roma .
-Paulo Sousa is the manager of the ACF Fiorentina and his club is Juventus .
-The full name of ACF Fiorentia is " ACF Fiorentina S . p . A . " and they have 47290 members .
-AEK Athens ' s ground is in Greece and the club has 69618 members .
-The Olympic Stadium , in Athens , is the home ground of AEK Athens FC which is in the Superleague of Greece .
-Jong Ajax is the tenant of Sportpark De Toekomst which is the ground for AFC Ajac ( amateurs ) .
-AZAL Arena , Shuvalan , Baku , Azerbaijan , is the ground of AZAL PFK .
-Akron Summit Assault ; has 3000 members and plays in the 2011 PDL season .
-The ground of A . S . Gubbio 1910 is in Gubbio in the region of Umbria .
-The ground of A . S . Gubbio 1910 is located in Italy where Pietro Grasso is the leader .
-The manager of A . S . Roma is Luciano Spalletti who plays for Empoli F . C .
-Eric Flint is the author of 1634 : The Bavarian Crisis which is preceded by The Grantville Gazettes .
-1634 : The Ram Rebellion was written by Virginia DeMarce and can be found as an Ebook .
-The EISSN number of AIP Advances ( abbreviated to " AIP Adv . " ) is 2158 .
-A Fortress of Grey Ice was written by J . V . Jones and is available in print .
-A Fortress of Grey Ice with ISBM 0 - 7653 - 0633 - 6 has 672 pages .
-A Glastonbury Romance which written by John Cowper Powys , was followed by Weymouth Sands .
-A Long Long Way which has the OCLC number 57392246 , was published in Print & amp ; Paperback .
-A Long Long Way is 292 pages long , and has the ISBN number 0 - 670 - 03380 - 4 .
-A Long Long Way was published by Viking Press a subsidiary of Penguin Random House .
-A Loyal Character Dancer which is in print , was written by Qiu Xiaolong .
-A Severed Wasp has the ISBN number 0 - 374 - 26131 - 8 and OCLC number 8805735 .
-A Severed Wasp , OCLC number 8805735 , is a hardcover book .
-English is spoken in Great Britain and A Severed Wasp was written in this language .
-The book " A Severed Wasp " is available in print and has an ISBN number of " 0 - 374 - 26131 - 8 " .
-Julius Springer founded Springer Science and Business Media , the publisher of Abhandlungen aus dem Mathematischen Seminar der Universitat Hamburg .
-Alcatraz Versus the Evil Librarians has the ISBN number 0 - 439 - 92550 - 9 and can be found under the genre of fantasy literature .
-The ISBN number of " Alcatraz Versus the Evil Librarians " is 0 - 439 - 92550 - 9 ; the OCLC number is 78771100 .
-Alcatraz Versus the Scrivener ' s Bones , written by Brandon Sanderson was the follow up book to Alcatraz Versus the Evil Librarians .
-Am . J . Math . is the abbreviation of the American Journal of Mathematics which comes under the discipline of Math .
-Johns Hopkins University Press is the publisher of the American Journal of Mathematics with Johns Hopkins University being the parent company .
-Washington D . C . is the capital of the United States , the country where ' 1634 The Ram Rebellion ' comes from .
-
-A Fortress of Grey Ice is from the United States , which has among its ethnic groups African Americans .
-' A Wizard of Mars ' was Published in the United States , a country where one of the ethnic groups is African Americans .
-A Wizard of Mars originates from the United States , where many Asian Americans live .
-1 Decembrie 1918 University ' s nickname is Uab and is located in Alba .
-Acharya Institute of Technology in Belgaum is affiliated with Visvesvaraya Technological University .
-The president of Acharya Institute of Technology in Bangalore is B . M . Reddy .
-It was the All India Council for Technical Education in Mumbai that gave Acharya Institute of Technology its Technical Campus status .
-AWH Engineering College is in the state of Kerala , whose leader is Kochi .
-The character , April O ' Neil , was created by Peter Laird , a United States national .
-Bananaman was broadcast by the BBC and starred Jill Shilling .
-Bananaman stars Graeme Garden , and is broadcasted by STV .
-Tim Brooke Taylor , was born in Derbyshire , and starred in Bananaman .
-Baymax first appeared in the film Big Hero 6 , starring Alan Tudyk .
-The first appearance in a film for the character Baymax was Big Hero 6 which starred Scott Adsit .
-Baymax was created by Steven t Seagle and is a character in Big Hero 6 .
-Roger McKenzie is the comic book writer who created Ben Urich ( full name Benjamin Urich ) .
-Jerry Ordway and Marv Wolfman are the creators of Bibbo Bibbowski .
-Marv Wolfman was creator of Bibbo Bibbowski , often called Bo Bibbowski .
-Born on March 15 , 1932 , Alan Bean has now retired .
-Test pilot Alan Shepard has died .
-Buzz Aldrin was born in Glen Ridge , New Jersey on January 20 , 1930 .
-Buzz Aldrin was born in Essex County , at Glen Ridge New Jersey .
-William Anders was a member of the Apollo 8 crew and was born in British Hong Kong .
-William Anders , who received a M . S from his alma Mater , AFIT , in 1962 , is retired .
-108 St Georges Terrace , completed in 1988 , has 50 floors .
-200 Public Square in the United States has a floor count of 45 .
-20 Fenchurch Street has 34 floors and has a floor area of 62145 . 3 square metres .
-300 North LaSalle is located in Chicago and has 60 floors .
-George Winkler , from the United States of America , was the architect of 320 South Boston Building .
-The 3Arena , created by architect HOK SVE , is located at East Link Bridge .
-The 3Arena , designed by Populous , is located in Dublin .
-The tenant of the AC Hotel Bella Sky , located in Copenhagen , is Marriott International .
-The architect George Richard Pain completed Adare Manor in 1862 .
-Adare Manor is located in Adare , in County Limerick .
-Addis Ababa City Hall is located in Addis Ababa , Ethiopia .
-Adisham Hall is located in Haputale , Sri Lanka and is Tudor Revival in style .
-Adisham Hall is located in Sri Lanka and it ' s architectural style is Tudor Revival .
-Akita Museum of Art is located in Japan where some Brazilians are found .
-The Akita Museum of Art , found at 1 - 4 - 2 Nakadori , has 3 floors .
-Amdavad ni Gufa is at Lalbhai Dalpatbhai Campus , near CEPT University , opp . Gujarat University , University Road in Gujarat .
-Ampara Hospital is located in Eastern Province , Sri Lanka whose leader is Austin Fernando .
-The Asser Levy Public Baths are located in New York City which is in the United States .
-Asser Levy Public Baths are located in New York City which contains Brooklyn .
-Adare Manor is located in County Limerick which is part of Munster .
-The 3Arena is located in Dublin in the Republic of Ireland .
-Retired US National Alan Bean was born in Wheeler , Texas .
-
-Buzz Aldrin , a US national , was selected by NASA in 1963 having graduated from MIT in 1963 with a doctorate in Science .
-Elliot See , a US national born in Dallas , was a student at University of Texas at Austin .
-Elliot See who was selected by NASA in 1962 , attended the University of Texas at Austin and died in St Louis .
-Elliot See , who attended the University of Texas at Austin , died in St . Louis , whose Mayor is Francis G . Slay .
-Elliot See died on 28 February , 1966 in St . Louis a part of the kingdom of France .
-
-1634 : The Bavarian Crisis is written by Virginia DeMarce and Eric Flint and has 448 pages in print .
-English is spoken in Great Britain and is the language used in 1634 : The Ram Rebellion . The book was preceded by 1634 The Galileo Affair .
-The Association for Computing Machinery is led by Alexander L . Wolf and is headquartered in New York City . They publish ACM Transactions on Information Systems .
-
-AIDS Journal ( ISSN number 1473 - 5571 ) comes under the academic discipline HIV and studies HIV / AIDS .
-The United States is the residence of A T Charlie Johnson who edited AIP Advances and has Stanford University for an Alma mater .
-The author of A Fortress of Grey Ice is J . V . Jones . The ISBN is 0 - 7653 - 0633 - 6 and the OCLC number is 51969173 .
-A Loyal Character Dancer , authored by Qiu Xiaolong , has a OCLC number of 49805501 and a ISBN number of 1 - 56947 - 301 - 3 .
-A Loyal Character Dancer is published by Soho Press and written in English . Soho Press is situated in the US .
-
-A Severed Wasp is a hardcover book that has 388 pages and has the OCLC number 8805735 .
-The Abhandlungen aus dem Mathematischen Seminar der Universitat Hamburg , abbreviated as Abh . Math , Semin . Univ . Hambg , has an LCCN number of 32024459 and ISSN number 1865 - 8784 .
-Above the Veil ( which came after the book Aenir ) is written in English and comes from Australia .
-Aenir and it ' s successor Above the Veil is written in English by Garth Nix .
-Above the Veil has 248 pages and was written by Garth Nix . It is available in hardcover .
-Acta Palaeontologica Polonica has the ISSN number 0567 - 7920 and the LCCN number of 60040714 . It is abbreviated to Acta Palaeontol . Pol . .
-The journal Addiction has the ISSN number 1360 - 0443 , it is about addiction and has the same abbreviation .
-Wiley - Blackwell , whose parent company is John Wiley & amp ; Sons , is the publisher of Addiction ( journal ) which has an ISSN number of 0965 - 2140 .
-Cornell University which is in new York , is affiliated with the Association of American Universities and is the publisher of Administrative Science Quarterly .
-Garth Nix is the author of Aenir which is written in the English language . This novel was followed up with the book Above the Veil .
-Alcatraz Versus the Evil Librarians is from the United States and written in the English language which is spoken in Great Britain .
-Alcatraz Versus the Evil Librarians is published in Hardcover , is 320 pages long and has the OCLC number of 7877110 .
-Alcatraz Versus the Evil Librarians is from the United States where they speak English as they do in Great Britain .
-John Cowper Powys , author of A Glastonbury Romance , was born in Shirley , Derbyshire , and died in Blaenau Ffestiniog .
-Sara Miller McCune founded SAGE Publications who publish Administrative Science Quarterly with ISSN number " 0001 - 8392 " .
-A severed Wasp originates from the United States where the capital is Washington DC and the Native Americans are an ethnic group .
-A Wizard of Mars was originally published in the United States and is written in English . African Americans are one of many ethnic groups in the U . S .
-The United States are home to Asian Americans as well as where " A Wizard of Mars " was published . Washington D . C . is the capital .
-A Wizard of Mars originates from the United States where Barack Obama is the leader and there are many Asian Americans .
-1634 The Ram Rebellion was written in the United States where the leader is known as the President , and the African Americans are an ethnic group .
-A Fortress of Grey Ice is from the United States where the leader is known as the President and the Native Americans are an ethnic group .
-Jens Härtel has been the manager of 1 FC Magdeburg and plays for both 1 . FC Lokomotive Leipzig and SV Germania Schoneiche .
-Massimo Drago played for A . S . D . S . S . Nola 1925 , managed A C Cesena and now plays for A . S . D . Licata 1931 .
-Associazione Calcio Lumezzane SpA ( abbreviated to A . C . Lumezzane ) play in the Lega Pro / A and has 4150 members .
-Jorge Humberto Rodriguez is the manager of A . D . Isidro Metapan and his club is Alianza F . C . but he plays for the El Salvador national football team .
-Antonis Milionis is chairman of A . E Dimitra Efxeinoupolis . they have 1500 members and their ground is located in the town of Efxeinoupoli .
-A . F . C . Blackpool fullname is " Association Football Club Blackpool " , they have 1500 members and their ground is located in Blackpool .
-The manager of A . F . C . Blackpool is Stuart Parker ( footballer ) who is attached to Chesterfield football club and used to play for Runcorn FC Halton .
-Dave Challinor played for Stockport County F . C . , is at Colwyn Bay FC and is the manager of AFC Fylde .
-AS Livorno Calcio ' s home ground is in Livorno , Italy . It has the full name of " Livorno Calcio S . p . A " and has 19238 members .
-A . S . Livorno Calcio are managed by Christian Panucci . They play in Serie B where Carpi FC 1909 are the champions .
-A . S . Livorno Calcio is managed by Christian Panucci who has played for Chelsea FC and was attached to the Real Madrid CF club .
-AEK Athens ' s ground is in Greece and it competes in the Superleague Greece , the past champions were Olympiacos F . C .
-AEK Athens F . C . manager is Gus Poyet who ' s club is Real Zaragoza , having previously played for Chelsea F . C .
-
-The ground of AFC Ajax ( amateurs ) can be found in Amsterdam , which has Eberhard van der Laan as leader , and a region called Amsterdam - Noord .
-John van den Brom , who manages AZ Alkmaar , plays for Jong Ajax and Istanbulspor AS .
-Agremiação Sportiva Arapiraquense play in the Campeonato Brasileiro Série C league in Brazil . Their ground is the Estadio Municipal Coaracy da Mata Fonseca .
-Luciano Spalletti played for Udinese Calcio and now manages A . S . Roma and plays for Empoli F . C . .
-Massimo Drago has been the manager of A C Cesena and was at the club ASD Licita 1931 . He now plays for S . S . Chieti Calcio .
-Massimo Drago plays for U . S Castrovillari Calcio and A . S . D . S . S . Nola 1925 . He also manages AC Cesena .
-Massimo Drago ' s club is the S . S . Chieti Calcio , he also manages A . C . Cesena and was once a player for US Castrovillari Calcio .
-103 Colmore Row was designed by Birmingham born architect John Madin .
-200 Public square is in Cleveland which is part of Cuyahoga County , Ohio . The leader in Cleveland is Frank G Jackson .
-250 Delaware Avenue in the United States has 12 floors with a total floor area of 30843 . 8 square metres .
-300 North LaSalle is located in Chicago , part of DuPage County , Illinois where Rahm Emanuel is a leader .
-George Winkler from the United States was the architect of 320 South Boston Building . 320 South Boston Street has 22 floors .
-Arcitect HOK SVE , completed the 3Arena on North Wall Quay in December 2008 .
-AC Hotel Bella Sky Copenhagen , whose tenant is Marriott International , has 23 floors and is located in Copenhagen Denmark .
-Marriott International is the tenant of AC Hotel Bella Sky Copenhagen , that was designed by the architects of the 3XN firm and has 23 floors .
-Augustus Pugin , born in Bloomsbury , designed Adare Manor and Palace Of Westminster .
-Adare Manor ' s architect was Philip Charles Hardwick and it was completed in 1862 . JP McManus owns Adare Manor .
-Adisham Hall , in the Tudor and Jacobean architectural style , completed in 1931 and located in Haputale .
-Adisham Hall , Sri Lanka was finished in 1931 and is in the architectural style of " Tudor and Jacobean " .
-Adisham Hall is located in Haputale , Sri Lanka , whose leader is Ranil Wickremesinghe .
-Sri Jayawardenepura Kotte is the capital of Sri Lanka , which uses the Sri Lankan rupee as its currency and is the location of Adisham Hall .
-Alan B . Miller Hall ' s building opened in 30th March 2007 . The Mason School of Business in the United States are the current tenants of Alan B Miller Hall .
-San Francisco born Julia Morgan was the architect of the Asilomar Conference Grounds and she also designed other significant buildings including the Riverside Art Museum .
-Julia Morgan , who was born in California , was the architect of the Asilomar Conference Grounds and designed many significant buildings in Chinatown , San Francisco .
-Asilomar Conference Grounds are located at Asilomar Blvd , Pacific Grove California and given the reference of 87000823 in the National Register of Historic Places on 27 February 1987 .
-Asser Levy Public Baths were constructed in 1904 at Avenue A , Manhattan . They were added to the National Register of Historic Places on 23rd April 1980 .
-The Asser Levy Public Baths in New York City were built in 1904 and added to the National Register of Historic Places on " 1980 - 04 - 23 " .
-
-Architect John Madin , born in Birmingham ( led by the Liberal Democrats ) , designed 103 Colmore Row .
-Addis Ababa City Hall is located in Addis Ababa , Ethiopia , which is led by Hailemariam Desalegn .
-Amdavad ni Gufa is located in Ahmedebad , Gujarat . The leader of Gujurat was Anandiben Patel .
-Marriott International , where Bill Marriott is one of the key people , is located in Bethesda Maryland and is the tenant of AC Hotel Bella Sky Copenhagen .
-The Asian Americans are an ethnic group within the United States , which is the location of Albany , part of Dougherty County in Georgia .
-The New Mexico Senate leads Albuquerque ( new Mexico ) which has a total area of 490 . 9 square kilometres and the population density of 1142 . 3 people per square kilometers .
-Alpharetta is part of Fulton County , Georgia which is in the United States . African Americans are an ethnic group in the US .
-Alpharetta is part of the state of Georgia in the United States . One of the ethnic groups found in this country is Asian Americans .
-The Asian Americans are an ethnic group in the United States which has the capital of Washington DC and is the location of Alpharetta in Georgia .
-Anaheim , California has a total area of 131 . 6 square kilometres , area codes 657 and 714 , and a UTC offset of - 7 .
-The California State Senate , located in the California State Capitol , leads Anaheim , which is part of California .
-Anderson is in Lafayette Township , Madison County , Indiana ; which is in the United States .
-The Asian Americans are an ethnic group in the United States which is the location of Angola , Pleasant Township , part of Steuben County in Indiana .
-Led by the United States House of Representatives , Antioch is part of Contra Costa County , part of the San Francisco Bay Area .
-Arlington in the United States is part of Tarrant County in Texas where the county seat is Fort Worth .
-The Asian Americans are an ethnic group found in the United States which has the capital city of Washington DC and is the location of Atlanta .
-Atlanta , which has the area code of 404 , has a population density of 1299 inhabitants per sq km and a total area of 347 . 1 sq km .
-Atlantic City , New Jersey is in the United States where the largest city in that state is Newark .
-New York City is the largest city in the United States . The country is also where Atlantic City ( part of Atlantic County , New Jersey ) , is located .
-Auburn is part of Lee County in Alabama in the United States .
-The United States has the capital of Washington DC and is the location of Auburn in the state of Washington , .
-Auburn is in Washington state in the United States . The state capital of Washington is Olympia .
-Atlanta is the capital of Georgia ( United States ) , the state where Albany , Dougherty County , is located .
-Alexandria in the United States is part of Madison County , Indiana which has the largest city of Anderson .
-The capital of the state of New Jersey in the U . S . is Trenton . Atlantic City is also part of that state .
-Arlington is part of Texas where the largest city is Houston and the English language is spoken .
-Attica , Fountain County , Indiana is in the United States : where Washington , D . C . . is the capital .
-Attica is in Fountain County Indiana in the United States . Washington DC is the country ' s capital .
-Akron , Ohio is located in the United States , where English is spoken , and where the capital is Washington DC .
-The United States , which includes the ethnic group of Asian Americans , is the location of Akron , Summit County , Ohio .
-Albany is part of Benton County in Oregon , in the U . S , of which The Asian Americans are an ethnic group .
-Albuquerque , New Mexico is in the United States ; where Barack Obama is the leader and Asian Americans call home .
-Albany , Georgia is in the United States ; where English is spoken and African Americans call home .
-The United States , where the Asian Americans are an ethnic group , uses the English language and is the location of Angola , Indiana .
-Aarhus Airport is operated by Aarhus Lufthavn A / S and its 2776 meters long runway is called 10R / 28L .
-Adirondack Regional Airport serves the city of Lake Placid , New York and Saranac Lake , New York . The runway is 2003 feet long .
-Adolfo Suarez Madrid - Barajas airport is located at Paracuellos de Jarama which is part of the community of Madrid , Spain .
-The Agra Airport ( VIAG ) in Uttar Pradesh is operated by the Indian Air Force .
-The United States Air Force is the operating organisation for Al Asad airbase in Iraq where the length of the runway is 3992 . 88 .
-In 1986 the USAF bombed Libya . It operates the Al Asad airbase and uses the McDonnell Douglas F - 15 Eagle fighter jet .
-The operating organisation for Al Asad airbase is the United States Air Force . They were involved in battles at the invasion of Grenada and deploy the aircraft fighter plane known as the McDonnell Douglas F15 Eagle .
-
-Located in Pakistan , Allama Iqbal International airport is operated by the Pakistan Civil Aviation Authority , the headquarters of which is the Jinnah International Airport .
-Allama Iqbal International Airport , whose runway name is 18L / 36 is located in Punjab , Pakistan . Its length is 2900 .
-At 210 metres above sea level , Alpena County Regional Airport is located in Maple Ridge Township , Alpena County , Michigan , in the United States .
-Located in Texas , Andrews County Airport , is 973 . 0 above sea level and has a runway length of 1773 metres .
-Located in Texas , Andrews County Airport is 973 . 0 above sea level and has a runway length of 896 .
-Austin is the capital of Texas , where they speak English , and Andrews County Airport is located .
-Andrews County Airport is located in Texas in the United States where the inhabitants have the demonym tejano , .
-Antwerp , served by Antwerp International airport , is a popular tourist destination in Belgium . German is spoken in Belgium .
-Atlantic City International Airport is in Egg Harbor Township , Atlantic County , New Jersey , United States .
-Atlantic City International Airport is operated by the Port Authority of New York and New Jersey located at Four World Trade Centre and serves the New Jersey region .
-Atlantic City International Airport is in Egg Harbor Township , New Jersey , United States and has a runway length of 3048 . 0 .
-Lahore , Pakistan is served by Allama Iqbal International Airport , and is led by Anwar Zaheer Jamali .
-Adolfo Suárez Madrid – Barajas Airport is located in Madrid which is part of the community of Madrid led by Ahora Madrid .
-Adolfo Suárez Madrid – Barajas Airport is found in Madrid , Spain where the leading party is Ahora Madrid .
-Adolfo Suárez Madrid – Barajas Airport is found in San Sebastián de los Reyes ( Spain ) where the lead party is the People ' s Party .
-
-The 11th Mississippi Infantry Monument is placed in the municipality of Gettysburg , Adams County , Pennsylvania , northwest of Carroll County Maryland .
-
-The Baku Turkish Martyrs ' Memorial is in Azerbaijan , where the leader is Artur Rasizade , and the legislature is dictated by the National Assembly .
-Ahmet Davutoglu is a leader from Turkey whose capital is Ankara and where the Ataturk Monument can be found in Izmir .
-Guanciale is an ingredient in Amatriciana sauce which comes from the Lazio region in Italy .
-Arem arem is a Javanese dish and the main ingredients of Arem - arem are compressed rice cooked in banana leaf with vegetables or minced meat fillings .
-Tomato , an ingredient of Arrabbiata sauce , is part of the flowering plant division and belongs to the family of solanaceae .
-Arrabbiata sauce is made from olive oil and comes from Rome in Italy .
-Arrabbiata sauce originates from the region of Rome , Italy , and tomato is one of its ingredients .
-The main ingredient of asam pedas , which hails from Malaysia , Peninsula , is fish cooked in a sour and hot sauce .
-The capitol city of Malaysia is Kuala Lumpur , the country is led by Arifin Zakaria and is home to the dish asam pedas .
-Ayam Penyet is found in Indonesia and Malaysia , home of Malaysian Chinese .
-Lettuce is an ingredient in a BLT which is a variation of a Club Sandwich . While the Bacon sandwich is a variation of BLT .
-The Bacon Explosion is found in United States , led by Barack Obama and inhabited by White Americans .
-
-The BLT is a variation on the club sandwich or the bacon sandwich , all three are made with bread .
-Sponge cake is an ingredient of Baked Alaska which is claimed to come from France and New York .
-The currency of France is the Euro , it is also where Manuel Valls is a leader and baked Alaska is a popular dish .
-Baked Alaska contains Christmas pudding and is from the New York region of the United States .
-Sponge cake is an ingredient in the dessert Baked Alaska , Another type of desert is a cookie .
-Bakewell pudding is a dessert that originates from the Derbyshire Dales and contains the ingredients ground almonds , jam , butter and eggs .
-The main ingredients of Bakewell pudding are ground almond , jam , butter and eggs . It is a variant of Bakewell tart and comes from the Derbyshire Dales region .
-Beef is an ingredient of Bakso which is a dish that comes from a region in Indonesia .
-Avocado is one of the ingredients in the dish Bandeja paisa , which is a dish from Colombian cuisine . It originates from the Paisa region .
-Bandeja paisa is a traditional dish from the Paisa region of Colombia and includes the ingredient hogao .
-Barny Cakes come from France . Claude Bartolone and Manuel Valls are leaders in France .
-Batchoy is a dish eaten in the Philippines . It is a noodle dish which includes pork organs , vegetables , chicken , shrimp and beef .
-Batchoy is eaten in the Philippines and the main ingredients are noodles , pork organs , vegetables , chicken , shrimp and beef .
-A popular dish in Singapore and Indonesia is beef kway teow , Tony Tan is the leader of Singapore .
-Beef kway teow is from Singapore and Indonesia and is made with sesame oil .
-Beef kway teow is a dish commonly found in Singapore , the Singapore region and Indonesia . It contains oyster sauce among the ingredients .
-
-Cookies and Binignit , which contains banana as a key ingredient , are types of desserts and should be served as that course .
-Cookies and Binignit are types of dessert . A key ingredient of Binignit is Sago .
-Taro is an ingredient in Binignit which should be served as the dessert course . A cookie is a dessert .
-The main ingredient of binignit is sweet potato , which is of the order of Solanales . Banana is another ingredient of the dish .
-Bionico is served as a dessert course . It is found in Mexico and requires granola as an ingredient .
-Bionico , which contains raisins , is from the Guadalajara region of Mexico .
-The name of the leader in Mexico is Silvano Aureoles Conejo whose currency is the Mexican peso . Bionico is a food found in that country .
-Italy is the country Amatriciana sauce comes from . The capital of Italy is Rome and the leader is Pietro Grasso .
-Batchoy is a dish from the Philippines , where Igorot people are part of one of the ethnic groups and where one of the languages spoken is Arabic .
-Beef kway teow is a popular dish in Singapore where Tony Tan is the leader and the English language is spoken .
-The tomato , used in an Amatriciana sauce , belongs to the family Solanaceae and is of the order Solanales .
-AWH Engineering College has an academic staff of 250 and is located in the state of Kerala , India .
-The Acharya Institute of Technology , Bangalore , has 700 postgraduate students and is affiliated with Visvesvaraya Technological University .
-Kochi is the leader of Kerala which is southeast of Mahe India , and the location of the AWH Engineering College .
-Romania is the home of the ethnic group of Germans of Romania , and is the location of the 1 Decembrie 1918 University . The Romanian anthem is Desteapta - te romane .
-The 1 Decembrie 1918 University is located in Romania . The Romanian leader is called Klaus Iohannis and one of the country ' s ethnic groups are the Germans of Romania .
-The School of Business and Social Sciences at the Aarhus University was established 1928 and is affiliated with the European University Association ( which has its headquarters in Brussels ) .
-The School of Business and Social Sciences at the Aarhus University , Denmark , was established in 1928 .
-The comic character Asterix , was created by Albert Uderzo and René Goscinny , who is French .
-Bananaman , which was broadcast by the BBC and last aired on April 15th , 1986 , starred Tim Brooke - Taylor .
-The first appearance in a film for the character Baymax was Big Hero 6 , distributed by Walt Disney Studios Motion Pictures , the film starred Scott Adsit .
-The film , Big Hero 6 stars Scott Adsit and includes the character Baymax . It was distributed by Walt Disney Studios Motion Pictures .
-Baymax is a character in the Big Hero 6 film starring Ryan Potter and distributed by Walt Disney Studios Motion Pictures .
-The comics character Blockbuster , aka Mark Desmond , was created by Gardner Fox and Carmine Infantino .
-Larry Bolatinsky is the alternative name for the comic character Bolt who was created by Gary Cohn and Dan Mishkin .
-Bolt , a comic character is also known as Larry Bolatinsky was created by Ernie Colon and Gary Cohn .
-
-
-200 Public square is in Cleveland , part of Cuyahoga County , Ohio in the United States and the governing body is the Cleveland City Council .
-250 Delaware Avenue in Buffalo , New York cost 110 million dollars and has 12 floors with a total area of 30843 . 8 square metres .
-300 North LaSalle is located in Chicago , which is a part of Cook County in Illinois , United States . Rahm Emanuel is a leader in Chicago .
-300 North LaSalle , a 120770 . 0 square metre 60 floor building in Illinois , was completed in 2009 .
-Dublin is part of Leinster and a city in the Republic of Ireland . Dublin is also home to the 3Arena which is currently owned by Live Nation Entertainment .
-The AC Hotel Bella Sky is located in Copenhagen and has 23 floors . The hotel was designed by the architects of the 3XN firm and the current tenant is Marriott International .
-Adare Manor is located in Adare County Limerick , Munster which is governed by Limerick City and County Council .
-The Akita Museum of Art is located in Akita , Akita , of the Akita Prefecture in Japan . Brazilians are one of the Japanese ethnic groups .
-The Akita Museum of Art is located in Akita , Akita ( in Japan ) , part of the Akita Prefecture , where one of the ethnic groups is the Filipinos .
-Akita Museum of Art is located in Akita Prefecture , in Akita , Akita , Japan , a country with the ethnic group of Vietnamese people .
-The Brazilians are one of the ethnic groups of Japan where the Akita Museum of Art is located in Akita , Akita Prefecture .
-Alan B Miller Hall , 101 Ukrop Way , Williamsburg , Virginia was completed on 1st June 2009 and is owned by the College of William and Mary .
-Amdavad ni Gufa is located in Gujarat , India where Narendra Modi is the prime minister and one of the leaders is Sumitra Mahajan .
-The Asilomar Conference Grounds were constructed in 1913 in Pacific Grove , California , and were added to the National Register of Historic Places on February the 27nd 1987 with reference number 87000823 .
-Built in 1904 and located in Avenue A , Manhattan , Asser Levy Public Baths was added to the National Register of the Historic places on 1980 / 04 / 23 ( reference number 80002709 ) .
-The Asser Levy Public baths are located in New York City which has sections known as Brooklyn and Manhattan . Cyrus Vance Jr is the leader of Manhattan .
-Gale Brewer is the leader of Manhattan , New York City , United States where the Asser Levy Public baths are located .
-Led by Andrew Mitchell , Birmingham has postcode area ' B ' and is the birthplace of the 103 Colmore Row architect , John Madin .
-103 Colmore Row was designed by the architect , John Madin who was born in Birmingham . Birmingham Council is led by the Labour party and has a B postal code .
-Anandiben Patel is a leader in Gujarat , India where Amdavad ni Gufa is located . Sumitra Mahajan is also an Indian leader .
-The Prime Minister of India is Narendra Modi , and T S Thakur is another leader . The country is the location of Amdavad ni Gufa in Gujarat .
-The Brazilians are one of the ethnic groups of Japan where the Akita Museum of Art is located in Akita , Akita Prefecture .
-London is the capital of the United Kingdom , which is governed by Parliament and has Elizabeth II as its leader . 20 Fenchurch Street is located in the UK .
-250 Delaware Avenue is located in the United States where the leader is known as the President of the United States , they speak English and Joe Biden is also a leader .
-The 11th Mississippi Infantry Monument is located in Pennsylvania in the United States . Established in the year 2000 , the Monument falls under the category of Contributing property .
-Prime Minister of Azerbaijan is the official title of the leader of Azerbaijan and his name is Artur Rasizade . The Baku Turkish Martyrs ' Memorial can be found in Baku , the capital of Azerbaijan .
-The Baku Turkish Martyrs memorial , also known as Turk Sehitleri Aniti , is dedicated to Ottoman soldiers killed in the battle of Baku . It is located in Baku , the capital of Azerbaijan .
-The 14th New Jersey Volunteer Infantry Monument was established on July 11th , 1907and located in the Monocacy National Battlefield in the county Frederick , Maryland . The city nearest to Monocacy National Battlefield is Frederick , Maryland .
-The Atatürk Monument in Izmir is made of bronze , is located in Turkey , which is led by Ahmet Davutoglu and has Ankara as its capital .
-President of Turkey is the official title of the Turkish leader . The Atatürk Monument ( İzmir ) designed by Pietro Canonica is found in Turkey and inaugurated on the July 27th , 1932 .
-Albany , Georgia , is in the United States , where English is spoken , and , where Native Americans are one of the ethnic groups .
-Albuquerque , New Mexico covers a total of 490 . 0 sq kms which includes a land area of 486 . 2 sq km . It has the area codes 505 and 575 and a population density of 1142 . 3 inhabitants per sq km .
-Alpharetta is part of Fulton County in Georgia ( United States ) , where Atlanta is the county seat .
-Amarillo is part of Potter County , Texas in the United States . African Americans are an ethnic group in the United States .
-Amarillo is part of Potter County in Texas , United States . Austin is the capital of Texas .
-California is led by the California State Assembly ( location : state capital ) , is spanish speaking and location of Anaheim .
-Anderson , Indiana is part of Adams Fall Creek , Lafayette , Richland , Union and elevated 268 . 0 meters above sea level . The town has an area of 107 . 43 square kilometres and its population density is 523 . 9 inhabitants / sq km .
-Angola is part of Pleasant Township in Steuben County and covers a total area of 16 . 55 square kilometres . The city is in Indiana , United States .
-The total area of Antioch , California is 75 . 324 square km . , has an UTC offset of - 7 and its population is 102372 . The area code there is 925 .
-Atlantic City , New Jersey ( area code 609 ) , covers a total area of 44 . 125 square kilometres . The Mayor of the city is responsible of a population which averages about 1421 people for each of those square kilometres .
-The Asian Americans are an ethnic group in the United States , where you will find Auburn , which is part of Lee County in the state of Alabama .
-Auburn in Lee County , Alabama is in the U . S . A . which is home to African Americans .
-Auburn is part of both Pierce County and King County in Washington in the United States . The country ' s capital city is Washington DC .
-The capital of U . S is Washington , D . C . . King County , Auburn is located in this state .
-Austin is in Hays County , Texas whose county seat is San Marcos . The largest city in Texas is Houston .
-Anaheim is part of California and led by the California State Assembly located at the California State Capitol . Chinese is a language spoken in California .
-Alpharetta , Fulton County , Atlanta , Georgia are in the United States .
-Lafayette Township , Madison County , Indiana is in the United States and the township is home to Anderson while Indianapolis is the state capital .
-Texas , where English is spoken , is part of the U . S . and among its cities are Arlington and Houston which is the largest city in the state .
-The city of Albany is part of Benton County , Oregon , in the United States . The capital of the country is , Washington D . C . , and African Americans , are one of the country ' s ethnic groups .
-Atlantic City , is a part of New Jersey , in the United States . The country ' s capital , is Washington D . C . , and its largest city , is New York City .
-Barack Obama is the president of the United States where one finds African Americans and the city of Albuquerque in New Mexico .
-Albuquerque is in New Mexico , in the United States , where one of the ethnic groups is Asian Americans . The New Mexico Senate leads Albuquerque and John Sánchez is one of the leaders .
-In the U . S . , where the capital is Washington D . C . , you ' ll find Albany in Benton County , Oregon and Asian Americans .
-
-English is spoken in the United States , where Native Americans are an ethnic group . The US is home to Albany , which is located in Georgia .
-Angola , Indiana is in the United States , where English is the language spoken and Asian Americans are an ethnic group .
-Angola is in Pleasant Township which is part of Steuben County , in Indiana , in the United States . The country where English is spoken , and where Asian Americans are one of the ethnic groups .
-
-Rolando Maran was born in Italy and is in the Carrarese Calcio Club . He currently plays for F . C . Bari 1908 while managing A . C . Chievo Verona .
-Italian born Michele Marcolini has been the manager of AC Lumezzane . He currently plays for Torino FC and AC Chievo Verona .
-A . E Dimitra Efxeinoupolis is in the league , EPSTH 2nd GROUP and have 1500 members . Their chairman is Antonis Milionis and their home ground is situated in Efxeinoupoli .
-AFC Blackpool in Blackpool are managed by Stuart Parker , previously a player for Stockport County F . C . The leader of Blackpool is the Conservative Party ( UK ) .
-Gordon Marsden , leads Blackpool , which is where A . F . C . Blackpool is located . They have had , for a manager , Stuart Parker , whose club was Stockport County F . C .
-A . F . C . Fylde ( Association Football Club Fylde ) played in 2014 and has 3180 members . Its ground is in Warton , Fylde , Lancashire .
-AFC Fylde , which has the full name " Association Football Club Fylde " are based at Bryning Lane . The club has 3180 members and played in 2014 .
-Paulo Sousa is the manager of ACF Fiorentina and his club is Juventus . He plays for both plays for Maccabi Tel Aviv F . C . and the Inter Milan club .
-AEK Athens FC has a ground in Greece and has 69618 memberrs . They played in the 2014 season and compete in the Superleague Greece .
-AFC Ajax ( amateurs ) ' s ground is Sportpark De Toekomst which is operated by AFC Ajax and owned by AFC Ajax N . V . The current tenant of the ground is Jong Ajax .
-Amsterdamsche Football Club Ajax Amateurs is abbreviated to AFC Ajax ( amateurs ) and has the nickname Joden , Godenzonen . They have 5000 members and they have played in the 2014 season .
-John van den Brom has been manager of AZ Alkmaar and played for the Netherlands national football team . He is in Vitesse Arnhem and now plays for AFC Ajax .
-
-Agremiação Sportiva Arapiraquense ' s ground is Estadio Municipal Coaracy da Mata Fonseca which is located in Alagoas . They play in the Campeonato Brasileiro Série C league which is from Brazil .
-Agremiacao Sportiva Arapiraquense ' s ground is the Estadio Municipal Coaracy da Mata Fonseca in Arapiraca . They play in the Campeonato Brasileiro Série C league which is based in Brazil .
-The ground of Akron Summit Assault is at St Vincent - St Mary High School in Akron , Ohio , Summit County , United States .
-The ground of A . S . Gubbio 1910 is located in Italy where Rome is the capital and two of the leaders are Pietro Grasso and Sergio Mattarella .
-Peter Stöger is at the FK Austria Wien club and is in the SK Vorwärts Steyr club , a player in FC Admira Wacker Mödling , and is the manager of FC Kolin .
-Abilene , Texas is served by the Abilene Regional Airport whose runway name is 17L / 35R . The airport is 546 meters above sea level and 2194 meters in length .
-Adirondack Regional Airport serves the city of Lake Placid and the city of Saranac , New York , the airport is 507 metres above sea level with a runway length of 2003 . 0 .
-Adolfo Suárez Madrid – Barajas Airport can be found in Madrid , Paracuellos de Jarama , San Sebastián de los Reyes and Alcobendas and is operated by ENAIRE . The runway name is 18L / 36R with a length of 3500 .
-Agra airport in India is operated by the Indian Air Force . It has the location identifier of VIAG and the IATA location identifier of AGR .
-The United States Air Force is operating Al Asad Airbase in Iraq with runway 08 / 26 that is 3990 . 0 long .
-The United States Air Force operates the Al - Asad airbase ; located in Al Anbar Province , Iraq . The runway named 09R / 27L is 3990 in length .
-Al Asad Airbase is operated by the United States Air Force which was involved in the Invasion of Grenada . The United States Air Force has The Lockheed AC - 130 , an attack aircraft and the McDonnell Douglas F - 15 Eagle , an aircraft fighter .
-Allama Iqbal International Airport in Pakistan serves the city of Lahore , has a runway length of 2900 . 0 and is operated by Pakistan Civil Aviation Authority .
-Amsterdam AIrport , Schiphol serves the city of Amsterdam and is - 3 . 3528 from sea level . The runway name is 09 / 27 Buitenvelderbaan and is 2014 . 0 in length .
-Amsterdam Airport Schiphol is - 3 . 3528 above sea level , has a runway name 18L / 36R ' Aalsmeerbaan which is 2014 . 0 in length and serves the city of Amsterdam .
-Andrews county airport , serving the city of Andrews in Texas has a runway length of 929 . 0 and is 973 metres above sea level .
-Tejano is the demonym for people from the state of Texas in the United States . The state capital is Austin and it is served by Andrews County Airport .
-Andrews County Airport is located in Texas , the capital of which is Austin . English is the language of Texas which is located in the United States .
-Angola International Airport is located at Ícolo e Bengo , Luanda Province , Angola and serves the city of Luanda .
-The Flemish government operate Antwerp International Airport which is owned by the Flemish region . The airport has an elevation of 12 . 0 metres above sea level and a runway length of 600 . 0 .
-The operating organization for Ashgabat International Airport is called Turkmenistan Airlines who have headquarters in Ashgabat , Turkmenistan . Their hub airport is Turkmenbashi International Airport .
-Athens is served by Athens International airport located in Spata . The airport is 94 metres above sea level and has a runway length of 3800 . 0 .
-The Atlantic City International Airport is located in Egg Harbor Township in the United States and serves Atlantic city , NJ where Don Guardian is leader .
-Atlantic City International Airport is located in Egg Harbor Township , New Jersey , U . S . The South Jersey Transportation Authority is the owner of the airport and it is run by Stephen Dilts .
-Charles Michel is the leader of Belgium where the German language is spoken . Antwerp is located in the country and served by Antwerp International airport .
-Antwerp International Airport serves the city of Antwerp in Belgium . The country ' s leader is Philippe of Belgium and French is one of the official language there .
-Adirondack Regional Airport serves the city of Saranac Lake which is part of Harrietstown and Essex County , New York .
-Al - Taqaddum Air Base serves the city of Fallujah , which is in Iraq , where Fuad Masum is the leader and the Kurdish languages are spoken .
-Al - Taqaddum air base serves the city of Fallujah in Iraq . The leader of the country is Haider al - Abadi and the Kurdish language is spoken .
-Located in Pakistan , the city of Lahore is served by Allama Iqbal International Airport which is Punjab Pakistan , where the leader is Malik Muhammad Rafique Rajwana .
-Poaceae is in the order of Commelinids , the class of Monocotyledon and belongs to the division of flowering plants . It forms the surface to the 1st runway at Alderney airport .
-Rona Fairhead is a key person for the BBC which headquarters are called the Broadcasting House . Along others , both BBC radio and Bananaman are broadcasted .
-Jill shilling was the star of the STV hit Bananaman , created by Steve Bright and first aired on the 3rd of October 1983 .
-American , Duncan Rouleau created Baymax , a character in the film Big Hero 6 , which starred Ryan Potter .
-The comic character Bolt , with the alternative name Larry Bolatinsky , was created by Gary Cohn and Ernie Colon , who is a Puerto Rican national .
-Eric Flint ( born Burbank , California ) is the author of 1634 : The Bavarian Crisis , which is the sequel to Grantville Gazette III . DeMarce short stories in the Grantville Gazettes preceded 1634 : The Bavarian Crisis .
-1634 : The Ram Rebellion is available as an E - Book and is 512 pages long . It was written by Eric Flint , Virginia DeMarce , et al . and has the ISBN number 1 - 4165 - 2060 - 0 .
-Wolters Kluwer , the parent company of Lippincott Williams & amp ; Wilkins that publishes AIDS ( journal ) , is in the UK where Elizabeth II is the leader .
-A Fortress of Grey Ice , written by J . V . Jones and produced in hardcover , has the ISBN number 0 - 7653 - 0633 - 6 and the OCLC number 51969173 .
-The hardcover book A Loyal Character Dancer was written by Qiu Xiaolong , has an OCLC number of 49805501 and an ISBN number of 1 - 56947 - 301 - 3 .
-Native Americans are an ethnic group within the United States where A Loyal Character Dancer was written in English , a language also spoken in Great Britain .
-A Loyal Character Dancer was published in the United States by Soho Press . The language of the country is English and one of the ethnic groups is Asian American .
-Diane Duane ' s ' A Wizard of Mars ' ( ISBN : 978 - 0 - 15 - 204770 - 2 ) was published in hardback and has 560 pages .
-Acta Mathematica Hungarica ( abbreviated as " Acta Math . Hungar . " ) covers the academic discipline of Mathematics . It has the ISSN number of " 0236 - 5294 " and LCCN number 83646315 .
-Paleobiology is an academic discipline of Acta Palaeontologica Polonica ( Acta Palaeontol . Pol . ) with a LCCN number of 60040714 and a ISSN number of 0567 - 7920 .
-Acta Palaeontologica Polonica is abbreviated to Acta Palaeontol . Pol and is published by the Polish Academy of Sciences . The publication has the ISSN number 1732 - 2421 and the LCCN number 60040714 .
-Administrative Science Quarterly was published by Cornell University , New York , affiliated with the Association of Public and Land Grant Universities and the Association of American Universities .
-Affiliated with the Association of Public and Land grant Universities , Cornell University , publisher of Administrative Science Quarterly , is the located in the city of Ithaca found in the state of New York .
-Garth Nix is the author of Aenir which has the ISBN number of 0 - 439 - 17684 - 0 . It has 233 pages and is available in paperback .
-African Americans are an ethnic group in the United States . It is also where the book Alcatraz Versus the Evil Librarians comes from . This book was written in English which is the language of Great Britain .
-American Journal of Mathematics is published in 1878 by the Johns Hopkins University Press whose parent company is Johns Hopkins University located in the United States .
-English is spoken in Great Britain and the United States . The book Alcatraz Versus the Evil Librarians comes from the U . S . where one of the ethnic groups is Asian Americans .
-A Wizard of Mars was published in the United States where the leader is Barack Obama . It is published in English which is the language spoken in Great Britain .
-A Wizard of Mars is written in English and was published in the United States , where Barack Obama is the President and Asian Americans is one of the ethnic groups .
-English is spoken in Great Britain and the United States . The leader of the United States is Barack Obama and is where A Wizard of Mars originates from .
-English is spoken in the United States and this is the country where A Severed Wasp is from . The US includes many Asian Americans and is led by Barack Obama .
-
-
-Born in Hong Kong , William Anders was a crew member of Apollo 8 with representative Chris Patten and Apollo 8 member Frank Borman .
-Buzz Aldrin was born in Glen Ridge , New Jersey . He obtained an Sc . D in 1963 from Massachusetts Institute of Technology . He was a crew member of Apollo 11 and has retired .
-Buzz Aldrin was born in Glen Ridge , New Jersey . He was a fighter pilot before being selected by NASA as a crew member of Apollo 11 in 1963 .
-
-
-
-
-
-AWH Engineering College was established in 2001 , and is located in the city of Kuttikkattoor , India , where the Ganges River is also located .
-The campus of the Acharya Institute of Technology in India which is affiliated to the Visvesvaraya Technological University in Belgaum is located at In Soldevanahalli , Acharya Dr . Sarvapalli Radhakrishnan Road , Hessarghatta Main Road , Bangalore – 560090 .
-The Acharya Institute of Technology is located in the city of Bangalore in India . It is affiliated with Visvesvaraya Technological University and its director is Dr . G . P . Prabhukumar .
-The All India Council for Technical Education in Mumbai granted Technical Campus status to the Acharya Institute of Technology . Tennis , which is governed by the International Tennis Federation is a sport offered at the Institute .
-1 Decembrie 1918 University is located in Alba Iulia , Alba County , Romania . The capital of the country is Bucharest .
-The School of Business and Social Sciences at the Aarhus University in Aarhus is located in Denmark , a country in which a magistrate form of government is led by Lars Lokke Rasmussen .
-Kochi is leader of Kerala state where the AWH Engineering College with an academic staff of 250 is located in the city of Kuttikkattoor .
-
-The 1 Decembrie 1918 University is located in Alba Iulia , Romania . The capital of the country is Bucharest and it ' s leader is Klaus Iohannis .
-Amatriciana sauce is from the Lazio region of Italy . The main ingredients are Tomatoes , guanciale , cheese , and olive oil .
-Arrabbiata sauce can be found in Italy , the capital of which is Rome . Pietro Grasso and Sergio Mattarella are leaders of the country .
-Arròs negre is a traditional dish from Catalonia , Spain . The main ingredients are white rice , cuttlefish or squid , cephalopod ink and cubanelle peppers .
-Arròs negre is a traditional dish from Catalonia , Spain . The main ingredients in arròs negre are white rice , cuttlefish or squid , cephalopod ink and cubanelle peppers .
-Arros negre is a traditional dish from Spain , where the ethnic group is the Spaniards . Arros negre is from the region of Catalonia , whose leaders are the Parliament of Catalonia .
-Asam pedas is a dish from Sumatra and Malaysia . Malaysian Malay is an ethnic group in Malaysia and Batak of Sumatra .
-Asam pedas is a food found in Malaysia and Sumatra . Malays are the Minangkabau people are ethnic groups in Sumatra .
-The United States , capital city Washington , D . C . , is led by Barack Obama . Asian Americans are one of the ethnic groups in the U . S . The country is also the origin of Bacon Explosion .
-Bacon Explosion comes from the United States where John Roberts is a leader . The country ' s capital city is Washington D . C . and Asian Americans are one of the ethnic groups of the USA .
-Bacon sandwich is a dish from the UK that ketchup is often added to . A variant of this sandwich is a BLT , which itself is a variation of the club sandwich .
-Bacon sandwich is a dish from the United Kingdom . It is also known as a bacon butty , bacon sarnie , rasher sandwich , bacon sanger , piece ' n bacon , bacon cob , bacon barm , or bacon muffin . The main ingredients in a Bacon sandwich are bread and bacon and it can be served with ketchup or brown sauce as a condiment .
-Baked Alaska and cookie is a type of dessert and comes from the United States . African Americans are one of the country ' s ethnic group .
-Baked Alaska comes from the US and is popular in Paris , New York and Hong Kong . The main ingredients are meringue , ice cream and sponge cake ( or Christmas pudding ) .
-Baked Alaska hails from Hong Kong but France , the US and China all claim to have invented the dish . The main ingredients are Meringue , ice cream , sponge cake or Christmas pudding .
-Baked Alaska comes from both Hong Kong and the United States . The main ingredients are Meringue , ice cream , sponge cake or Christmas pudding .
-A variant of bakewell pudding is bakewell tart . Bakewell pudding is from the Derbyshire Dales region which is part of Derbyshire . Fruit preserves are found in the Bakewell tart .
-Bakso is an Indonesian dish which is also popular in neighbouring Southeast Asian countries . The main ingredients of the dish are ground beef , tapioca , noodle , rice vermicelli , beef broth , kailan , celery , salted vegetables and fried shallots .
-Bakso is a food found in Indonesia . The main ingredients of the dish are ground beef , tapioca , noodle , rice vermicelli , beef broth , kailan , celery , salted vegetables and fried shallots .
-Bandeja paisa is a traditional dish from the Paisa and Colombian regions . The main ingredients in bandeja paisa are red kidney beans , pork belly , white rice , ground meat , chicharon , fried egg , plantain ( patacones ) , chorizo , arepa , hogao sauce , black pudding ( morcilla ) , avocado and lemon .
-The main ingredients of Bandeja paisa are red beans , pork belly , white rice , ground meat , chicharon , fried egg , plantain ( patacones ) , chorizo , arepa , hogao sauce , black pudding ( morcilla ) , avocado and lemon . The dish is from Colombian cuisine and originates in the Paisa region .
-Barny Cakes come from is France where they speak French . The leader is either François Hollande and / or Gerard Larcher .
-Batagor originates from the country of Indonesia , Shumai is a variation of the dish Siomay and contains Shiitake .
-Batchoy is a food found in La Paz , Iloilo City , Philippines . The main ingredients of Batchoy are noodles , pork organs , vegetables , chicken , shrimp , beef .
-Batchoy is a soup from the Philippines . The main ingredients of batchoy are noodles , pork organs , vegetables , chicken , shrimp , and beef .
-Beef kway teow is a popular dish in Singapore and Indonesia . The main ingredients for Beef Kway Teow are : Kway teow , beef tender loin , gula Melaka , sliced , dried black beans , garlic , dark soy sauce , lengkuas , oyster sauce , soya sauce , chilli and sesame oil .
-Beef kway teow is found in Indonesia and Singapore . Halimah Yacob is a leader of Standard Chinese speaking Singapore .
-Beef kway teow originates from Singapore and Indonesia . Kway teow , beef tender loin , gula Melaka , sliced , dried black beans , garlic , dark soy sauce , lengkuas , oyster sauce , soya sauce , chilli and sesame oil are the main ingredients of the dish .
-Bhajji comes from the Karnataka region of India . The dish contains vegetables and also known as Bhaji or bajji .
-Bhajji , also known as Bhaji or bajji , are found in the region of Karnataka and its ingredients are gram flour and vegetables .
-Sago and Sweet potato are ingredients in Binignit . Sweet potato belongs to the Solanales order of flowering plants .
-The main ingredient of binignit is coconut milk and it also contains sago . The dish comes from the Visayas region of the Philippines .
-Bionico , a dessert found in the Jalisco region of Mexico , has granola in it .
-Bionico is a food originates from the Guadalajara region of Mexico . The main ingredients of the dish are chopped fruits , sour cream , condensed milk , granola , shredded coconut and raisins .
-Bionico is a dessert found in Mexico , the leader is Silvano Aureoles Conejo and cookies are also a dessert .
-Bakso is a food originates from Indonesia and contains tapioca . The country ' s leader is Jusuf Kalla .
-Baduy is an ethnic group of Java , where the dish ayam penyet can be found . This dish is from the Singapore region , where Tony Tan is a leader .
-Batchoy is eaten in the Philippines where the spoken language is Philippine Spanish . The Zamboangans and Ilocano people are both ethnic groups in the country .
-Batchoy is a dish that is found in the Philippines , where the Igorot people and the Zamboangans are ethnic groups and where Arabic is one of the languages spoken .
-Philippine English is the language spoken in the Philippines , where the dish binignit can be found . It should be served as the dessert course . Other type of dessert is a cookie .
-Sandesh ( confectionery ) and Binignit are both dishes served as dessert . The latter dish originates from the Philippines where Philippine English is spoken .
-
-Administrative Science Quarterly was published by Cornell University , located in Ithaca , New York , and affiliated with the Association of Public and Land grant Universities , as well as with the Association of American Universities . President of Cornell University is Elizabeth Garrett .
-English is the language spoken in both Great Britain and the United States . However it is in the US that A Loyal Character Dancer was published by Soho Press . It is in this country that the ethnic group of African Americans can be found .
-English is spoken in Great Britain but is also the language of the United States where Native Americans are one of the ethnic groups . The book " A Loyal Character Dancer " was published in the US by Soho Press .
-A Loyal Character Dancer was published by Soho Press , which is located in the U . S . where they speak English , same as in Great Britain and have many Asian Americans .
-The language of both Great Britain and the United States is English . It is in the United States , where the capital is Washington DC and the ethnic group of Native Americans are found . The country is also the origin of the book " A Severed Wasp " .
-
-A severed Wasp , published in the United States , is written in the English language , which is also spoken in Great Britain . The president of the United States , where many Asian Americans live , is Barack Obama .
-
-1634 : The Ram Rebellion is an American novel and is preceded by 1634 : The Galileo Affair . The capital of the US is Washington D . C . and the previous leader was Barack Obama , One ethnic group in the country is Asian American .
-The United States is inhabited by Americans including the ethnic group of African Americans . The book 1634 The Ram Rebellion was written in the country which is led by President Barack Obama and has the capital city of Washington DC .
-English is spoken in Great Britain and the United States where A Wizard of Mars was published . The leader of the United States is known as the President and there is an ethnic group called Asian Americans .
-Albany is located in the US state of Georgia , U . S . With the leader called the President of the United States there are Asian Americans as well as Americans living there .
-The Native Americans are an ethnic group in the United States where Fulton County is found . The County , which is in the state of Georgia is the location of Alpharetta and has Atlanta as its largest city .
-Amarillo is part of Potter County in Texas in the United States whose capital is Washington DC and English is the language .
-Amarillo , Potter County is located in English speaking Texas ( United States ) , with its state capital as Austin .
-English is spoken in US state of Texas , where the capital is Austin . Texas is home to Amarillo , which is part of Potter County .
-Anderson is part of Fall Creek Township , Madison County , Indiana in he U . S . Anderson is 107 . 43 square kilometres large and has 523 . 9 residents for every square kilometre .
-Antioch is in Contra Costa County which is part of the San Francisco Bay area , in California , a state where English is spoken . Antioch forms California ' s 11th State Assembly district .
-Atlanta , ( part of DeKalb County , Georgia ) , covers an area of 344 . 9 ( square kilometres ) and has 1299 people per sq km . It ' s total area is 347 . 1 sq km . The area code for Atlanta is 404 .
-Attica , located in Logan Township Indiana , is 166 ft above sea level . It has a population density of 783 . 1 , and is 4 . 14 square km .
-Auburn is part of Lee County , Alabama , U . S . Washington , D . C . is the capital of the U . S . and African Americans are an ethnic group .
-Auburn is part of both King County and Pierce County in Washington which is located in the United States . It has a population density of 914 . 8 inhabitants per sq km and covers a total area of 77 . 41 sq kms .
-Austin is located in Texas which is where English is spoken . Austin is part of Williamson County , Texas and the largest city is Round Rock while Georgetown is the county seat .
-Austin , part of Hays County , is located in Texas . San Marcos is the county seat for Hays County . The biggest city in that state is Houston and English is spoken there .
-Austin is a part of Texas , where the largest city is Houston and Spanish is one of the languages spoken . Austin is in Hays County , whose county seat is San Marcos .
-Alexandria is part of Madison County , Indiana , U . S . Indianapolis is the capital of Indiana where American English is spoken .
-Arlington is part of Tarrant County in Texas , where Houston is the largest city and Spanish is spoken . The county seat of Tarrant County is Fort Worth .
-Texas , located in the United States , has a capital city of Austin . It is also home to Arlington ( located in Tarrant County ) and Fort Worth , which is the largest city in Texas .
-Atlantic City is part of New Jersey , U . S . and white Americans are an ethnic group . The capital of the United States is Washington DC , but the largest city is New York .
-Albany , is part of Linn County , Oregon , in the U . S . , where the capital is Washington D . C . The country ' s inhabitants are known as Americans , and one of the ethnic groups is Native Americans .
-Albany , Oregon is in the United States , whose capital is Washington DC and whose inhabitants are Americans . Asian Americans are an ethnic group there .
-Angola , is in Steuben County , in the United States Where English is spoken , the inhabitants are Americans , and one of the ethnic groups , is African Americans .
-Auburn is part of Lee County , in Alabama , in the United States . This country , has Washington D . C . as the capital , and Native Americans as one of the ethnic groups .
-The Native Americans are an ethnic group within the United States which is where Auburn , Alabama is found . It is part of Lee County which has the county seat off Opelika .
-New Jersey is in the United States , where the Native Americans are an ethnic group . Atlantic City , is a part of New Jersey , whose largest city is Newark and capital is Trenton .
-The leader of the United States , which uses the English language , is President Barack Obama . Albuquerque in New Mexico is located within the country .
-Angola , Indiana , is part of Steuben County , United States where Americans live . The Asian Americans are an ethnic group of the United States and English is the language spoken .
-Akron is in Summit County , Ohio , in the United States where the capital is Washington D . C . The country ' s leader is Barack Obama , and Native Americans are one of the ethnic groups .
-The leader of the United States , which includes the ethnic group of African Americans among its population of Americans , is the President . The country is the location of Albany in Georgia .
-The 11th Mississippi Infantry Monument is in Seminary Ridge , Gettysburg , Pennsylvania , USA . It was established in 2000 and is categorized as a Contributing Property .
-The 11th Mississippi Infantry Monument , classed as a contributing property , can be found in Adams County Pennsylvania . Adams County , south of Cumberland County has Carroll County , Maryland to the southeast and Frederick County , Maryland to the southwest .
-Dedicated to the Ottoman Army soldiers killed in the Battle of Baku and located in Baku is the Turkish Martyrs Memorial . Baku is the capital of Azerbaijan whose Prime Minister and leader is Artur Rasizade .
-The Turkish Martyrs Memorial , dedicated to Ottoman Army soldiers killed in the Battle of Baku is located in that city , the Capital of Azerbaijan . The leader of the country , Artur Rasizade is head of the National Assembly .
-President of Turkey is the official title of the Turkish leader and his name is Ahmet Davutoglu . Turkey ' s capital is Ankara and its largest city is Istanbul . The Atatürk Monument is located in Izmir , Turkey .
-Kerala state which has Mahe , India to it ' s northwest is also the home of the AWH Engineering College . The College was established in 2001 in the city of Kuttikkattoor and currently has 250 members of staff .
-The Acharya Institute of Technology is located at In Soldevanahalli , Acharya Dr . Sarvapalli Radhakrishnan Road , Hessarghatta Main Road , Bangalore – 560090 . The School is affiliated with Visvesvaraya Technological University and has 700 Postgraduate Students . Dr . G . P . Prabhukumar is director of the School .
-B M Reddy is the President of the Acharya Institute of Technology in Bangalore , India . The Institute is affiliated with the Visvesvaraya Technological University and has 700 postgraduate students .
-The European University Association has its headquarters in Brussels . The School of Business and Social Sciences at the Aarhus University is affiliate d with the European University Association and is located in Denmark . Denmark has a Monarchy with its leader being Lars Løkke Rasmussen .
-AWH Engineering College established in 2001 in Kuttikkattoor , India has 250 academic staff . Mumbai is the largest city in India .
-
-Lars Lokke Rasmussen is the leader of Denmark where the School of Business and Social Sciences at the Aarhus University in the city of Aarhus is located . The School was established in 1928 and has 737 academic staff members .
-Mols is situated to the northeast of Aarhus which has the magistrate type of government . The city of Aarhus is the location of the School of Business and Social Sciences at the Aarhus University which is affiliated with the European University Association headquartered in Brussels .
-Baymax is a character who appeared in Big Hero 6 starring Alan Tudyk . It was created by Steven T Seagle and the American , Duncan Rouleau .
-The manager of A . C . Lumezzane is Michele Marcolini who has played for F . C . Bari 1908 and Vicenza Calcio . A . C . Lumezzane ' s ground is in Italy where the leader is Pietro Grasso .
-
-A . S . Gubbio 1910 is in the Serie D league in Italy . Champions of Serie D are the S . S . Robur Siena . Sergio Mattarella leads Italy and Italian is the language spoken there .
-Gus Poyet is the manager of AEK Athens who play at their home ground of the Olympic Stadium ( Athens ) at Marousi . He previously played for Chelsea FC and is associated with Real Zaragoza FC .
-The ground of A . S . Gubbio 1910 is located in Italy , the capital of which is Rome , and the leader ' s name is Pietro Grasso . The people of Italy are Italian , as is the language spoken .
-The ground of A . S . Gubbio 1910 is located in Italy , where the leader is Sergio Mattarella and Italian is the official language . Italians are the people who live in Italy , where the capital city is Rome .
-Arem - arem is a food usually served in Indonesia which has the rupiah as its currency and the people speak Indonesian . Its leader is Jusuf Kalla and although arem - arem - is found nationwide , it ' s more specific to Java .
-From the Sumatra and Malay Peninsula regions , Asam pedas , is a food found in Malaysia . The country where the capital is Kuala Lumpur and where the Malay and Malaysian Chinese are two of the ethnic groups .
-Asam pedas is a food found in Malaysia , where the capital is Kuala Lumpur and ethnic groups include Malay and Malaysian Indian . The dish is also found in the regions of Sumatra and the Malay Peninsula .
-Asam Pedas , a dish from Sumatra , is found in Malaysia , where the capital if Kuala Lumpur and the Malaysian Malay is an ethnic group along with the Malaysian Indian .
-Asam pedas is from the Malay Peninsula region of Malaysia , the country where Abu Zahar Ujang is leader and where Malaysian Malay and Malaysian Indian are ethnic groups .
-The Bacon Explosion comes from Kansas City in the United States . It includes bacon obviously , but also sausage .
-The Bacon Explosion comes from the United States where English is spoken and the capital is Washington D . C . A political leader there is Paul Ryan and White Americans are one ethnic group of the country .
-The bacon sandwich , also known as : bacon butty , bacon sarnie , rasher sandwich , bacon sanger , piece n ' bacon , bacon cob , bacon barm , BLT and bacon muffin , is from the UNited Kingdom . It includes bread , bacon and ketchup or brown sauce .
-France , led by Gérard Larcher and Manuel Valls , is the home of Baked Alaska . Outside of this French - speaking nation , Baked Alaska is also popular in Hong Kong .
-Lemon is a member of the family Rutaceae and is of the order of Rosids . Lemon is an ingredient in the dish Bandeja Paisa , which hails from the Antioquia Department region of Colombia .
-Barny cakes , made from sponge cake , come from France where French is the national language and François Hollande and Gérard Larcher are leaders .
-Batagor is a variation of Siomay ( which contains peanut sauce ) and Shumai . It originates from Indonesia where the leader is president Joko Widodo .
-Batagor , Shumai and Siomay are variations of the same dish . Batagor is found in the country of Indonesia , which leader is Joko Widodo . Shiitake is an ingredient of Shumai .
-Batagor comes from Indonesia where Jusuf Kalla is the vice - president . Siomay and shumai are variations of the dish and all of them contain shiitake .
-Bhajji ( also called bahjo or bajji ) comes from the Karnataka region of India . It contains gram flour and vegetables .
-Bhajji , from the region of Karnataka , originates from india where people are referred to as indians , the leaders are T . S . Thakur and Vajubhai Vala .
-
-Bionico is a dessert dish from the Guadalajara region of Mexico and it contains the main ingredients sour cream , chopped fruits , condensed milk , granola , raisins and shredded coconut .
-
-Bionico is a dessert often including honey found in the Jalisco region of Mexico . The name of the leader in Mexico is Silvano Aureoles Conejo .
-Arros negre is a Spanish dish from the region of Catalonia where Carles Puigdemont is a leader . Spaniards are an ethnic group in Spain and the leader is Felipe VI .
-Amatriciana sauce can be found in italy , where the speak italian , the capital is Rome and their leaders are Matteo Renzi and Laura Boldrini .
-Amatriciana is a popular sauce from Italy where the capital is Rome and the population are known as Italians . Leaders of the country include Sergio Mattarella and Laura Boldrini .
-Italy is led by Pietro Grasso and the language spoken in the country is Italian . Matteo Renzi is a leader from Italy which has Rome as its capital and where you can find amatriciana sauce .
-
-In Singapore , one of the spoken languages is English , a leader is Tony Tan and ayam penyet is a dish from here . This dish is also found in Java where an ethnic group is the Javanese people .
-Batchoy comes from the Philippines , whose ethnic groups include the Zamboangans and the Chinese Filipino , and where Arabic and Philippine Spanish are among the languages spoken .
-The dish ajoblanco originates from Spain and more specifically Andalusia where Susana Diaz is the leader . In Spain , the language spoken is Spanish and an ethnic group are the Spaniards .
-Some famous Spaniards from Spain include Felipe VI ( leader of Spain ) and Susana Diaz who is the leader of Andalusia where ajoblanco comes from .
-Alan Bean is a retired American , who was born in Wheeler , Texas . He served as a test pilot and was selected by NASA in 1963 .
-Alan Shepard was on the crew of Apollo 14 , which was operated by NASA . He was born in New Hampshire , and was warded the United States Navy Distinguished Service Medal , which is higher than the Department of Commerce Gold Medal .
-William Anders who was originally from British Hong Kong joined NASA and became a member of Apollo 8 along with Frank Borman who was the commander .
-Buzz Aldrin was born on 20 January 1930 in Glen Ridge , New Jersey . A US national , he was a fighter pilot before becoming a crew member of Apollo 11 .
-Buzz Aldrin was a United States national . born Glen Ridge New Jersey , who served as a Fighter pilot before being a crew member on Apollo 11 , program organized by NASA .
-Buzz Aldrin was born in Glen Ridge , NJ and graduated from MIT , Sc . D . 1963 . He was a fighter pilot and a crew member on Apollo 11 . He is now retired .
-Buzz Aldrin , born in Glen Ridge , New Jersey , was a crew member on the NASA operated Apollo 11 mission ( for which William Anders was the backup pilot ) . Buzz is now retired .
-Buzz Aldrin was born on the 20th October 1930 . He was a crew member of Apollo 11 , but is now retired . William Anders was a backup pilot on the Apollo 11 mission , which was operated by NASA .
-Alan Shepard , crew member of the NASA Apollo 14 mission , died in California , the state that is famous for a gemstone called Benitoite . Dianne Feinstein is a senator in California .
-
-William Anders , a US national born in British Hong Kong , retired in 1969 - 09 - 01 . He was a fighter pilot and later served as a crew member of Apollo 8 .
-Margrethe II is the leader of Denmark where the Faroese language is spoken . The country is the location of Aarhus airport in Tirstrup , part of the Central Denmark region .
-Adolfo Suarez Madrid - Barajas Airport is located in Madrid , Paracuellos de Jarama , San Sebastian de los Reyes and Alcobendas at an elevation of 610 . 0 metres above sea level . It is operated by ENAIRE and has a runway name of 14L / 36R with a length of 4100 . 0 .
-Agra airport has the ICAO location identifier of VIAG and it has a runway length of 1818 . It is located in India at 167 . 94 metres above sea level and is operated by the Indian air force .
-The United States Air Force operates an Airbase in Iraq called Al Asad Airbase . Its ICAO location ID is ORAA . Its runway " 08 / 26 " is 3990 . 0 in length .
-The United States Airport operates the Al Asad airbase which is located in the Al Anbar Province , Iraq . The ICAO location identifer of Al Asad Airbase is ORAA and the length is 3992 . 88m and the runway is known as 08 / 26 .
-Al Asad Airbase is operated by the United States Air Force which was involved in the 1986 United States bombing of Libya . Some of the Air Force ' s aircraft are the Lockheed AC - 130 ( an attack aircraft ) , Boeing C - 17 Globemaster III ( transport aircraft ) and the General Dynamics F - 16 Fighting Falcon ( aircraft fighter ) .
-The United States Air Force is the operating organisation for Al Asad airbase and was involved in battles at the Invasion of Grenada and Operation Enduring Freedom . The Lockheed AC - 130 attack aircraft and the Lockheed C - 130 Hercules transporter are planes of the USAF .
-The Alderney Airport serves Alderney and its runway name is 08 / 26 . The 1st runway was made of Poaceae and it is 733 m long . The airport is 88 meters above sea level .
-Allama Iqbal International Airport in Pakistan is governed by the Pakistan Civil Aviation Authority and serves the city of Lahore . The airport runway is named 18L / 36R and has a length of 3310 .
-Allama Iqbal International Airport is located in Punjab , Pakistan and governed by The Pakistan Civil Aviation Authority & amp ; the name of its runway is " 18R / 36L " and its lentgh is 2900 . the airport serves the whole city of Lahore .
-Alpena County Regional Airport , which serves Alpena , is found in Maple Ridge Township , Alpena County , Michigan in the U . S . A . The airport is 210 metres above sea level and a runway that is 1 , 533 in length .
-The city of Alpena in Michigan is served by Alpena County Regional Airport which is located 210 metres above sea level in Maple Ridge Township , Alpena County , Michigan . The runway name is 7 / 25 and it has a length of 1533 . 0 .
-The location of Alpena County Regional Airport is Wilson Township , Alpena County , Michigan and it serves Alpena , Michigan . The airport , which lies 210 metres above sea level , has a runway named 1 / 19 / which is 2744 metres long .
-Aplena County Regional Airport , serving Alpena , Michigan is found in Wilson Township , Aplena County , Michigan in the USA . This airport is elevated 210 meters above sea level and it has a runway measuring 1533 . 0 in length .
-Angola International airport is located in Icolo e Bengo and serves the city of Luanda . It is situated 159 meters above sea level and has a 3 , 800 kilometers long runway named 05L / 23R .
-The Athens International Airport serves the city of Athens in Greece , Greek is spoken in Greece and the leaders names in Greece are Alexis Tsipras and Nikos Voutsis .
-Athens International Airport serves the city of Athens , Greece where the spoken language is Greek . Two leaders of Greece are Alexis Tsipras and Prokopis Pavlopoulos .
-Atlantic City in New Jersey is led by Don Guardian and is served by Atlantic City International airport at Egg Harbor Township , New Jersey , United States .
-Antwerp International Airport serves the city of Antwerp . It is in the country of Belgium , where the capital city is Brussels . The leaders of Belgium are Charles Michel ad Philippe of Belgium .
-Atlantic City International Airport is located in Egg Harbor Township , New Jersey in the United States . The Airport ' s ICAO location identifier is KACY .
-Adirondack Regional Airport serves Lake Placid and Saranac Lake , New York . Saranac Lake is part of Harrietstown , New York and is located in the United States .
-Saranac Lake is part of Harrietstown and part of Essex County , in New York , United States . Adirondack Regional Airport serves both the city of Saranac Lake and the city of Lake Placid , New York .
-Uttar Pradesh is part of Awadh and Bundelkhand . It is the location of Agra Airport which is operated by the Indian Air Force who deploy the aircraft capable helicopter known as the HAL Light Combat Helicopter .
-Agra Airport is in Uttar Pradesh ( part of Bundelkhand ) and operated by the Indian Air Force . The HAL Light Combat Helicopter is a Helicopter used by the Indian Air Force . Ram Naik is a leader of Uttar Pradesh .
-The leaders of Iraq are Halder al - Abadi and Fuad Masum , who speak Arabic . In the city of Fallujah , Iraq , there is the Al - Taqaddum Air Base .
-200 Public Square completed in 1985 is in Cleveland ( part of Cuyahoga County ) in Ohio , U . S .
-
-300 North LaSalle is located in Chicago ( leader : Rahm Emanuel ) , which is part of Illinois , United States . The capital of Illinois is Springfield .
-Margrethe II of Denmark leads the country where the Faroese language is spoken . The Marriott International , founded in Washington DC , are the current tenants of the AC Hotel Bella Sky in Copenhagen .
-Bill Marriott is the key person of Marriott International which was founded in Washington DC and is the tenant of the AC Hotel Bella Sky in Copenhagen , Denmark . One of the languages spoken in the country is Greenlandic .
-Marriott International , founded in Washington DC , is a tenant of AC Hotel Bella Sky located in Copenhagen , Denmark ( which is led by Lars Lokke Rasmussen and has Greenlandic as a spoken language ) .
-Adare Manor is located in the Republic of Ireland , whose leader is Enda Kenny . Its architect was Augustus Pugin , who was born in Bloomsbury . Another significant building designed by Pugin is the Palace of Westminster .
-The " Government of Addis Ababa " are the current tenants of Addis Ababa City Hall . The building started in 1961 and was completed in 1964 . It has a floor area of 140000 . 0 square metres and is 42 m high .
-The Akita Museum of Art is located in Akita , Akita , which is part of Akita Prefecture , Japan . The museum has 3 floors and its address is 1 - 4 - 2 Nakadori .
-Tarō Asō is one of the leaders in Japan , A country where there is an ethnic group of Chinese people . Also where the Akita Museum of Art is located , in Akita which is part of Akita Prefecture .
-The College of William and Mary is the owner of the Alan B . Miller Hall . which was designed by Robert A . M . Stern . Situated in Virginia , it has as its tenants United States based Mason School of Business .
-Amdavad ni Gufa is located in Ahmedabad , Gujarat , India . Sumitra Mahajan is an Indian leader and Gujarat is led by the Legislative Assembly .
-Ampara Hospital is in the Ampara district of Eastern Province , Sri Lanka . The leader of Eastern Province is Austin Fernando and the leader of Sri Lanka is Ranil Wickremesinghe .
-Ampara Hospital is in the Eastern Province , Sri Lanka . The Eastern Provincial Council is the governing body of Eastern Province . The capital of Sri Lanka is Sri Jayawardenepura Kotte and the leader of the country is Ranil Wickremesinghe .
-
-The architect Julia Morgan was born in San Francisco and designed several significant buildings . These included the grounds of Asilomar Conference , the Riverside Art Museum , Hearst Castle and Asilomar State Beach .
-The Asser Levy Public Baths are in New York City ( part of Manhattan ) in the U . S . New York City is part of New Netherland and a leader there is Cyrus Vance Jr .
-103 Colmore Row was designed by the architect John Madin , who was born in Birmingham , with the postcode area ' B ' . Labour politician , John Clancy is the city ' s leader , and the local governing body is Birmingham City Council .
-The title of the leader of the United States is the President of the United States , and the leader was Barack Obama . John Roberts is a leader in the US . The capital of the US is Washington DC , and 250 Delaware Avenue is located in the US .
-In 2000 the 11th Mississippi Infantry Monument which is categorised as a contributing property , was established . It is located at Seminary Ridge , Adams County , Pennsylvania , in the US .
-Adams County , Pennsylvania is located to the south of Cumberland County , Pennsylvania , to the east of Franklin County , Pennsylvania , to the northeast of Frederick County , Maryland , and to the northwest of Carroll County , Maryland . The 11th Mississippi Infantry Monument , which is classified as a Contributing property , is located in Adams County .
-Baku Turkish Martyrs ' Memorial ( designed by Huseyin Butuner and Hilmi Guner ) is dedicated to the Ottoman Army soldiers killed in the Battle of Baku and is made of red granite and white marble . The memorial is located in Baku , the capital of Azerbaijan . Artur Rasizade was an Azerbaijan leader .
-The Turkish leader is Artur Rasizade . Huseyin Butuner and Hilmi Guner designed the red granite and white marble Baku Turkish Martyrs Memorial , also known as Turk Sehitleri Aniti , in Azerbaijan . The memorial is dedicated to the soldiers who fell in the Battle of Baku .
-The 14th New Jersey Volunteer Infantry Monument is located on the Monocacy National Battlefield , Frederick , Maryland . The monument was established in 1907 - 07 - 11 and is categorised as a historic district in the United States .
-Alan Bean ( born 15th of March 1932 in Wheeler , Texas ) served as a test pilot . He was in space for 70 days and is now retired .
-Alan Shepard was born in New Hampshire and died in California . He was a crew member of the Apollo 14 , which was operated by NASA . The United States Navy awarded the Distinguished Service Medal to Alan Shepard , which ranks higher than Department of Commerce Gold Medal .
-Alan Bean , born Alan LaVern Bean was a crew member aboard NASA ' s Apollo 12 . He retired in 1981 . David Scott commanded Apollo 12 and Alfred Worden was the backup pilot .
-US national Buzz Aldrin , a fighter pilot born in Glen Ridge , NJ , graduated from Massachusetts Institute of Technology , Sc . D . 1963 and went on to become a crew member on Apollo 11 after being recruited by NASA in 1963 .
-Buzz Aldrin was born January 20 , 1930 in Glen Ridge , New Jersey . He graduated from M . I . T . with a Sc . D in 1963 , and served as a crew member aboard NASA ' s Apollo 11 , William Anders was a backup pilot on the same mission .
-Buzz Aldrin was originally from Glen Ridge , New Jersey . He worked as a fighter pilot for NASA and became a member of the Apollo 11 mission along with William Anders as backup pilot .
-
-Alan Shepard died in California where Dianne Feinstein is a Senator and one can find the gemstone Benitoite and fossils of the Smilodon . He once received the Distinguished Service Medal from the U . S . Navy which ranks higher than Department of Commerce Gold Medal .
-American William Anders was born in in British Hong Kong , was a test pilot , graduated from AFIT , M . S . in 1962 , was a member of Apollo 8 ' s crew and retired on 1st September 1969 .
-William Anders who is originally from Hong Kong worked for NASA and became a crew member for Apollo 8 along with Buzz Aldrin and Frank Borman . He retired on September 1st 1969 .
-William Anders who graduated from AFIT in 1962 worked for NASA and became a crew member of the Apollo 8 crew along with Frank Borman and Buzz Aldrin as backup pilot . Mr Anders is now retired .
-The Accademia di Architettura di Mendrisio in Mendrisio , Ticino Switzerland was established in 1996 and currently has 100 staff . The dean of the academy is Mario Botta .
-The Acharya Institute of Technology in the city of Bangalore , Kerala , India has 700 postgraduate students and is affiliated to the Visvesvaraya Technological University and has B M Reddy as President . The campus is located at In Soldevanahalli , Acharya Dr . Sarvapalli Radhakrishnan Road , Hessarghatta Main Road , Bangalore – 560090 .
-Established in 2000 , the Acharya Institute of Technology is in Bangalore , India . The institute ' s president is B . M . Reddy and it is affiliated with the Visvesvaraya Technological University . The campus is located in Soldevanahalli , Acharya Dr . Sarvapalli Radhakrishnan Road , Hessarghatta Main Road , Bangalore – 560090 .
-
-The School of Business and Social Sciences at the Aarhus University ( dean Thomas Pallesen ) is located in the city of Aarhus , Denmark and is affiliated with the European University Association which has its headquarters in Brussels . Denmark ' s leader is Lars Løkke Rasmussen .
-The River Ganges flows through India where the largest city is Mumbai . The AWH Engineering College was established in 2001 in the state of Kerala which is led by Kochi .
-1 Decembrie 1918 University is in Romania which is led by Klaus Iohannis and has Bucharest as its capital . Roman ' s anthem is Deșteaptă - te , române , its patron saint is Andrew the Apostle and its ethnic group are the Germans of Romania .
-Denmark , which is led by Lars Lokke Rasmussen is the location of the School of Business and Social Sciences at the Aarhus University in the city of Aarhus . The School was established in 1928 and has 16000 students and an academic staff of 737 .
-The Atatürk Monument is a bronze monument inaugurated on 27th July , 1932 , in Izmir . It is found in Turkey , a country which has Ankara as its capital and Istanbul as its largest city . The leader of Turkey is called Ahmet Davutoğlu , and the currency is the Turkish lira .
-President Ahmet Davutoglu is the Turkish leader where the capital city is Ankara . The bronze Ataturk Monument which was designed by Pietro Canonica is located in Izmir and was inaugurated on 27 July 1932 .
-President Ahmet Davutoglu is the leader of Turkey which has the currency of the Turkish lira . The capital city is Ankara although the largest city is Istanbul . The Ataturk monument was inaugurated on 27 July 1932 and is located in Izmir .
-The Accademia di Architettura di Mendrisio is located in Mendrisio , Switzerland . It was established in 1996 and its dean is Mario Botta . It has 100 academic staff and 600 students . Switzerland ' s leader is the Federal Chancellor .
-The Acharya Institute of Technology whose motto is " Nurturing Excellence " was established in 2000 in Bangalore , Karnataka in India . It ' s president is B . M . Reddy and director is Dr . G . P . Prabhukumar .
-The Acharya Institute of Technology is in Karnataka , which is southwest of Telangana and east of the Arabian Sea . The institute offers Tennis courses and is governed by the International Tennis Federation and was given the ' Technical Campus ' status by the All India Council for Technical Education in Mumbai .
-The 1 Decembrie 1918 University is in the city Alba Iulia in Romania . Klaus Iohannis the leader of Romania and they also have a Prime Minister . The Germans of Romania are the main ethnic group in Romania and the capital is Bucharest . The Romania anthem is Deșteaptă - te , române !
-Established in 1928 , the School of Business and Social Sciences at the Aarhus University in Aarus , Denmark has a staff of 737 and is affiliated with the European University Association . The dean is Thomas Pallesen . Denmark ' s leader is Lars Løkke Rasmussen .
-The School of Business and Social Sciences at the Aarhus University in Aarhus , Denmark is affiliated with the European University Association in Brussels . Denmark has a monarchy and a magistrate government . Its leader is Lars Lokke Rasmussen .
-
-Alan Bean is an American born on March 15 , 1932 in Wheeler , Texas . He graduated from UT Austin in 1955 with a BSc . Bean was a test pilot and a member of Apollo 12 . He is retired .
-Alan Shepard , born on November 18 , 1923 , graduated from NWC in 1957 with an M . A . Alan Shepard served as a test pilot , and was selected by NASA in 1959 . Alan Shepard , born in New Hampshire , died in California , .
-Alan Bean is a US national , who was born in Wheeler , Texas . He was a test pilot and part of the crew of the NASA operated Apollo 12 . Apollo 12 was commanded by David Scott , and had Alfred Worden as a backup pilot .
-Edwin E . Aldrin , Jr . was better known as Buzz Aldrin , a fighter pilot and member of Apollo 11 after NASA picked him for the space program in 1963 . Aldrin was born on January 20th , 1930 in Glen Ridge , New Jersey and a graduate of MIT ' s Sc . D . program in 1963 .
-Buzz Aldrin was an American , who was born in Glen Ridge , New Jersey on the 20th January , 1930 . He graduated from MIT with an Sc . D in 1963 . He was a fighter pilot and member of the Apollo 11 crew . He walked in space for 52 minutes .
-Buzz Aldrin is a US national born on 1930 01 20 in Glen Ridge , New Jersey . He graduated in 1963 from MIT with a Sc . D , was a member of the Apollo 11 crew and has won 20 awards . Buzz Aldrin is now retired .
-Buzz Aldrin , a US national , has retired . He was born on 20 January 1930 in Glen Ridge , New Jersey . He was selected by NASA in 1963 to serve as crew member on the Apollo 11 program .
-Buzz Aldrin was born in Glen Ridge , New Jersey . He graduated from MIT in 1963 with a Sc . D . He is an American who was a crew member on NASA operated Apollo 11 . He is now retired . Apollo 11 ' s back up pilot was William Anders .
-William Anders is an American who was born in British Hong Kong on October 17th 1933 . He was a fighter pilot and crewed Apollo 8 . He retired on the 1st September 1969 .
-William Anders was born in British Hong Kong but is an American . He was a member of Apollo 8 which is operated by NASA . His backup pilot was Buzz Aldrin . Anders retired in 1960 - 09 - 01 .
-William Anders was born in British Hong Kong on October 17th , 1933 . He served as a fighter pilot . He joined NASA in 1963 and was a crew member on Apollo 8 . He retired on the 1st September 1969 , having spent 8820 minutes in space .
-Aaron S . Daggett was awarded the Purple Heart .
-Aaron S . Daggett fought in the Battle of Mine Run .
-Ab Klink was born in Stellendam , Netherlands .
-Abdul Rahman Ya ' kub was in office whilst Tuanku Bujang Tuanku Othman was Vice President .
-Abdul Taib Mahmud is a member of the Parti Bumiputera Sarawak Party .
-Abdul Taib Mahmud was succeded by Sulaiman Abdul Rahman Taib .
-
-Minna was the birthplace of Abdulsalami Abubakar .
-Abdulsalami Abubakar was born in Niger State .
-
-Abner W . Sibal died in Alexandria , Virginia .
-
-Adam Holloway resided in Gravesend .
-Adenan Satem ' s alma mater is the University of Adelaide .
-Adolf Schärf was born in Mikulov .
-Adonis Georgiadis was in office under Antonis Samaras , Prime Minister .
-Adonis Georgiadis was the Deputy Minister for Development , Competitiveness and Shipping .
-
-Agnes Ward White was born in Marietta , Ohio .
-
-
-Airey Neave was born in Knightsbridge , London .
-Airey Neave was a Lieutenant Colonel .
-Airey Neave started serving in military in 1935 .
-Albert B . White is a member of the Republican Party in the United States .
-Albert B . White is married to Agnes Ward White .
-Albert Jennings Fountain was a member of the Union Army .
-Alberto Teisaire is Argentinian .
-Alberto Teisaire was Rear Admiral in the Argentine Navy .
-Alfons Gorbach died in Austria .
-
-Alfred Moore Scales fought in the Battle of Chancellorsville .
-Alfred N . Phillips place of birth was Darien Connecticut .
-Alfred N . Phillips was the Mayor of Stamford Connecticut .
-
-
-Allan Shivers was succeeded by Price Daniel .
-Alvah Sabin started active service on 1853 - 03 - 04 .
-Alvah Sabin belongs to the Whig Party ( United States ) .
-Robert E . Lee was a commander in the American Civil War .
-The language in Austria is Austrian German .
-Robert E . Lee was a commander in the Battle of Antietam .
-
-The leader of Buenos Aires is called Gabriela Michetti .
-Colin Powell was the commander in the Gulf War .
-Dwight D . Eisenhower preceded John F . Kennedy as President .
-Josef Klaus alma mater is the University of Vienna .
-The predecessor of Juan Carlos I f Spain was Francisco Franco .
-Juan Peron belongs to the Labour Party in Argentina .
-
-
-Bloomington , Maryland was the birthplace of William M O Dawson .
-The 1955 Dodge is also named the Dodge Coronet .
-The size of the engine in the 1955 Dodge is 230 cubic inches .
-The A - Rosa Luna was " christened " on the 7th April 2005 .
-AIDA Cruises are located at Rostock .
-The AIDAluna is operated by AIDA Cruises .
-The AIDAstella was christened in March 16 2013 .
-The AIDAstella was completed on the 11th March 2013 .
-The ship AIDAstella had her maiden voyage on March 17th 2013 .
-The operator of AIDAstella is AIDA Cruises .
-The launch site of the ALV X - 1 was the Mid - Atlantic Regional Spaceport .
-AMC Matador is also known as American Motors Matador .
-The ARA Veinticinco de Mayo ( V - 2 ) was sold to the Netherlands on 01 / 04 / 1948 .
-The Abarth 1000 GT Coupe has the straight four engine .
-
-
-
-The Acura TLX has a 9 - speed ZF 9HP automatic ( V6 ) transmission .
-
-The related transport to the Alfa Romeo 164 is the Lancia Thema .
-
-The Samuda Brothers built the Alhambra .
-The Alhambra has a ship beam of 8 . 3m .
-
-The Alhambra has a top speed of 18 . 52 .
-
-The Alvis Speed 25 was first manufactured in 1937 .
-The American submarine NR - 1 has a ship draft of 4 . 6 metres .
-The final flight of the Antares rocket was on 2014 - 10 - 28 .
-The launch site of the Antares rocket was the Mid - Atlantic Regional Spaceport Launch Pad 0 .
-
-The Ariane 5 was launched from the Guiana Space Centre .
-Ariane 5 had its maiden flight on August 11th 2005 .
-
-The Aston Martin made the Aston Martin V8 .
-Aston Martin are the manufacturers of the Aston Martin Virage .
-The final flight of Atlas II was on 1998 - 03 - 16 .
-The Atlas II was launched from Vandenberg Air Force Base .
-August Horch founded Audi .
-The Audi A1 is assembled at Audi Brussels .
-The Audi A1 and the Seat Ibiza are similar means of transport .
-Caterpillar Inc . is in Peoria , Illinois .
-Costa Crociere is in Genoa .
-DeSoto Custom is a related means of transport to Chrysler Newport .
-
-Germans is the demonym for people who live in Germany .
-The leader of Germany is Norbert Lammert .
-Stanislaw Tillich is a leader of Germany .
-
-The Guiana Space Centre ' s headquarters are located in Kourou , French Guiana .
-Honda are the makers of the Honda K engine .
-The anthem of the United States is the Star Spangled Banner .
-The United States has an ethnic group called Native Americans .
-Silvio Berlusconi is the chiarman of A . C . Milan .
-Aaron Boogaard was born in Canada .
-Aaron Hunt plays for SV Werder Bremen .
-Abel Hernandez played for the Uruguay Olympic football team .
-Abel Hernandez plays for the Uruguay national football team .
-Abner ( a footballer ) was born in Brazil .
-Diemen is the birth place of Adam Maher .
-
-Adam Maher plays for the Netherlands National club for players under 17 .
-
-Ahmad Kadhim Assad represented the Iraq national football team .
-Akeem Adams ' birthplace is Point Fortin .
-Akeem Dent used to play for the Atlanta Falcons .
-Akeem Priestley plays for the Connecticut Huskies .
-Al - Khor Sports Club play in the Qatar Stars League .
-Basim Qasim manages Al - Zawra ' a SC .
-
-Baghdad is the birth place of Alaa Abdul - Zahra .
-Alaa Abdul Zahra plays for Sanat Mes Kerman FC .
-Alan Martin is a footballer for the Hamilton Academical FC .
-Alan Martin played football for the Scotland national under 19 team .
-Aleksander Barkov Jr . was born on the 2nd September 1995 .
-Aleksander Barkov , Jr ' s club is the Florida Panthers .
-Aleksander Barkov , Jr ' s height is 1 . 905 metres .
-Aleksander Barkov Jr . plays in the National Hockey League .
-Aleksandr Prudnikov was born on 24th February 1989 .
-Aleksandr Prudnikov plays for the FC Amkar Perm football club .
-Aleksandre Guruli ' s birth place is Batumi .
-Aleksandre Guruli ' s club is FC Samtredia .
-Aleksandre Guruli once played for the Georgia national under - 21 football team .
-Alessio Romagnoli is a member of A . S . Roma .
-Alessio Romagnoli plays for A . S . Roma ' s youth team .
-Alex Plante ' s birthplace is Manitoba .
-Alex Tyus plays in the Turkish Basketball Super League .
-Atlanta Falcons play in the city of Atlanta .
-Don Sweeney is general manager of the Boston Bruins .
-
-English language is spoken in Canada .
-Canada ' s language is the Slavey language .
-The Columbus Blue Jackets are based in the city of Columbus , Ohio .
-The manager of FC Karpaty Lviv is Oleh Luzhny .
-
-Gabor Kubatov is the chairman of Ferencvarosi TC .
-The Finnish language is spoken in Finland .
-Daniele Zoratto is coach of the Italy national under 16 football team .
-The coach of Maccabi Ashdod B . C . is Zvi Sherf .
-Motherwell F . C . play their home games at Fir Park .
-Jean - Michel Aulas is the owner of the Olympique Lyonnais .
-American Football team , St . Louis Rams , are based in the city of St . Louis .
-The Tennessee Titans are based in the city of Nashville , Tennessee .
-
-Aaron Deer plays with The Horns of Happiness .
-Aaron Deer is signed to the record label Kill Rock Stars .
-Aaron Turner performs avant - garde metal music .
-Aaron Turner performs progressive metal music .
-Abradab ' s background is that of solo singer .
-The birth date of Abradab is 12th November 1978 .
-Abradab was born in Poland .
-Abradab performs hip hop music .
-The genre Guarania , is the musical genre that Agustin Barboza is involved in .
-
-Alan Frews ' musical genre is rock music .
-
-A solo singer is part of Aleksandra Kovač ' s background , .
-The birth place of Aleksandra Kovac is Yugoslavia .
-Aleksandra Kovac ' s genre is rhythm and blues .
-Aleksandra Kovač performs soul music .
-Alex Day performs Synthpop music .
-Alfredo Zitarrosa is associated with Hector Numa Moraes .
-The birth place of Alfredo Zitarrosa is Montevideo .
-
-Alfredo Zitarrosa ' s record label is RCA Records .
-1963 was the beginning of Alison O ' Donnell ' s active years .
-Alison O ' Donnell performs jazz music .
-Alison O ' Donnell is a musician who uses her voice , bodhran , percussion and autoharp .
-Allen Forrest ' s birth date is 04th February 1981 .
-Allen Forrest was a pop artist .
-Alligator records is based in Chicago .
-Anders Osborne and Johnny Sansone are associates .
-Rhythm and blues is the musical genre of Anders Osborne .
-Anders Osborne is signed to the record label Alligator Records .
-Andra performs rhythm and blues music .
-Andrew Rayel started his career in 2009 .
-The musicians Andrew Rayel and Christian Burns are associates .
-Andrew Rayel was born in Chisinau , Moldova .
-Andrew White is associated with the musical artist Marry Banilow .
-The musician Andrew White is signed to the record label B - Unique Records .
-Asunción is part of Gran Asunción .
-Christian Burns plays guitar .
-Gangsta rap is a sub genre of Hip Hop music .
-Hip Hop music has its origins in Funk .
-Indie Rock has its origins in New wave music .
-Manchester is a part of Greater Manchester .
-Polydor Records is located in London .
-RCA Records distribute through Sony Music Entertainment .
-Rock and Roll has its stylistic origin in the Blues .
-Synthpop ' s stylistic origins come from pop music .
-The native people of the United Kingdom are known as the British people .
-The celestial body known as ( 19255 ) 1994 VK8 has a density of 2 grams per cubic centimetres .
-Carl A Wirtanen discovered ( 29075 ) 1950 DA .
-The absolute magnitude of ( 410777 ) 2009 FD is 22 . 1 .
-The apoapsis of ( 410777 ) 2009 FD is 259776702 . 47055 kilometers .
-The apoapsis for ( 66063 ) 1998 RO1 is 254989570 . 60815 kilometres .
-( 66063 ) 1998 RO1 has an epoch date of 2013 - 11 - 04 .
-The escape velocity of 1000 Piazzia is 0 . 0252 km / sec .
-The former name of 1001 Gaussia is " 1923 OAA907 XC " .
-The celestial body known as 1001 Gaussia has a maximum temperature of 165 kelvins .
-101 Helena has an apoapsis of 441092000 . 0 kilometres .
-101 Helena has an epoch of 2006 - 12 - 31 .
-101 Helena has a mass of 3 . 0 kilograms .
-1036 Ganymed travels at an average speed of 16 . 86 kilometres per second .
-The celestial body known as 103 Hera has an absolute magnitude of 7 . 66 .
-103 Hera has a mass of 7 . 9 kilograms .
-The absolute magnitude of 107 Camilla is 7 . 08 .
-A Storrs discovered 107 Camilla .
-1089 Tama was formerly called " A894 VA ; A904 VD ; " .
-
-The celestial body known as 1097 Vicia has an average speed of 17 . 92 k . p . s .
-The epoch date of 1097 Vicia is 2006 . 12 . 31 .
-1097 Vicia has a rotation period of 95040 . 0 .
-109 Felicitas was discovered by Christian Heinrich Friedrich Peters .
-The periapsis of 109 Felicitas is 283326000000 . 0 .
-10 Hygiea has an average speed of 16 . 76 kilometres per second .
-1101 Clematis has a periapsis of 445895000000 . 0 .
-31 December 2006 is the epoch of 110 Lydia .
-11264 Claudiomaccone has a temperature of 173 . 0 kelvins .
-James Craig Watson ' s Alma mater is the University of Michigan .
-N . R . Pogson was born in Nottingham .
-Aaron S Daggett , fought in battles , most notably the Battle of Fredericksburg , he was awarded the Purple Heart .
-Aaron S . Daggett fought in the Battle of Gettysburg and was awarded the Purple Heart .
-Abdul Rahman Ya ' kub , who succeeded Abdul Taib Mahmud , has a deputy named Stephen Yong Kuet Tze .
-Abdul Taib Mahmud was born in the Kingdom of Sarawak and his party is the Parti Pesaka Bumiputera Bersatu .
-Abdulsalami Abubakar was born in Minna and he attended the Technical Institute Kaduna .
-Abdulsalami Abubakar , who was born in Niger State , was the Chief of the Defence Staff in Nigeria .
-Abdulsalami Abubakar was the Chief of the Defence Staff in Nigeria and he was succeeded by Al - Amin Daggash .
-Abdulsalami Abubakar ended his career on 1999 - 05 - 29 and was succeeded by Olusegun Obasanjo .
-Abdulsalami Abubakar , who was succeeded by Olusegun Obasanjo . was in office while Mike Akhigbe was Vice President .
-Abner W . Sibal fought in World War II and the commander of Russian during that war was Joseph Stalin .
-Abner W . Sibal served in the United States Army , which fought in the Korean War .
-Adam Holloway was born in Kent and attended Magdalene College in Cambridge .
-Adam Holloway was born in Kent and lives in Gravesend .
-Adam Koc fought in WWI and he was awarded the Virtuti Militari award .
-Adonis Georgiadis was born in Athens and worked as the Deputy Parliamentary Spokesman for the Popular Orthodox Rally .
-Adonis Georgiadis was born in Athens , in Greece .
-Greek born Adonis Georgiadis he has worked as the Deputy Parliamentary Spokesman of Popular Orthodox Rally .
-Agnes Kant was born in Hessisch Oldendorf and was employed as a Parliamentary group leader .
-Airey Neave received the Military Cross and served in the Royal Artillery .
-Airey Neave , began his career on March 4th 1974 , and fought in the Battle of France .
-Airey Neave fought in the Battle of France , the battle where Hugo Sperrle was the commander .
-Born in Kinightsbridge , Airey Neave fought in World War II .
-Franklin D Roosevelt was a commander in World War II , in which Airey Neave fought .
-Joseph Stalin was a commander in World War II , the war Airey Neave was involved in .
-Albert B White was born 1856 - 09 - 22 and died in 1941 .
-Albert B White , born on 22nd September 1856 , profession was politician .
-Born in New York City , Albert Jennings Fountain , died in Dona Ana County , New Mexico .
-Albert Jennings Fountain , who died in the New Mexico territory , was in office whilst Edmund J . Davis was Vice President .
-Albert Jennings Fountain was born in New York and is a member of the Republican Party .
-Alberto Teisaire worked as a Provisional President of the Argentine Senate and was succeeded by Isaac Rojas .
-Alfons Gorbach was born in Austria and Austria - Hungary .
-Alfons Gorbach was born in Tyrol state in Austria .
-Alfred Moore Scales , was Governor of North Carolina , and was succeeded by the politician James W Reid .
-Daniel Gould Fowle , attended Princeton University , and suceeded Alfred Moore Scales .
-Alfred N . Phillips was born in Connecticut and worked at the United States House of Representatives .
-Alfred N . Phillip was a member of the US Army that fought in the American Civil War .
-Allan Shivers fought in World War II where Joseph Stalin was also a commander .
-Allan Shivers who worked as a member of the Texas State Senate from District 4 ( Port Arthur ) , was born in Lufkin , Texas .
-Allan Shivers worked as a member of the Texas State Senate from District 4 ( Port Arthur ) he was succeed by Ben Ramsey .
-Alvah Sabin was born October 23 , 1793 . He worked as secretary of Vermont .
-Agnes Kant is a resident of Netherlands which uses the Euro as its currency . .
-Agnes Kant is from the Netherlands , the leader of which , is Mark Rutte .
-Albert B White died at Parkersburg , West Virginia , in the United States .
-Aaron Boogaard was born in Saskatchewan and plays for Wichita Thunder .
-Abel Hernandez has played for the club Peñarol which is managed by Jorge Orosmán da Silva .
-Abel Hernandez ' s club is US Citta di Palermo and Penarol .
-AZ Alkmaar player Adam Maher represented the Netherlands national side at Under 17 level .
-Adam Maher played for PSV Eindhoven and represented the Netherlands under 17 football team .
-Ahmad Kadhim Assad played for both Steel Azin F . C . and Al Shorta SC .
-Akeem Adams club is Ferencvarosi TC , where the manager is Thomas Doll .
-Akeem Adams , who plays for the Trinidad and Tobago national football team formerly played for the T & amp ; TEC Sports Club .
-Akeem Ayers draft pick is 39 ad his former team is the New England Patriots .
-Akeem Ayers used to play for Tennessee Titans and he was number 39 in the draft pick .
-Akeem Dent date of birth is the 27th September 1987 .
-Akeem Priestley plays for the Connecticut Huskies , having previously played for Sheikh Russel KC .
-Akeem Priestley plays for Sheikh Russel KC and formerly for RoPS .
-Alaa Abdul - Zahra has played for Al - Khor Sports Club , located in Al - Khor .
-Alaa Abdul Zahra plays for Al Kharaitiyat SC managed by Amar Osim .
-Alan Martin plays football for Hamilton Academical F . C and Leeds United F . C .
-Hamilton Academical FC ' s ground is New Douglas Park and is the club of Alan Martin .
-Aleksander Barkov Jr . was born on the 2nd September 1995 and plays for the Florida Panthers .
-Aleksander Barkov Jr was born in Tampere Finland and plays for the Florida Panthers .
-FC Torpedo Moscow , managed by Valery Petrakov , is a former club of Aleksandr Chumakov .
-Former clubs of Aleksandr Prudnikov include FC Spartak Moscow and FC Kuban Krasnodar .
-Aleksandr Prudnikov plays for FC Tom Tomsk which plays in the Russian Football National league .
-Aleksandre Guruli ' s club is FC Karpaty Lviv and he also played for FC Dinamo Batumi .
-Alex Plante was born in Manitoba in 1989 .
-Born on January 8th 1988 , Alex Tyus plays for the club Pallacanestro Cantu .
-Alex Tyus has played in the Turkish Basketball Super League and has also represented the club Maccabi Tel Aviv BC .
-The Conservative Party of Canada is the leader of Brandon , Manitoba , where Alex Plante was born .
-Adam McQuaid came from Canada whose anthem is O Canada .
-The English language is spoken in Canada which is the birthplace of Adam McQuaid .
-Aleksandre Guruli plays for FC Dinamo Batumi managed by Levan Khomeriki .
-Aleksandr Prudnikov plays for FC Spartak Moscow at the Otkrytiye Arena .
-Akeem Priestley plays for the club RoPS in the Veikkausliiga league .
-Akeem Adams played for United Petrotrin FC , who were playing in Palo Seco Velodrome .
-Aaron Deer plays the guitar and performs Psychedelia music .
-Aaron Deer is from the United States , specifically Indiana .
-Aaron Turner performs electroacoustic music and he played with the band Twilight .
-Aaron Turner is an avant - garde metal music singer .
-Abradab played with the band Kaliber 44 and is associated with the rapper Magik .
-Abradab was born in Katowice on 12th November 1978 .
-The birth place of Abradab is Poland , in Katowice .
-The musical genre of Ace Wilder is hip hop music which has its origins in Disco .
-Ace Wilder is a solo singer who uses the record label Warner Music group .
-Paraguay born Agustin Barboza is signed to Philips Records .
-Alan Frew ' s genre is Rock music of which bhangra is a fusion of rock .
-Alan Frews ' musical genre is rock music , which originated from country music .
-Albennie Jones plays Jazz , which originated from Blues music .
-With a background in solo singing , Aleksandra Kovač , belongs to the musical genre of Pop .
-Aleksandra Kovac is an exponent of Rhythm and blues , the music that originated from the blues .
-Aleksandra Kovač began her musical career in 1990 , she performs soul music .
-Alex Day performs Synthpop music which has its stylistic origin in new wave music .
-Alfred Garth Jones was born in England in 1872 .
-Solo singer Alfredo Zitarrosa is a Milonga stylist .
-Alfredo Zitarrosa started out as a solo singer and is an exponent of Taquirari .
-Born in Uruguay , Alfredo Zitarrosa died in Montevideo .
-
-Alfredo Zitarrosa has a background as a solo singer and performs Zamba music .
-Alison O ' Donnell was with the bands Bajik and Plastik Mak .
-Alison O ' Donnell ' s musical genre is folk rock and her recording label is Floating World Records .
-Alison O ' Donnell performs jazz music , she plays the bodhran , perscussion , and autoharp in addition to singing .
-Allen Forrest is a solo singer whose genre is Hip Hop music .
-The musician Andrew White ' s genre is alternative rock which has the subgenre of Christian alternative rock .
-Anders Osborne is associated with Phil Lesh and Friends as well as Tab Benoit .
-Anders Osborne genre is Rhythm and blues and his record label is Rabadash Records .
-Anders Osborne performs rhythm and blues music and is signed to Shanachie Records .
-Andra is a pop singer who started in 2000 .
-Andra performs rhythm and blues music , a style that originated from blues .
-Andrew Rayel is associated with Christian Burns and the musical artist Jonathan Mendelsohn .
-Andrew Rayel has worked musically with Jonathan Mendelsohn and Mark Sixma .
-Andrew Rayel is associated with the musician Jwaydan Moyine and the musical artist Armin van Buuren .
-New wave music is the origin of Alternative rock , which is the genre of Andrew White .
-Al Anderson of NRBQ performs country music which is a genre of music which uses the banjo .
-Andrew White is a musician signed to the record label Polydor Records which is located in London .
-( 19255 ) 1994 VK8 has an apoapsis of 6603633000 . 0 km and an escape velocity of 0 . 0925 km per sec .
-
-
-The escape velocity of ( 66063 ) 1998 R01 is 0 . 0999 km / sec and its epoch is on the 13th of January 2016 .
-( 66391 ) 1999 KW4 has an orbital period of 16244700 . 0 and an epoch date of 2004 - 07 . 14 .
-The epoch date for 66391 1999 KW4 is 2004 - 07 . 14 and it has a rotation period of 9953 . 28 .
-James craig watson who discovered 101 Helena died of peritonitis .
-The apoapsis measurement of the celestial boy known as 1036 Ganymed is 611961000 . 0 ( kilometres ) and it has an average speed of 16 . 86 km per sec .
-Walter Baade , who was born in the German Empire , discovered 1036 Ganymed .
-1036 Ganymed was discovered by Walter Baade , a German national .
-103 Hera was discovered by James Craig Watson , who later died from peritonitis .
-103 Hera was discovered by the Canadian James Craig Watson .
-Born in Nottingham , N . R . Pogson , discovered 107 Camilla .
-1089 Tama , with the epoch date of November 26th 2005 , was formerly called " A919 HA ; 1927 WB ; " .
-The temperature of 1089 Tama is 179 . 0 ( kelvins ) and its apoapsis is 373513000 . 0 ( kilometres ) .
-1097 Vicia has a periapsis of 279142000000 and an epoch date of 31st December 2006 .
-The temperature of the asteroid called 109 Felicitas is 170 . 0 kelvins and it has an apoapsis of 523329000 . 0 km .
-The epoch date of 109 Felicitas is the 31st December 2006 , and it has a periapsis of 283326000000 . 0 .
-The celestial body known as 109 Felicitas has a rotation period of 47487 . 6 and an epoch date of December 31st 2006 .
-10 Hygiea has an apoapsis of 523951582 . 33968 ( kilometres ) and a temperature of 164 kelvins .
-10 Hygiea has an epoch date of June 27th 2015 and was formerly named A900GA .
-110 Lydia , with a mass of 6 . 7 kilograms , has the epoch date 31st December 2006 .
-The celestial body known as 110 Lydia has an orbital period of 142603000 and an epoch date of 31 December 2006 .
-The A - Rosa Luna which is 125 . 8 metres long , is classed as a Cruise ship .
-The A - Rosa Luna ship which is 125800 . 0 millimetres in length , was ordered on January 22nd 2004 .
-AIDA Cruises is located in Germany and is operated by AIDAstella .
-AIDA Cruises , located in Rostock , are the operator of the ship AIDAluna .
-The AIDAluna has a top speed of 40 . 744 and it 252 metres long .
-The AIDAstella was christened on the 16th of March , 2013 and is 253260 . 0 millimetres long .
-The Diesel - electric transmission ALCO RS - 3 was built by the Montreal Locomotive Works .
-The ALV X - 1 rocket has 2 stages and a diameter of 1 . 524 metres .
-The AMC Matador is available in a 1974 model and was assembled in Kenosha , Wisconsin .
-Richard A . Teague is the Chrysler employee who designed the AMC Matador .
-The ARA Veinticinco de Mayo ( V - 2 ) which is derived from Argentina has a length of 192000 millimetres .
-The Alfa Romeo 164 , assembled in Milan , is a similar means of transport to the Saab 9000 .
-The Alfa Romeo 164 was assembled in Italy and is a similar means of transport to the , Fiat Croma .
-Alfa Romeo 164 is a related transport to Lancia Thema and is assembled in Italy .
-The Alvis Speed 25 was made by Coventry based Alvis Car and Engineering Company .
-The Alvis Speed 25 has an engine of 4387 cubic centimeters and a transmission system comprising a single plate clutch , separate 4 - speed gearbox all - silent and all - syncromesh , centre change lever , open tubular propellor shaft with metal joints and spiral bevel fully floating back axle .
-Alvis Speed 25 has a straight - six engine and has a transmission system comprising a single plate clutch , separate 4 - speed gearbox all - silent and all - syncromesh , centre change lever , open tubular propellor shaft with metal joints and spiral bevel fully floating back axle .
-The AMC Matador is made by American Motors who were succeeded by Eagle .
-The Antares rocket had its maiden flight on January 9th 2014 and was launched from the Mid - Atlantic Regional Spaceport .
-The ARA Veinticinco de Mayo ( V - 2 ) comes from Argentina which is led by Gabriela Michetti .
-The Ariane 5 which was launched at the ELA - 3 , was manufactured by Airbus Defence and Space .
-The Airbus Group is the parent company of Airbus Defence and Space who manufactured the Ariane 5 .
-Aston Martin V8 was made in the UK . The Aston Martin V8 is connected to the Aston Martin RHAM / 1 .
-The Aston Martin V8 was manufactured by Aston Martin and was succeeded by the Aston Martin Virage .
-The Aston Martin V8 ( which was succeeded by the Aston Martin Virage ) and the Aston Martin DBS are a related means of transport .
-Aston Martin Virage succeeded the Aston Martin V8 and is manufactured by Aston Martin .
-The final flight of Atlas II , which has a diameter of 3 . 04m , was on 16 March 1998 .
-The Atlas II , manufactured by Lockheed Martin , was launched from Cape Canaveral Air Force Station .
-Audi which is the manufacturer of the Audi A1 has a division called the Audi e - tron .
-The Audi A1 is made by Audi who also own Ducati .
-The Quattro Gmbh is a subsidiary of the Audi who manufacture the Audi A1 .
-The power type of the AIDAluna is an engine manufactured by Caterpillar Inc where Douglas R Oberhelman is a key person .
-The rocket Antares is comparable to the Delta II which was launched from the Vandenberg Air Force base .
-The icebreaker , the Aleksey Chirikov , is built by Finland , where the leader is Juha Sipila .
-General Dynamics is the parent company of the General Dynamics Electric Boat Co which built the American submarine NR - 1 .
-The A - Rosa Luna is powered by the Rolls - Royce Holdings owned , MTU Friedrichshafen , made engines .
-Aston Martin V8 was assembled in the United Kingdom which is ruled by Queen Elizabeth II .
-Born in Maine , Purple Heart recipient , Aaron S Daggett has fought in battles , the most notable being the Battle of Fredericksburg .
-Born in the Netherlands , Ab Klink attended Erasmus University Rotterdam and belongs to the Christian Democratic Appeal party .
-Abdul Taib Mahmud ' s birthplace was Kingdom of Sarawak and he was succeeded by Abdul Rahman Ya ' Kub whose deputy was Stephen Yong Kuet Tze .
-Abdul Taib Mahmud was born and lives in the Kingdom of Sarawak and is a member of the " Barisan Ra ' ayat Jati Sarawak " party .
-Abdulsalami Abubakar was born in Niger State , graduated from the Technical Institute in Kaduna and became the Chief of the Defence Staff in Nigeria .
-Nigerian Air Force member Abdulsalami Akubar was succeeded by Olusegun Obasanjo who was in office whilst Atiku Akubakar was Vice President .
-Olusegun Obasanjo , who was in office while Atiku Abubakar was Vice President , succeeded Nigerian Army man Abdulsalami Abubakar .
-Abel Caballero , born in Ponteareas , Galicia , Spain , worked as a Member of the Congress of Deputies .
-Abel Caballero was born in Galicia in Spain and is a member of the Spanish Socialist Workers ' Party .
-Abner W . Sibal served in the United States Army and fought in WWII . Joseph Stalin was a commander in that war .
-Born in Ridgewood , Queens , Abner W . Sibal , was a member of both the Connecticut Senate from the 26th District , and the Republican party of the United States .
-During the Gulf war George H W Bush was a commander and Adam Holloway was involved in the battles whilst serving in the Grenadier guards .
-Magdalene College Cambridge , was the alma mater of Adam Holloway , who was born in Faversham , and is a member of the Tories .
-Leon Trotsky was a commander in the Polish Soviet war in which Adam Koc was also involved . Koc was born in Congress , Poland .
-Leon Trotsky was a commander in the Polish - Soviet war , part of the Russian Civil War military conflict in which Adam Koc was involved .
-Born in Athens , Greece , Adonis Georgiadis , worked as the Deputy Parliamentary Spokesman of Popular Orthodox Rally .
-Adonis Georgiadis , born in Athens , Greece , worked as the Minister for Health .
-Adonis Georgiadis was a member of the New Democracy party in Greece whose color is blue . Mr . Georgiadis was in office while Antonis Samaras was Prime Minister .
-Agnes Kant is a national of the Netherlands and worked at the House of Representatives , where the leader is Mark Rutte .
-Agnes Kant is a member of the Socialist Party in the Netherlands whose leader is Mark Rutte .
-Agnes Kant was born in West Germany . She was a Member of the House of Representatives and her Alma mater was Radboud University in Nijmegen .
-Airey Neave participated in World War II and his career lasted from 30 June 1953 to 30 March 1979 .
-Airey Neave , began his career on March 4th 1974 , fought in World War II and ended his career on 30th March 1979 .
-Born on 22nd September 1856 , Albert B White , died on the 3rd July 1941 .
-William M . O . Dawson succeeded Albert B . White , whose spouse was Agnes Ward White , who was born in Marietta , Ohio .
-Albert Jennings Fountain was born in Staten Island and he died in the U . S . African Americans live in the United States .
-Albert Jennings Fountain was born in Staten Island , New York City and died in New Mexico Territory .
-Albert Jennings Fountain was born in Staten Island , New York and also died in the US .
-Alberto Teisaire died in Buenos Aires , the country which is governed by the Buenos Aires City Legislature and the leader is , Horacio Rodríguez Larreta .
-Alberto Teisaire was born in Mendoza in Argentina and was a Rear Admiral who was succeeded by Isaac Rojas .
-Alfons Gorbach was born in the County of Tyrol in Austria and later died in Graz .
-Alfred N . Phillips was a Member of the U . S . House of Representatives from Connecticut ' s 4th district who was born in Connecticut and succeeded by Albert E Austin .
-Born in Darien Connecticut , Alfred N Phillips , worked as Member of the U . S . House of Representatives from Connecticut ' s 4th district and was succeeded by , Albert E . Austin .
-Allan Shivers served in the U . S . Democratic Party , was a member of the Texas State Senate District 4 for Port Arthur and was succeeded by Wilfred R . Cousins , Jr .
-Alvah Sabin , who retired on 3rd March 1857 , represented Vermont , where the largest city is Burlington .
-Alvah Sabin , who was born on October 23rd , 1793 , was a member of the Whig Party of the United States which was led by Henry Clay .
-Alvah Sabin was born in Georgia Vermont and became a member of the Whig Party of the United States which is led by Daniel Webster .
-Abraham Lincoln was a commander in the American Civil War , where US born Albert Jennings Fountain fought .
-Alfred Moore Scales was in the American Civil War , Battle of Fredericksburg . Jefferson Davis was an American Civil War commander .
-Alfons Gorbach , was born in the County of Tyrol and died in Austria , the leader of which , is Doris Bures .
-Alfons Gorbach was born in the state of Tyrol and died in Austria , where the leader is Doris Bures .
-Doris Bures is the leader of Austria where Alfons Gorbach died in Styria .
-Robert E Lee was a commander in the Battle of Salem Church , which was one of the military conflicts in the American Civil War . Aaron S Daggett fought in the same battle .
-Born in Stellendam , Ab Klink is a national of the Netherlands where the Euro is the currency .
-The Polish language is used in Poland , where Adam koc was from . Poland has an ethnic group called Kashubians .
-19255 1994 VK8 has a mass of 5 . 6kg and an escape velocity of 0 . 0925 kilometres per second . Its apoapsis is 6603633000 . 0 km .
-( 410777 ) 2009 FD , which was discovered by Spacewatch , has an orbital period of 39447000 . 0 and a periapsis of 88234300000 . 0 .
-With an apoapsis of 254989570 . 60815 kilometres , ( 66063 ) 1998 RO1 , has a minimum temperature of - 71 . 0 degrees Celsius and a maximum temperature of 500 . 0 kelvins .
-Having a density of 2 . 0 gm per cu cm , ( 66391 ) 1999 KW4 , has an apoapsis of 162164091 . 8388 kilometres , an the average speed of 37 . 16 km per sec .
-
-1001 Gaussia , which was formerly called " 1923 OAA907 XC " , has an epoch date of 31 July 2016 and a periapsis of 419113394 . 55312 kilometres .
-101 Helena ; has a mass of 3 . 0 kgs , an escape velocity of 0 . 0348 kilometres per second , and an apoapsis of 441092000 . 0 kilometres .
-Walter Baade , a German national who graduated from the University of Gottingen , discovered 1036 Ganymed .
-James Craig Watson was the discoverer of 103 Hera , the epoch of which is on the 31st of July 2016 . He died in Madison , Wisconsin .
-103 Hera was discovered by James Craig Watson . He died in Madison , Wisconsin of peritonitis .
-103 Hera has the epoch of 27 August 2011 . It has an orbital period of 1622 . 213 days and an apoapsis of 437170000 . 0 ( kilometres ) .
-The celestial body known as 103 Hera has a temperature of 170 kelvins . It has has an escape velocity of 0 . 0482 kilometres per second and an apoapsis of 437170000 . 0 kilometres .
-NR Pogson was an English National who was born in Nottingham and discovered 107 Camilla .
-The 1089 Tama ( formally known as A894 VA ; A904 VD ) has an orbital period of 1202 . 846 days and an epoch date of the 26th November 2005 .
-1089 Tama , with the epoch date November 26th 2005 , has a periapsis of 288749000000 . 0 . and an apoapsis of 373513000 . 0 kilometres .
-
-Weighing 7 . 5kgs , 109 Felicitas , has an epoch date of December 31st 2006 , and its orbital period is , 139705000 . 0 .
-109 Felicitas has an epoch date of December 31st 2006 . Its orbital period is is 139705000 . 0 and its apoapsis is 523329000 . 0 ( kilometres ) .
-10 Hygiea ; has an average speed of 16 . 76 kilometres per second , an apoapsis of 523951582 . 33968 kilometre and takes 5 . 57 days to orbit .
-The celestial body known as 10 Hygiea , has a surface area of 837080 . 744 square km and an average speed of 16 . 76 km per secs . 10 Hygiea has an apoapsis of 523951582 . 33968 kilometres .
-The celestial body known as 10 Hygiea has a surface area of 837080 . 744 square km . It has an apoapsis of 523951582 . 33968 kilometres and a temperature of 164 Kelvins .
-110 Lydia has a mass of 6 . 7 kg , a periapsis of 377016000000 . 0 , and has an epoch date of December 31st , 2006 .
-110 Lydia , with the epoch date December 31st 2006 , has an apoapsis of 440756000 . 0 km and a periapsis measurement of 377016000000 . 0 .
-Aaron Bertram plays for the Suburban Legends pop music band . He is an artist with the band Kids Imagine Nation .
-From Indiana ( United States ) , Aaron Deer ' s musical genre is , indie rock .
-American , Aaron Deer , whose genre is Psychedelia , is from Indiana .
-Aaron Turner ' s music genre is Black Metal and he played with the Twilight band . He is also associated with the Greymachine band .
-Aaron Turner ; played with the band Twilight , is part of the drone music genre and is associated with the group Greymachine .
-Aaron Turner ; performs ambient music , played with the band Twilight and performs for Mamiffer .
-Death metal is a musical fusion of black metal , the music played by electric guitarist , Aaron Turner .
-Aaron Turner is a singer and Black metal musician . Death metal is a musical fusion of black metal .
-Born on 12th November , 1978 , Abradab , played with the band Kaliber 44 and is associated with the rapper , Magik .
-Abradab comes from Katowice and plays for the Kaliber 44 band . He plays with rapper , Magik .
-The musical genre of Ace Wilder is hip hop music . Hip Hop music originates from Funk and has its stylistic origins in disco .
-Agustín Barboza was born in Asunción , Paraguay . The leader of Paraguay is Juan Afara .
-Al Anderson is a singer who plays with the band NRBQ . His genre is rock music .
-Alan Frew is a performer of rock music which originated from country music . A musical fusion of rock music is bhangra music .
-Albennie Jones is a Jazz musician . Jazz comes from Blues music and the Afrobeat is a fusion genre of that music .
-Albennie Jones was born in Errata Mississippi and his musical genre is rhythm and blues which is where Disco derives .
-Aleksandra Kovač is associated with the musical artist Bebi Dol , is part of the band K2 ( Kovac sisters duo ) , and musical genre is Pop .
-Aleksandra Kovač , a performer of pop music , is associated with the musical artists Bebi Dol and Kornelije Kovač .
-Rhythm and Blues artist Aleksandra Kovač is a member of sister duo , K2 , with musician Kristina Kovač .
-The musical genre of Alex Day is Synthpop , a form of pop music which originated from Disco .
-Born in Manchester , England , Alfred Garth Jones , died in Sidcup .
-Alfred Garth Jones , born in England in the U . K . , died in London .
-Alfred Garth Jones , was born in Manchester , in the United Kingdom and died in London .
-Alfred Garth Jones was born in Manchester and died in Sidcup . The majority in Manchester is the Labour Party .
-Alfred Garth Jones died in Sidcup , London . Boris Johnson is a leader in the city .
-Irish Folk musician Alison O ' Donnell is part of the Flibbertigibbet band and formerly of Mellow Candle .
-Folk music is the genre of Alison O ' Donnell , who was in the bands Mellow Candle and the Flibbertigibbet band .
-Alison O ' Donnell is a jazz ( funk is a derivative of Jazz ) performer who sings , plays percussion , autoharp and bodhan .
-Funk is a derivative of Jazz , the music Alison O ' Donnell performs . Alison O ' Donnell recorded on the record label , Static Caravan Recordings .
-Allen Forrest ( Dothan , Alabama ) is a solo singer and an exponent of Pop music .
-Allen Forrest , born in Dothan , Alabama , performs rhythm and blues . He was originally a solo singer .
-Musician Andrew White ' s genre is alternative rock which originated from new wave music . Nu metal is a music fusion genre of alternative rock .
-Anders Osborne is associated with the musical artists Billy Iuso and Kirk Joseph and also associated with Tab Benoit .
-Anders Osborne ’ s musical genre is rock music and record label is Rabadash Records . The music Bhangra is part of the fusion genre , partly coming from Rock music .
-Andra is a singer and her music genre is Dance - pop . She is associated with the band CRBL and with the singer Puya .
-Rhythm and blues singer Andra is associated with musicians Marius Moga and Andreea Balan .
-Andra began her career as a solo singer and is a rhythm and blues singer . Disco derives from rhythm and blues .
-The musical genre of Andrew Rayel is trance music . He is associated with the musical artists Jonathan Mendelsohn and Christian Burns .
-Andrew Rayel , of the music genre trance music , is associated with the musical artists Jonathan Mendelsohn and Bobina .
-Musicians Andrew Rayel and Christian Burns are associates and while the latter plays house music , the former is associated with musician Jwaydan Moyine .
-Andrew white was once a member of Kaiser Chiefs and is associated with Marry Banilow . His record label is the now defunct Universal Records .
-Aaron Bertram plays for the Suburban Legends band and performs ska punk music , which has its origins in Ska .
-Albennie Jones was born in Errata , Mississippi , United States , where African Americans are one of the ethnic groups .
-The 1955 Dodge , also named the Dodge Coronet , has a 3 - speed automatic transmission and a V8 engine .
-A - Rosa - Luna , a cruise ship 125800 . 0 millimetres in length , was ordered on January 22 , 2004 .
-A - Rosa Luna has a ship displacement of 1850 tonnes and a top speed of 24 km / h . Its length is 125 . 8 metres .
-The AIDAstella is owned by Cost Crociere and it ' s operator is German based AIDA Cruises .
-The AIDAstella was christened on the 16th of March , 2013 , put in service on March 17 , 2013 , and is 253260 . 0 millimetres in length .
-The ALCO RS - 3 has a four - stroke engine , a length of 17068 . 8 millimetres and was built by the American Locomotive Company .
-The ALCO RS - 3 was built by the American Locomotive Company . It is 17068 . 8mm long and has a V12 engine .
-The American Locomotive Company , founded in Schenectady , New York , were the builders of the ALCO RS - 3 , which has a length of 17068 . 8 mm .
-ALVX - 1 comes from the US where Americans live and African Americans are an ethnic group .
-The ALV X - 1 originated in the United States , a country whose capital is Washington DC and has Native Americans as an ethnic group .
-The ALV X - 1 rocket which has a diameter of 1 . 524 meters and has 2 stages was launched one .
-The Abarth 1000 GT Coupé , with its straight four engine , completed production in 1958 .
-The Abarth 1000 Gt Coupe is a 2 door coupe which is 1 . 55m wide with a wheelbase of 2160mm .
-The icebreaker Aleksey Chirikov which has a ship beam of 21 . 2 , was built at the Arctech Helsinki Shipyard , in Helsinki .
-Alfa Romeo 164 , asembled in Italy ( capital : Rome ) , is a related mode of transportation as the Fiat Croma .
-The Lancia Thema and the Alfa Romeo 164 are related . The latter is built in Italy where the capital is Rome .
-The Arese assembled , Alfa Romeo 164 and the Fiat Croma as well as the Lancia Thema , are related types of transportation .
-The Alfa Romeo 164 , made in Milan , along with the Fiat Croma and the Saab 9000 are related cars .
-The Alhambra has a ship beam of 8 . 3m , is 63800 . 0 millimetres long , and was launched on 1855 - 05 - 31 .
-The Alhambra , which was wrecked , had a ship beam of 8 . 3 metres and was launched on 31 May 1855 .
-Alvis Car and Engineering Company was founded in Coventry and made the Alvis Speed 25 . Alvis Speed 25 has a petrol engine .
-The AMC Matador is made by American Motors who has a key person called Roy D Chapin . The AMC was succeeded by the Eagle Co .
-The Antares rocket , manufactured at the Yuzhnoye Design Office , is relative to the United States based , Delta II .
-The Antares rocket function is a medium expendable launch system manufactured at the Yuzhnoye Design Office and launched at the Mid - Atlantic Regional Spaceport Launch Pad 0 .
-Arianespace is the manufacturer of Ariane 5 which was launched from ELA - 3 at the Guiana Space Centre .
-The Aston Martin V8 assembly took place in Newport Pagnell , Buckinghamshire , England , United Kingdom . The Aston Martin V8 ( has a engine volume of 5 . 3 litres ) and the Aston Martin DBS are related means of transport .
-The Aston Martin V8 and the Aston Martin DBS are related means of transport . The V8 model is assembled in the United kingdom with a 5 . 3 litre engine .
-The US Atlas II was launched from Vandenberg Air Force Base and Cape Canaveral .
-The Atlas II originated from the United States , where Native Americans are an ethnic group . The leader of the United States has the title President of the United States .
-Originating from the U . S , the Atlas II was launched from the Spaceport Florida Launch Complex 36 , from the Cape Canaveral Air Force Station .
-The Audi A1 , a hatchback , has a 1 . 2 liter engine and is assembled by Audi Brussels .
-Audi ' s A1 is simiilar to the Seat Ibiza and the VW Polo .
-Caterpillar Inc . , founded in California and located in Peoria , Illinois , powers the AIDAluna .
-Caterpillar Inc . is found in Illinois and they powered the AIDAluna . AIDACruises owns the AIDAluna .
-The ship AIDAstella is operated by AIDA Cruises which is owned by Costa Crociere is in Genoa .
-The rocket Antares is comparable to the American , Delta II . The launch site of the Delta II was at the Vandenberg AFB Space Launch Complex 2 .
-The Ariane 5 was launched at ELA - 3 at the Guiana Space Centre . The Guiana Space Centre has its headquarters in French Guiana .
-The launch site of the Ariane was ELA - 3 at the Guiana Space Centre at Kourou , French Guiana .
-The builder of the A - Rosa is Neptun Werft , which headquartered in Rostock , Germany .
-The Atlas II originated from the U . S , where Americans live and one of the ethnic groups is African Americans .
-Aaron Hunt represented the club Goslarer SC 08 at youth level and has since played for both SV Werder Bremen and Vfl Wolfsburg .
-Aaron Hunt plays for the club SV Werder Bremen II and also VfL Wolfsburg which is managed by Dieter Hecking .
-Abel Hernandez is a member of the Central Espanol youth team and he plays for Hull City AFC but his club is US Citta di Palermo .
-Abel Hernández played football at youth level for Central Español . At senior level he has played for US Citta di Palermo and Penarol .
-Adam Maher was born in the Netherlands and his clubs are PSV Eindhoven and AZ Alkmaar .
-Akeem Adams played for W Connection F . C . and is a member of the United Petrotrin F . C . club . which play in Palo Seco .
-Akeem Ayers , whose former team was the Los Angeles Rams , was in draft round 2 and his draft pick number was 39 .
-Akeem Ayers , who formerly played for St Louis Rams , was number 39 in the draft pick and in draft round 2 .
-Akeem Dent , who was born on 27 September 1987 in Atlanta , Georgia , made his debut with the Atlanta Falcons .
-Iraqi born , Alaa Abdul - Zahra , whose club is Shabab Al - Ordon Club , plays for the Iraq national under 20 football team .
-Alaa Abdul - Zahra ' s clubs are Shabab Al - Ordon and also Al Kharaitiyat SC whose ground is Al Khor .
-Born on 1 January 1989 , Alan Martin currently plays for Hamilton Academical FC , having previously played with Clyde FC .
-Alan Martin ' s football club is Motherwell FC and he has also played for the Accrington based club Accrington Stanley .
-Born September 2 , 1995 , Aleksander Barkov Jr of Tampere , Finland , played for the Florida Panthers .
-Aleksander Barkov Jr was born in Tampere , Finland on Sept . 2 , 1995 and his draft team is the Florida Panthers .
-Aleksandr Chumakov was born in the Soviet Union and died there in Russia . The leader of Russia is Vladimir Putin .
-Born on 24th February 1989 , Aleksandr Prudnikov , plays for both , FC Alania Vladikavkaz and FC Kuban Krasnodar club .
-Aleksandr Prudnikov , whose club is FC Tom Tomsk , was born on 24th February 1989 and has played for the Russia national football B team .
-AZAL PFK player , Aleksandre Guruli , played for the Olympique Lyonnais club , the home ground of which , is the Parc Olympique Lyonnais stadium .
-Aleksandre Guruli , whose club is US Lesquin , played for the Olympique Lyonnais club who have their home ground at Parc Olympique Lyonnais stadium .
-Footballer Alessio Romagnoli , who represented Italy at Under 16 level , plays for C Milan , where the manager is Siniša Mihajlović .
-Alessio Romagnoli , who is connected to UC Sampdoria , plays for A . C . Milan which , is managed by , Siniša Mihajlović .
-Alessio Romagnoli plays for A . S . Roma and he use to play for the Italian national under 16 football team , which is coached by Daniele Zoratto .
-Alessio Romagnoli played for the club U . C . Sampdoria , and is a member of club Italy national under 17 ' s . He was born in Italy .
-Alex Plante was born in Brandon , Manitoba and is 1 . 9304 m tall . He plays for the Anyang Halla club .
-Born in Canada , Alex Plante is 1 . 9304 metres tall and has played for the club Anyang Halla .
-Alex Tyus plays for Maccabi Ashdod B . C . in the Euroleague . The coach of the Ashdod team is Zvi Sherf .
-Alex Tyus plays for Maccabi Ashdod B . C who are coached by Zvi Sherf and are part of the Turkish Basketball Super League .
-Aleksandr Prudnikov plays for FC Tom Tomsk and his club is FC Spartak Moscow , who have their home ground at the Otkrytiye Arena .
-Otkrytiye Arena is the home ground of FC Spartak Moscow , where Aleksandr Prudnikov played youth football . He later represented FC Anzhi Makhachkala .
-Aleksandr Chumakov plays for FC Torpedo Moscow who are managed by Valery Petrakov and played in the 2014 - 15 Russian Premier league .
-Abel Hernández plays for the Uruguay Olympic football team and his club is Hull City A . F . C . which is managed by Steve Bruce .
-Aleksandr Chumakov was born in Moscow and died in Russia . Sergey Sobyanin is Moscow ' s leader .
-Abner plays football for the Brazilian national under 20 football team and also for Real Madrid Castilla who are managed by Luis Miguel Ramis .
-Footballer , Abner plays for the club , Real Madrid Castilla and belongs to C . D . FAS club . Luis Miguel Ramis manages the Real Madrid Castilla .
-Alex Tyus was born in St Louis , ( part of greater St . Louis ) , where Francis G . Slay is the leader .
-Akeem Ayers , whose former team is the New England Patriots , made his debut with the American football team Tennessee Titans based in the city of Nashville .
-Akeem Adams , who plays for the Trinidad and Tobago national under - 20 football team previously played for United Petrotin FC whose ground is at Palo Seco .
-Alexander Nouri is the manager of SV Werder Bremen , which Aaron Hunt plays for . He also plays for , SV Werder Bremen II which is in the league 3 Liga .
-Abel Hernandez , who played for Penarol , was a member of the Central Espanol youth team . Abel Hernández ' s club is Hull City A . F . C . which is managed by , Steve Bruce .
-Abel Hernández was a member of youth club Peñarol , managed by , Jorge Orosmán da Silva . Abel Hernandezalso played for the Central Espanol club and now his club is US Citta di Palermo .
-When he was younger , Abel Hernández played for Peñarol . He now plays for US Citta di Palermo in the Serie A . League and managed by Giuseppe Iachini .
-Adam McQuaid was born October 12th 1986 on Prince Edward Island . He weighs 94 . 8024 kilograms .
-Don Sweeney is general manager for the Boston Bruins , the team Adam McQuaid played for . McQuaid was drafted to the Columbus Blue Jackets , from Columbus , Ohio .
-Akeem Ayers ; was born on 10th July 1989 , made his debut for the Tennessee Titans and used to play for the St . Louis Rams .
-Akeem Dent was born in Atlanta , Georgia on 27th September 1987 and played for the Houston Texans .
-Akeem Dent , born September 27 , 1987 in Atlanta , Georgia , on the Atlanta Falcons . He also played for the Houston Texans formerly .
-Alaa Abdul Zahra , whose club is Al - Zawra ' a SC , is also a member of the club , AL Kharaitiyat SC Amar Osim is the manager of Al Kharaitiyat SC . which is located in Al Khor .
-Alaa Abdul Zahra plays for Al Kharaitiyat SC , in Al Khor , and for the Iraq national under 23 football team . Al Kharaitiyat SC is managed by Amar Osim .
-Alaa Abdul - Zahra , whose club is Shabab Al - Ordon Club , also plays for Al Kharaitiyat SC . which is located in Al Khor . The manager of Al Kharaitiyat SC is Amar Osim .
-Footballer , Alan Martin , was born on the 1st January 1989 . He is 185 . 42 cm tall and plays for both the Hamilton Academical FC and Crewe Alexandra FC .
-Alan martin , was born on the 1st January 1989 . He is 185 . 42 cm tall , a footballer for the Crewe Alexandra FC and plays in the Scottish National under 21 football team .
-Born on Feb . 24 , 1989 and measuring 185 cm tall , Aleksandr Prudnikov plays for the FC Kuban Krasnodar and is part of the Dynamo Moscow FC .
-Aleksandr Prudnikov was born on 24 - 02 - 1989 , he is now 185cm tall . His club is FC Spartak Moscow but he currently plays for FC Rubin Kazan .
-Aleksandre Guruli was born in Batumi and he is 1 . 78m tall . He has played for FC Karpaty Lviv and FC Zestafoni .
-Alex Plante , who played for Anyang Halla , was born on 1989 - 05 - 09 , in Canada .
-1 . 9304m tall Alex Plante , whose club is Anyang Halla , was born in Canada , in 1989 .
-Aaron Boogaard ' s birthplace is Canada . The country , where one of the languages spoken is Inuktitut . It is also where O Canada is the national anthem and the leader is Elizabeth II .
-The anthem of Canada is O Canada , the leader is Elizabeth II , one of the ethic groups in Canada are the Asian Canadians and it is the birthplace of Aaron Boogaard .
-Elizabeth II is Canada ' s leader and the national anthem is " O Canada " . It is home to Aaron Boogaard and the Slavey language is spoken .
-Aleksandr Prudnikov , who plays for FC Kuban Krasnodar , also plays for FC Terek Grozny . Rashid Rakhimov is the manager of FC Terek Grozny , the ground of which , is located in Grozny .
-FC Torpedo Moscow who are managed by Aleksandr Chumakov and whose chairman is Aleksandr Tukmanov , played the 2014 – 15 season in the Russian Premier League . Aleksandr Chumakov has played for the club .
-Akeem Dent ' s first team were the Atlanta Falcons and his former team are the Houston Texans , which are based in the city of Houston and play in Texas .
-Abel Hernández was a member of youth club Peñarol , that play in the Uruguayan Primera División league . His current club is Hull City A . F . C . which is managed by , Steve Bruce .
-
-( 66063 ) 1998 RO1 had its epoch date on 2013 - 11 - 04 and has an orbital period of 360 . 29 days . It has an escape velocity of 0 . 0999 km / s and its apoapsis is 254989570 . 60815 kilometres .
-The mean temperature of ( 66063 ) 1998 RO1 is 265 . 0 kelvins and its apoapsis is 254989570 . 60815 kilometres . It has an epoch date of 4 November 2013 and an orbital period of 360 . 29 days .
-The epoch of 1000 Piazzia is 2015 - 06 - 27 . It has an escape velocity of 0 . 0252 km / sec , a periapsis of 352497000000 . 0 and an orbital period of 488160 . 0 .
-1923 OAA907 XC is the original name of 1001 Gaussia , which was discovered by Sergey Belyavsky and has an epoch date of June 27th 2015 . Its periapsis measures 419113394 . 55312 kilometres .
-1036 Ganymed was discovered by Walter Baade whose alma mater was the University of Gottingen . He had a doctoral student named Allan Sandage . Mr . Baade was born in Germany .
-1036 Ganymed was discovered by Walter Baade . Baade was born in Preußisch Oldendorf and attended the University of Gottingen where one of his doctoral students was Halton Arp .
-Walter Baade , who had a doctoral student named Halton Arp , discovered 1036 Ganymed . He had graduated from the University of Gottingen and later died in West Germany .
-James Craig Watson was the discoverer of 103 Hera . His Alma mater is the University of Michigan and he died in Madison , Wisconsin of peritonitis .
-Canadian James Craig Watson , who dies in Madison , Wisconsin , was the discoverer of 103 Hera , which has an apoapsis of 437170000 . 0 ( kilometres ) .
-James Craig Watson of Canada passed in Madison , Wisconsin from peritonitis . He was the discoverer of 103 Hera .
-N . R . Pogson discovered 107 Camilla which has a periapsis of 479 , 343 , 000 kilometres . Pogson was born in Nottingham and died in Chennai .
-107 Camilla was discovered by N . R . Pogson , who was born in Nottingham and died in Chennai . It was discovered on 1 March 2001 .
-1089 Tama ( previously called A894 VA ; A904 VD ) ; has an orbital period of 1202 . 846 days , a periapsis of 288749000000 . 0 , and the epoch date , 2005 - 11 - 26 .
-1089 Tama , with the epoch date November 26th 2011 , has an escape velocity of 0 . 0068 kmps . It orbital period is 1202 . 846 days and it has an apoapsis of 373513000 . 0 ( kilometres ) .
-1097 Vicia , with the epoch date December 31st 2006 , has a mass of 98 kgs , an apoapsis of 511592000 . 0 km and an orbital period of 135589000 . 0 .
-109 Felicitas has an orbital period of 139705000 . 0 and a periapsis of 283326000000 . 0 . Its epoch date is 31 December 2006 , and it has an escape velocity of 0 . 0473 kilometres per second .
-10 Hygiea was formerly known as A900 GA and has an epoch date of 27 June 2015 . The orbital period is 5 . 57 days and the periapsis measurement is 416136000000 . 0 .
-The celestial body known as 1101 Clematis has the epoch date of 31 July 2016 and an apoapsis of 520906000 . 0 ( kilometres ) . It has an orbital period of 183309000 . 0 and an escape velocity of 0 . 02 kmps .
-1101 Clematis , formerly known as " 1928 SJ " , has an orbital period of 183309000 . 0 and a periapsis of 445895000000 . Its epoch date is December 31st 2006 .
-1101 Clematis ' s escape velocity is 0 . 02 km / s , prbital period of 183309000 , periapsis of 445895000000 , and an epoch on the 31st of December .
-The 1955 Dodge is manufactured by Dodge and it has a V8 engine . It has a wheelbase of 120 inches and has a 3 speed automatic transmission .
-The 1955 Dodge is related to the Chrysler Newport and the DeSoto Custom which was made by DeSoto and succeeded by the DeSoto Firedome .
-Located at Rostock , AIDA Cruises operate AIDAstella ship which was built by Meyer Werft and owned by Costa Crociere .
-AIDAstella is 253260 . 0 millimetres long and was built by Meyer Werft . It is owned by Costa Crociere and operated by AIDA Cruises .
-The ALCO RS - 3 , built by the American Locomotive Company , has a diesel - electric , V12 engine and was produced from May 1950 to August 1956 .
-The ALCO RS - 3 has a V12 engine and a length of 17068 . 8 millimetres . It was produced between May 1950 and August 1956 by the American Locomotive Company .
-The ALCO RS - 3 was made in the U . S . in Schenectady , N . Y . by the American Locomotive Co . The ALCO RS - 3 is 17068 . 8 millimetres long .
-The ALCO RS - 3 was built by the Montreal Locomotive Works and produced between May 1950 and August 1956 . It has a V12 engine and a diesel - electric transmission .
-The ALCO RS - 3 was built by the Montreal Locomotive Works and produced between May 1950 and August 1956 . It has 12 cylinders and a four - stroke engine .
-The AMC Matador which is assembled in Mexico City is also known as the American Motors Matador . It is in the style of a station wagon and has an AMC V8 engine .
-The AMC Matador ( alternative name , VAM Classic ) was assembled in Kenosha , Wisconsin . It is classed as a mid - size car and it has an AMC straight - 6 engine .
-The Acura TLX is classed as a mid - size car , with a Honda K engine and front - wheel and all - wheel drive . It is assembled in Marysville , Ohio .
-The Acura TLX is a luxury vehicle with a V6 front engine design . It is assembled at the Marysville Auto Plant .
-The Finnish built Aleksey Chirikov is an icebreaker and currently in service . It was built by the Archtech Helsinki Shipyard and has a ship beam of 21 . 2m .
-The icebreaker Aleksey Chirikov was built in Helsinki , Finland . Finland is led by Juha Sipila and the demonym is Finns .
-The icebreaker Aleksey Chirikov was built in Helsinki by the Arctech Helsinki Shipyard It has a 21 . 2 m long shipbeam and is in service .
-The Alfa Romeo 164 is related to the Lancia Thema and the to the Saab 9000 and in that they are both cars . The Alfa Romeo 164 has a Straight four engine and was assembled in Italy .
-The Fiat Croma , Saab 9000 and Alfa Romeo 164 are all cars and therefore are related forms of transportation . The Alfa Romeo 164 , has a V6 engine and its assembly line is in Italy .
-The Alhambra has a ship beam of 8 . 3m and is 63800 . 0 millimetres long . It was launched on 1855 - 05 - 31 and had wrecked .
-The Alvis Speed 25 , which has a petrol engine , was manufactured by the Alvis Car and Engineering Company . The company was founded in Coventry and succeeded by the Rover Co . .
-The Alvis Speed 25 , with its straight - six engine , was made by Coventry area , Alvis Car and Engineering Company , which was succeeded by the Rover Company .
-American Motors was succeeded by Eagle and acquired by Chrysler , it includes figure Roy D . Chapin Jr . The AMC Matador is made by American Motors .
-General Dynamics Electric Boat is the builder of the American submarine NR - 1 and it was launched on January 25th 1969 . It ' s top speed is 8 . 334 and it has a ship beam of 3 . 8 m .
-The American submarine NR - 1 , which was launched on The 25th of January 1969 , has a top speed of 9 . 334 km / hr , a ship beam of 3 . 8m and a length of 45000 . 0 mms .
-The Antares rocket was made by the Yuzhnoye Design Office and launched from the Mid - Atlantic Regional Spaceport Launch Pad 0 . It ' s maiden flight was on 21 April 2013 and the final flight on 28 October 2014 .
-
-Aston Martin V8 was made by Aston Martin in the UK whose capital is London . The Martin was succeeded by the Aston Martin Virage .
-The Aston Martin RHAM / 1 , Aston Martin V8 and Aston Martin DBS are a related means of transport . It is assembled in the United Kingdom and has a 5 . 3 litre engine .
-The Aston Martin V8 , manufactured by Aston Martin , has a 5 . 3 litre engine and was succeeded by the Aston Martin Virage . The Aston Martin V8 and Aston Martin DBS are a related means of transport .
-The Atlas II , which is 3 . 04m in diameter , has been launched from Cape Canaveral Air Force Station and Vandenberg Air Force Base . Its final flight was December 5 , 2002 .
-Audi A1 belongs to the supermini class and is assembled at Audi Brussels . It has a 1 . 2 litre engine and a front engine , front - wheel drive layout .
-August Horch founded Audi , which makes the Audi A1 . Audi e - tron is a division of Audi and the company Ducati is owned by them .
-Caterpillar Inc was founded in California and is located in Illinois . It powers the AIDAluna which is owned by AIDA Cruises .
-The AIDAstella was built by Meyer Werft and is operated by AIDA Cruise Line . The AIDAstella is owned by Costa Crociere , who are located in Genoa .
-The Delta II originated in the United States and launched from the Cape Canaveral Air Force Station . It is similar to the Antares rocket which launched from the Mid - Atlantic Regional Spaceport Launch Pad 0 .
-Launched at Cape Canaveral Air Force Station and the Vandenberg AFB Space Launch Complex 2 was the Delta II US rocket . The Antares rocket is similar to the Delta .
-The Alfa Romeo 164 is a sedan that is assembled in Italy . It is a similar means of transport to the Fiat Croma and also related to the Opel Vectra .
-The Alfa Romeo 164 , Opel Vectra and Fiat Croma are similar means of transport . The Alfa Romeo 164 is a sedan which was assembled in Milan .
-General Dynamics is the parent company of the General Dynamics Electric Boat Co . out of Groton , CT . The GD Electric Boat Co built the American sub called NR - 1 which has a 3 . 8 m beam .
-Neptun Werft built the A - Rosa Luna at Rostock Germany where Stanislaw Tillich is leader .
-The Atlas II is from the United States , where African Americans are among the ethnic groups . Washington D . C . is the capital city of the United States and English is spoken there .
-Americans live in the U . S . whose capital is Washington , D . C . and an ethnic group there is known as African Americans . The Atlas II comes from the U . S .
-Aaron Bertram plays for the Kids Imagine Nation band and his musical genre is Ska punk . He also plays for the Suburban Legends band in which Brian Robertson plays the trombone .
-Coming from Indianapolis , Indiana , Aaron Deer , has a background as a solo singer and performs Psychedelia music .
-Aaron Turner , a singer who performs electroacoustic music , is with the band Isis and has performed with the group Sumac .
-Aaron Turner played with Twilight and Old Man Gloom bands . He started performing Post metal in 1995 .
-Aaron Turner plays electric guitar and his genre is Black Metal music in which Death metal is a fusion . He performed with the band Sumac .
-Ace Wilder was born on July 23 , 1982 in Stockholm . He is a solo singer .
-Singer Ace Wilder was born July 23 , 1982 in Sweden .
-Solo singer Ace Wilder was born in Stockholm in 1982 . He is also a songwriter .
-Born in 1982 in Sweden , Ace Wilder is a solo singer and songwriter .
-Ahmet Ertegun originates from Washington D . C , United States . He started out as a non performing personnel in the rhythm and blues .
-Ahmet Ertegun is from the United States , where African Americans are an ethnic group . His genre is Rock and roll , which has its stylistic origin in the Blues .
-Ending his career in 1950 , Albennie Jones was a performer of rhythm and blues . This genre originated from the blues and has disco as a derivative .
-Albennie Jones performs jazz music which originated its style from Blues music . Albennie Jones was born in the U . S . A , where on of the ethnic groups , is African Americans .
-Pop musician and solo singer Aleksandra Kovač was born 1972 , in Belgrade .
-Born in the Socialist Republic of Serbia ( 1972 ) , Aleksandra Kovac , a solo singer , is an exponent of Rhythm and blues .
-Acoustic musician Alex Day began in 2006 and is associated with the Chameleon Circuit and Charlie McDonnell .
-Alex Day performs electronic music and plays with the band Chameleon Circuit . His active musical years started in 2006 and he is associated with the musical artist , Charlie McDonnell .
-Alfred Garth Jones was born in 1872 in Manchester , England and died in London .
-Alfredo Zitarrosa died in Montevideo , Uruguay . The city ' s leader is Daniel Martinez and the country ' s inhabitants are known as Uruguayans .
-With a background as a solo singer , Uruguay born Alfredo Zitarrosa was signed to the RCA Records label and performed in the musical genre of Candombe .
-Folk musician , Alison O ' Donnell ; started performing in 1963 , was with the band Bajik and was a member of the Flibbertigibbet band .
-Alison O ' Donnell began performing folk music in 1963 . She ' s been associated with the bands Head South By Weaving and Mellow Candle .
-Alison O ' Donnell is a jazz musician whose record label is the London - based Deram Records . She is signed to the record label " Floating World Records . " .
-Previously signed to the record label Fruits de Mer Records , jazz musician , Alison O ' Donnell is signed with the London based , record label , Deram Records .
-Fort Campbell is the birth place of Allen Forrest , who was born in the year 1981 . He is a solo singer who plays acoustic music .
-Allen Forrest was born in 1981 in Fort Campbell , KY and raised in Dothan , AL . He was originally a solo singer and performs hip hop music .
-Andrew White is associated with the musical artist Marry Banilow and he plays alternative rock . That type of music originated from punk rock . Nu metal music is a fusion of alternative rock music .
-Anders Osborne is associated with the musical artists Billy Iuso and Tab Benoit . He is an exponent of rock music and worked with the Galactic band .
-Alligator records is based in Chicago and the main genre they deal with is blues . Anders Osborne ' s record labels are Alligator Records and Shanachie Records .
-Anders is a professional Dance - pop music singer . She is a solo singer and was born in Romania .
-Andra is a rhythm and blues singer . Originating from blues music , rhythm and blues has funk and disco as derivatives .
-In 2009 Andrew Rayel started his music career . He played Trance music . Mr . Rayel is associated with Christian Burns and Jonathan Mendelsohn .
-Musicians Jwaydan Moyine and Christian Burns are associated with Andrew Rayel , whose musical genre is trance music , which has its origins in House music .
-Andrew White started his musical career in 2003 and is associated with the musical artist , Marry Banilow . He plays for the band Kaiser Chiefs and his genre is alternative rock .
-Andrew White , who began his musical career in 2003 and was associated with Marry Banilow , was signed to the now defunct record label Universal Records . He was a member of the band The Kaiser Chiefs .
-Agustin Barboza was born in Paraguay which is led by Juan Afra . He died in Asuncion which is part of Gran Asuncion .
-Al Anderson ( NRBQ band ) performs country music and also was a member of the Wildweeds . Banjo is used for Country Music .
-Allen Forrest performs hip hop music , which has its stylistic origins in disco and funk . Drum and bass is a derivative of hip hop .
-The birthplace of Alfred Garth Jones is Manchester , ( part of Greater Manchester ) , England . In Manchester the Labour Party is in the majority .
-Aaron Turner played post - metal music with the Twilight band . He also played with the House of Low Culture . Cello is a post - metal instrument .
-Aaron Turner plays electric guitar and played with the band Twilight . Twilight performs black metal music which when part of a musical fusion is called death metal .
-Rhythm and blues artist Albennie Jones was born in the United States . R and B originated from the blues and among the ethnic groups in the U . S . are African Americans .
-Maine born Aaron S Daggett fought in the American Civil War , was awarded the Purple Heart and died in West Roxbury .
-Born in Maine , Aaron S . Daggett fought in the Battle of the Wilderness , awarded the Purple Heart , and died in West Roxbury .
-Ab Klink worked at the Ministry of Health , Welfare and Sport in Netherlands , the country where he was born . He was a student of Erasmus University in Rotterdam which is affiliated with the Association of MBAs .
-Mirir , Malaysia born Abdul Taib Mahmud , who lives in Kuching , represented the Asajaya region and was a member of the Parti Pesaka Bumiputera Bersatu .
-Abdul Taib Mahmud was born and resided in the Kingdom of Sarawak . He was in the Parti Pesaka Bumiputera Bersatu and represented the Asajaya region .
-Japanese occupied , British Borneo , was the birthplace of Adenan Satem , who succeeded Abdul Taib Mahmud . Abdul Taid Mahmud is a member of Barisan Ra ' ayat Jati Sarawak party and resides in Sarawak .
-Abdul Taib Mahmud , who lives in Sarawak , belongs to the Parti Pesaka Bumiputera Bersatu . He was succeeded by Adenan Satem , who was born in the Japanese occupation Of British Borneo .
-Abdulsalami Abubakar served in the Nigerian Army and was in office while Mike Akhigbe was Vice President . Oladipo Diya was the predecessor of Mike Akhigbe and Atiku Abubakar was his successor .
-Abdulsalami Abubakar was a member of the Nigerian Air Force . He was in office while Mike Akhigbe was Vice President . Oladipo Diya was the predecessor of Mike Akhigbe and Al - Amin Daggash was the successor of Abdulsalami Abubakar .
-Abel Caballero , born in Galicia , Spain , served office during Prime Minister Felipe Gonzalez ' leadership and Juan Carlos I of Spain ' s Monarchy . Francisco Franco preceded Juan Carlos I .
-Abel Caballero was born in Galicia in Spain , is a member of the Spanish Socialist Workers ' Party and worked as Minister of Transport .
-Abraham A Ribicoff , married to Casey Ribicoff , was born in New Britain , Connecticut which is in the United States , where Native Americans are an ethnic group .
-Adam Holloway was born in Kent and his alma mater was Magdalene College , Cambridge . His career began on 5 May 2005 and he fought in the Gulf war .
-Adam Koc , a Polish nationalist , fought in the Polish - Soviet War . Joseph Stalin was a commander in that war . The Polish language is used in Poland .
-
-Adonis Georgiadis , who was born in Athens , Greece , served as the Vice President of New Democracy and was later succeeded by Makis Voridis .
-Adonis Georgiadis , who was born in Athens Greece worked for the Ministry of Economy , Development and Tourism and his successor was Makis Voridis .
-Adonis Georgiadis was born in Athens in Greece and before being succeeded by Makis Voridis worked as a member of the Hellenic Parliament .
-Emile Roemer is a leader of the Socialist Party in Netherlands of which Agnes Kant is also a member . The country uses the Euro as its currency .
-Agnes Kant is a national of the Netherlands where Mark Rutte is a leader . Kant is also a member of the Socialist Party and worked at the House of Representatives in the Netherlands .
-Agnes Kant is from the Netherlands , where the leader is Mark Rutte . Emile Roemer is a member of ( and leader of ) the Socialist Party in the Netherlands .
-Agnes Kant , a Netherland national , is a member of the Socialist Party of the Netherlands which is led by Emile Roemer and uses the colour of red .
-Airey Neave was born in Knightsbridge in London and started his career on the 30th June 1953 . He fought in the Battle of France and ended his career on the 30th March 1979 .
-Airey Neave , who was born in Knightsbridge , London , fought in the Battle of France . His career lasted only five years beginning March 4th , 1974 and ending on the 30th of the same month in 1979 .
-Airey Neave served in the Royal Artillery Unit which has a garrison in Hohne . He also participated in World War II where Chiang Kai - shek was a commander .
-Albert B . White , who was born in Cleveland an died at Parkersburg , West Virginia was succeeded by William M . O . Dawson who was born in Bloomington Maryland .
-Albert B . White was born in Cleveland and his successor was William M . O . Dawson . He started his career on March 4 , 1901 and finished it on March 4th 1905 .
-Born in New York city ( where French is one of the languages spoken ) , Albert Jennings Fountain battled in the American Civil War . The same conflict in which Abraham Lincoln was a commander .
-New York City was the birthplace of Albert Jennings and he passed away in Dona Ana County , New Mexico . He fought in the American Civil War and one commander in that war was Jefferson Davis .
-Albert Jennings Fountain was born in New York on Staten Island and died in New Mexico Territory .
-Alberto Teisaire belongs to the Justicialist Party and was in office while Juan Peron was President . Teisaire died in Buenos Aires , where the leader is Horacio Rodríguez Larreta .
-Alberto Teisaire was born in Mendoza in Agentina and he was a Rear Admiral . He worked as a Provisional President of the Argentine Senate and his successor was Isaac Rojas .
-Alfred Moore Scales was born in Reidsville , North Carolina , is a member of the Democratic Party in the United States and served as Governor of North Carolina . He was succeeded by Daniel Gould Fowle .
-Connecticut born Alfred N Phillips served in the US Army and fought in the Whiskey Rebellion battle . He was later a Member of the U . S . House of Representatives from Connecticut ' s 4th district .
-Alfred N . Phillips , born in Connecticut was a member of the United States Democratic Party and worked as a Member of the U . S . House of Representatives from the Connecticut ' s 4th district . His successor was Albert E . Austin .
-Darien , Connecticut is the birthplace of Alfred N . Phillips and he was a member of the United States Democratic Party . He was also the Mayor of Stamford Connecticut and his successor was Albert E . Austin .
-U . S . Democratic Party member and Texas Governor , Allan Shivers , was born in Lufkin , Texas . He was succeeded by Price Daniel .
-Allan Shivers was born in Lufkin , Texas , and served in the Democratic Party of the US . He worked as the Governor of Texas and was eventually succeeded by Wilfred R Cousins Jr .
-Alvah Sabin is from the state of Vermont , which has the largest city of Burlington . Sabin worked as the Secretary of State of Vermont and represented Vermont ' s 3rd Congressional District .
-Alvah Sabin was a member of the Whig Party of the United States and he represented Vermont , whose biggest city is Burlington . Daniel Webster was a leader of the Whig Party in the United States .
-The Battle of Gettysburg took place during the American Civil War when Robert E Lee was a commander . Aaron S Daggett fought at the Battle of Gettysburg and was awarded the Purple Heart .
-Argentinian , Alberto Teisaire was in office while Juan Peron was President . Perón was a member of the Labour Party in Argentina where the dominant language is Spanish .
-Juan Peron was a member of the Labour Party of Argentina and during his Presidency Alberto Teisaire was in office . Teisaire was born in Mendoza in Argentina and was eventually succeeded by Isaac Rojas .
-Carnival Corporation & amp ; plc is the parent company of Costa Crociere which is the owner of the AIDAstella . The AIDAstella was built by Meyer Werft and is operated by AIDA Cruises which is based in Germany .
-The AIDAstella was built by Meyer Werft and operated by the AIDA Cruise Line . It is 253260 . 0 millimetres long with a beam of 32 . 2 metres and a top speed of 38 . 892 km / h .
-The ALCO RS - 3 was built by the American Locomotive Company and was produced between May 1950 and August 1956 . It has a cylinder count of 12 , is 17068 . 8 ( millimetres ) in length , and has a four - stroke engine .
-The ALCO RS - 3 , built by the American Locomotive Company , has a V12 cylinder engine and is 17068 . 8mm long . It was produced from May 1950 to August 1956 .
-The ALV X - 1 originated in the United States where the inhabitants are known as Americans and include the ethnic group of Native Americans . The capital city is Washington DC and the national anthem is the Star Spangled Banner .
-The AMC Matador , also known as American Motors Matador , was assembled in Thames , New Zealand . The AMC Matador is a mid - size station wagon with a V8 engine type .
-A transport London company called P & amp ; O owns the Alhambra ship which contains a Humphrys , Tennant and Dykes power type and has a ship beam of 8 . 3 m . The ship was built by the Samuda Brothers .
-The AMC Matador is manufactured by American Motors , whose subsidiary is The Wheel Horse and successor is Eagle . American Motors was acquired by Chrysler and Roy D Chapin Jr is a key person there .
-The American submarine NR - 1 which was launched on January 25th 1969 has a top speed of 8 . 334 km / h . It has a 3 . 8m ship beam , a draft of 4 . 6m and measures 45000 mms in length .
-The Antares rocket is comparable to the Delta II , which originates from the United States . The launch site of the Antares was the Mid Atlantic Regional Spaceport Launch Pad 0 , which is also associated with the rocket Minotaur IV .
-The Antares rocket ' s maiden flight was on the 28th October 2014 and its last flight on 2014 - 07 - 13 . Its launch site was the Mid - Atlantic Regional Spaceport Launch Pad 0 . It is manufactured at the Yuzhnoye Design Office and is 3 . 9 m in diameter .
-The Antares rocket , manufactured by the Yuzhnoye Design Office , was launched from the Mid - Atlantic Regional Spaceport Launch Pad 0 . At 3 . 9m in diameter , the Antares rocket had its maiden flight on the 28th October , 2014 and final flight on the 18th of September , 2013 .
-The Airbus Defence and Space manufactured the Ariane 5 which has a diameter of 5 . 4 metres . It was launched from the Guiana Space Centre , making its maiden flight on 11 August 2005 and the final flight on 18 December 2009 .
-The Guiana Space Centre ' s headquarters are located in French Guiana , it is the location of the ELA - 3 launchpad where the Ariane 5 was launched . ELA - 3 is operated by Arianespace , which is located in Courcouronnes .
-The Aston Martin DBS ( later succeeded by the AM Vantage ) and the Aston Martin V8 are related means of transport . The latter is assembled at Newport Pagnell by Aston Martin and has a 5 . 3 litre engine volume .
-The Aston Martin RHAM / 1 , and the Aston Martin DBS are related means of transport to the Aston Martin V8 . The latter vehicle is a coupe with a 5 . 3 litre engine and is assembled at Newport Pagnell .
-The Aston Martin V8 , suceeded by the the Aston Martin Virage and made n the United Kingdom , led by Elizabeth II . The Vs , the Virage ( made by Aston Martin ) and the Aston Martin DBS , are related modes of transportation .
-The Audi A1 is a hatchback belonging to the supermini class . It has a 1 . 2 litre engine , a front - engine with front - wheel - drive and is assembled in Brussels , Belgium .
-Made by Audi , whose founder is August Horch , is the Audi A1 . Subsidiaries of Audi are the Ducati , Audi e - tron and Lamborghini .
-The power type of the AIDAluna , owned by AIDA Cruises , is the Caterpillar Inc . engine . Caterpillar , Inc . was founded in California in the U . S . and is located in Peoria , Illinois .
-Douglas R . Oberhelman is the key person at Caterpillar Inc which was founded in the United states . The company powers the AIDAluna which is owned by AIDA Cruises located in Rostock .
-Douglas R . Oberhelman is a key person at Caterpillar Inc . who provide the power type for the AIDAluna owned by AIDA Cruises . The company was founded in the United States and located in Peoria , Illinois .
-The AIDAstella , which was built by Meyer Werft , is operated by AIDA Cruises . It ' s owner are Costa Crociere who are located in Genoa and a subsidiary of Carnival Corporation & amp ; Plc .
-Finland is led by Juha Sipila and is home to the Finns . Sami languages are spoken there and the icebreaker ship , Aleksey Chirikov , was built there in the Arctech Helsinki Shipyard .
-The builder of the A - Rosa is Neptun Werft whose HQ is in Rostock , Germany . Berlin is the capital in that country and Joachim Gauck is the name of one of its leaders .
-The A Rosa Luna was built on the Neptun Werft which is found in Rostock , Germany . Berlin is its capital and Andreas Vosskuhle is one leader there .
-The United States , has a capital city of Washington D . C . , it ' s inhabitants are known as Americans and an ethnic group that lives there are Native Americans . The language of the US is English and it is the creator of the Atlas II .
-Abel Hernandez is a member of Penarol ' s youth club and the club is managed by Jorge Orosmán da Silva . US Citta di Palermo and the Central Espanol are also Mr . Hernandez ' s clubs . The latter club is part of the Uruguayan Segunda División league .
-Former Soviet Union international footballer Aleksandr Chumakov died in Russia , where the leader is Valentina Matviyenko . FC Torpedo Moscow , managed by Valery Petrakov , once signed Aleksandr Chumakov .
-Aleksandre Guruli played for the Olympique Lyonnais club who play their home games at the Parc Olympique Lyonnais and have the chairman , Jean - Michel Aulas . His current club is FC Karpaty Lviv managed by Oleh Luzhny .
-Defender Alessio Romagnoli , whose former clubs include UC Sampdoria , has played for the Serie A side AC Milan , which is managed by Siniša Mihajlović .
-Alessio Romagnoli is a member of the Italian national under 17 football team and has represented the club U . C . Sampdoria . He is presently with the AC Milan that is managed by Siniša Mihajlović and whose chairman is Silvio Berlusconi .
-Central Español , where Abel Hernandez played youth football , are part of the Uruguayan Segunda División league . Hernández has represented Uruguay at international level and also played for the club U . S . Città di Palermo , where the manager is Giuseppe Iachini .
-Aleksandr Prudnikov plays for FC Spartak Moscow who have their home ground at Otkrytiye Arena and are chaired by Sergey Rodionov . He also plays for FC Amkar Perm under the management of Gadzhi Gadzhiyev .
-Aleksandr Prydnikov belongs to FC Terek Grozny , which is managed by Rashid Rakhimov , and has its grounds at Grozny . Prudnikov plays for FC Spartak Moscow , which includes chairman Sergey Rodionov .
-Aleksandr Prudnikov once played for FC Spartak Moscow ' s youth team but now plays for the FC Dynamo Moscow and the FC Terek Grozny out of Grozny . The FC Terek Grozny sees a manager in Rashid Rakhimov .
-Aleksandr Chumakov was born in the Soviet Union and was a member of the Soviet Union national football team . He has also played for FC Torpedo Moscow who are managed by Valery Petrakov and participated in the 2014 - 15 Russian Premier League .
-Akeem Adams is a member of the United Petrotrin F . C . club and also Ferencvarosi TC . The latter club , whose ground is Palo Seco , is chaired by Gabor Kubatov and managed by Thomas Doll .
-Akeem Adams belongs to Ferencvárosi TC , which is managed by Thomas Doll and includes chairman Gábor Kubatov . He has played for United Petrotrin F . C . , who play in Palo Seco Velodrome .
-The epoch of 19255 1994 VK8 , which has a mass of 5 . 6 kilograms is December 31st , 2006 . Its orbital period is 8 , 788 , 850 , 000 kilometres , with a periapsis of 6 , 155 , 910 , 000 , 000 kilometres and an apoapsis of 6 , 603 , 633 , 000 kilometres .
-101 Helena was discovered by the Canadian James Craig Watson on August 15th 1868 . Mr Watson , who studied at the University of Michigan , died in Madison , Wisconsin .
-101 Helena was discovered by James Craig Watson who originated from Canada and graduated from the University of Michigan . He later died of peritonitis in Madison , Wisconsin .
-Walter Baade , who had a doctoral student named Allan Sandage , was born in the German Empire and graduated from the University of Gottingen . He discovered 1036 Ganymed and later died in Gottingen .
-Walter Baade , born in the German Empire and graduate of the University of Gottingen , discovered 1036 Ganymed . Halton Arp and Allan Sandage were doctoral students of Walter Baade .
-
-James Craig Watson , a Canadian who attended the University of Michigan , discovered 103 Hera on Sept . 7 , 1868 . He died in Madison , Wisconsin .
-103 Hera was discovered by James Craig Watson , a Canadian who studied at the University of Michigan and died in Madison , Wisconsin . Its periapsis is 371240000 . 0km .
-B . Zellner was the discoverer of 107 Camilla that has an orbital period of 2368 . 05 days . It ' s epoch is Dec . 31 , 2006 . The celestial body has a periapsis of 479343000 . 0 kilometres and an apoapsis of 560937000 . 0 km .
-107 Camilla , epoch date 31 December 2006 , was discovered by C Woods and has an orbital period of 2368 . 05 days . The apoapsis and periapsis measurements are 560937000 . 0 km and 479343000 . 0 km respectively .
-107 Camilla , which has an epoch date of December 31st 2006 , was discovered by F . Vilas . Its orbital period is 2 , 368 . 05 days , its periapsis is 479 , 343 , 000 kilometres and has an apoapsis of 560 , 937 , 000 kilometres .
-N . R . Pogson was born in Nottingham in the U . K . and died in Chennai . He discovered 107 Camilla which has an absolute magnitude of 7 . 08 .
-1089 Tama was formerly known as A919 HA ; 1927 WB , has an epoch of November 26th , 2005 and an orbit of 1 , 202 . 846 days . Its escape velocity is . 0068 kilometres a second and it has an apoapsis of 373 , 513 , 000 kilometres .
-The epoch of 1101 Clematis is on the 31st of July 2016 and it has a mass of 5 . 7 kilos . The orbital period for 1101 Clematis is 183309000 . 0 , has an apoapsis of 520906000 . 0 kilometres , and an escape velocity of 0 . 02 kilometres per second .
-11264 Claudiomaccone has the epoch date of 26 November 2005 , its temperature is 173 . 0 kelvins and has an orbital period of 1513 . 722 days . It has a periapsis of 296521000 . 0 kilometres and its apoapsis is 475426000 kms .
-Abdul Taib Mahmud was born in Miri , Malaysia , on May 21st 1936 and lives in Kuching . He represented Asajaya and was a member of the Parti Pesaka Bumiputera Bersatu .
-Abdul Taib Mahmud was born in the Kingdom of Sarawak and lives in Demak Jaya , Jalan Bako , Kuching , Sarawak . He is a member of the Parti Pesaka Bumiputera Bersatu and was succeeded by the University of Adelaide educated Adenan Satem .
-Abdulsalami Abubakar ended his career on 1999 - 05 - 29 , having been in office while Mike Akhigbe was the Vice President . Oladipo Diya was predecessor to Mike Akhigbe , who belonged to the Nigerian Navy branch of the Military and his successor was Atiku Abubakar .
-Abdulsalami Abubakar , who served in the Nigerian Army , ended his career on May 29th , 1999 and served in office while Mike Akhigbe was the Vice President . Akhigbe succeeded Oladipo Diya while Olusegun Obasanjo took over from Abubaka when he left office .
-Abraham A Ribicoff was an American National born in Connecticut . He was a member of the United States Democratic Party and held the office of Governor of Connecticut before he died in the US .
-Abraham A . Ribicoff who was born in Connecticut , United States , worked as the United States Secretary of Health , Education , and Welfare and he was a member of the Democratic Party in the United States . He died in New York City .
-Abraham A . Ribicoff was born in Connecticut . He was married to Casey Ribicoff . He was also a national to the United States and he died in New York . The Native Americans are an ethnic group in the U . S .
-Gravesham Parliament member and Magdalene College Cambridge alum Adam Holloway , was born in Kent . A Grenadier Guard , he began his career 05 / 05 / 2005 .
-Englishman Adam Holloway , born in Faversham , Kent and having attended Magdalene College in Cambridge , then joined the Grenadier Guards . He is a member of the UK Conservative Party and began his political career on 5th May 2005 .
-Adonis Georgiadis , was born in Athens , Greece and was succeeded by Makis Voridis . Adonis Georgiadis , was in office while Antonis Samaras was Prime Minister . Antonis Samaras was in office while Konstantinos Mitsotakis was Prime Minister .
-Agnes Kant is a national of the Netherlands , where the leader is , Mark Rutte . Agnes Kant worked at the House of Representatives in the Netherlands . Emile Roemer is leader and member of the Socialist Party in the Netherlands .
-Agnes Kant is a national of the Netherlands which is led by Mark Rutte . She was a resident of Doesburg and worked at the House of Representatives which is led by Khadija Arib .
-Agnes Kant of Netherlands lives in Doesburg . Mark Rutte is leader of the country and one of its political parties is the Socialist Party which is led by Emile Roemer .
-Born on the 22nd of September , 1856 , Albert B White died at Parkersburg , West Virginia on 1941 - 07 - 03 .
-Cleveland born Albert B White , whose wife was Agnes Ward White , died in Parkersburg , West Virginia . He was succeeded by William M O Dawson , who was born in Bloomington , Maryland .
-Albert B White was born in Cleveland and was married to Agnes Ward White . He worked as the Governor of West Virginia and finished his career on 4 March 1905 being succeeded by William M O Dawson .
-Succeeded by William M . O . Dawson , Albert B . White was born in Cleveland and was a member of the Republican Party in the United States . Albert B . White started his career on March 4 , 1901 and finished his career on March 4th 1905 .
-Alberto Teisaire was in office while Labour Party member Juan Peron , who was married to Eva Peron , was President of Argentina . Teisaire died in Buenos Aires whose leader is Horacio Rodríguez Larreta .
-Born on 1891 - 05 - 20 , born in Mendoza , Argentina , Alberto Teisaire , was a Rear Admiral by profession . He worked as the Provisional President of the Argentine Senate and his successor was Isaac Rojas .
-Alfons Gorbach ' s place of birth was the state , Tyrol , in Austria . He was a politician from the Austrian People ' s Party , who died in Graz , in Styria .
-Alfons Gorbach was born in Imst in Tyrol and died in Graz in Styria . He was a politician from the Austrian People ' s Party .
-Alvah Sabin represented Vermont ' s 3rd Congressional District and his career ended on March 3rd 1857 . He was from Vermont , where the largest city is Burlington and he died in Sycamore , Illinois .
-Burlington is the largest city in Vermont , where Alvah Sabin was born . He represented Vermont ' s 3rd Congressional District and died in Sycamore , Illinois .
-Native Americans are the ethnic group in the United States . Alfred Moore Scales lived in the United States and involved in was the Battle of Gettysburg . The Battle of Gettysburg was part of the American Civil War conflict , during which , one of the commanders was Jefferson Davis .
-Native Americans are one of the ethnic groups in the United States , Alfred Moore Scales ' s country . Alfred Moore Scales took part in the Siege of Petersburg , which occurred during the American Civil War . Jefferson Davis was a commander in the American Civil War .
-Argentina ' s Labour Party President Juan Peron was married to Eva Peron . Argentina is Spanish speaking and home to Alberto Teisaire ( in office during Peron ' s leadership ) .
-Aaron Bertram plays for the Kids Imagine Nation and the Suburban Legends bands , where he performs ska punk music , a form of punk rock . Brian Robertson , a trombonist , is a band member of Suburban Legends .
-Aaron Deer comes from Indiana , having been born in the United States . He is a solo singer / performer of the musical genre indie rock , and is an artist for the Wee Giant band .
-Aaron Turner came from the U . S . He is a Black metal musician who started performing in 1995 . He plays in the Lotus Eaters band having previously performed with Old Man Gloom .
-Aaron Turner is from Massachusetts . He is a musician who loves Sludge metal and played with the band Twilight as well as the Lotus Eater ' s Band , in 1995 .
-Abradab was born in Katowice , Poland on 12 November 1978 . He is associated with the rapper Magik and played with the Kaliber 44 band .
-Solo singer Ace Wilder was born on July 23 , 1982 in the country of Sweden .
-Ace Wilder was born in Stockholm on July 23 , 1982 . He is a songwriter with a background as a solo singer .
-Ace Wilder is a hip hop musician . Hip hop originates from funk and disco . Gangsta rap is a sub genre of hip hop and drum and bass is a derivative of it .
-Hip hop musician Ace Wilder was born in Sweden . Hip hop has its origins in Funk and disco while being an influence on Drum and Bass .
-Musician Al Anderson was born in Windsor Connecticut and began his career in 1966 . He was a member of the band The Wildweeds and is now part of the rock group NRBQ .
-Al Anderson is a guitarist and rock musician with the band NRBQ . Rock originates from country music and is an influence on the fusion style of Bhangra .
-Alan Frew is from Coatbridge , Newmarket , Ontario , Canada and he is a musician and solo singer .
-Pop music solo singer Aleksandra Kovač was born 1972 , in the Socialist Republic of Serbia . Disco is a fusion of pop music .
-Rhythm and blues singer Aleksandra Kovač , began her career circa 1990 and is a member of the duo K2 , with Kornelije Kovač .
-Alfred Garth Jones was born in Manchester , England in the United Kingdom in 1872 . He died in London .
-Alfred Garth Jones was Sidcup was born in Manchester and died , in Boris Johnson and European Parliament led , Sidcup , London .
-Alfred Garth Jones was born in Manchester and passed away in Sidcup , London . The Labour Party is the leader of Manchester . The European parliament is the leader of London .
-Ireland folk musician Alison O ' Donnell is signed to Floating World Records and became active in 1963 . She is associated with the Flibbertigibbet band and Mellow Candle .
-Funk is derived from jazz music as performed by Alison O Donnell . She is signed with the record label Stanyan Records and also Deram Records which is based in London .
-Alison O ' Donnell , who plays the autoharp , is a performer of jazz , which has its origins on folk music . Jazz has a derivative called funk and a fusion genre named Afrobeat .
-Jazz singer Alison O ' Donnell plays the bodhran , percussion and autoharp . Jazz derives from funk and blues while being an influence on funk and Afrobeat fusion .
-Allen Forrest was born in Fort Campbell , Dothan , Alabama in 1981 . He plays acoustic music and has a background as a solo singer .
-Anders Osborne , a rock musician , started performing in 1989 and has worked with Galactic and Voice of the Wetlands All - Stars band . Mr . Osborne is associated with Billy Iuso .
-Anders Osborne began his Blues musical career in 1989 and has worked with Galactic , Tab Benoit and Billy Iuso .
-Andra is a dance - pop singer who was born in Campia , Turzii in 1986 . She began her career as a solo singer and makes her living as a singer and reality television judge .
-The singer Andra was born in Romania in 1986 and performs rhythm and blues as a solo artist .
-Andrew Rayel is associated with a number of musical artists , these include : Armin Van Buuren , Bobina , Mark Sixma , Jonathan Mendelsohn , Christian Burns , Jwaydan , Alexander Popov , Jano , Alexandre Bergheau , Jonny Rose , Sylvia Tosun , Lira Yin , and Alexandra Badoi . His musical genre is Trance music which has its stylistic origins in pop .
-Andrew Rayel was born in Chisinau Moldova . He ' s an associate of Armin van Buuren and Christian Burns . Mr Rayel ' s musical genre is Trance which he started in 2009 .
-Andrew Rayel was born in Chisinau , Moldova and began his Trance Music career in 2009 . He is associated with jwaydan Moyine and Bobina .
-String instrumentalist Andrew Rayel , who performs Trance music , is associated with Christian Burns and Jwaydan Moyine , the latter of which has worked with the musical artist John Digweed .
-B - Unique Records and Polydor Records artist Andrew White began in 2003 and is associated with the Kaiser Chiefs and artist Marry Banilow .
-Allen Forrest was born in Fort Campbell and is a hip hop musician . Hip hop originates from funk and disco and was derived into drum and bass music .
-Allen Forrest was born in 1981 and plays Hip Hop music . Hip hop originated from disco and funk musics . Drum and bass gets its sounds from hip hop .
-Alfred Garth Jones was born in Manchester , where the Labour party is in the majority and died in Sidcup , London . Parliament of the United Kingdom is the leader of London .
-Agustin Barboza was born in Asuncion , Paraguay where the people speak Spanish . Juan Afara leads the country and an ethnic group in Paraguay are the Mestizo people .
-Musician Andrew White , is signed to the record label B - Unique Records and is signed to the London based , record label , Polydor Records . His genre is alternative rock , the fusion genre of which , is Nu metal .
-Andrew White is an alternative rock musician with Polydor Records and was once with Universal Records . Polydor Records is in London . Nu metal is a fusion of alternative rock sounds .
-Al Anderson plays the guitar for rock band NRBQ . Rock comes from country music which originates from blues . Bhangra music is a musical fusion of rock music .
-The banjo is a staple of country music , the origin of rock , which is also inspired by the Blues . Rock lends itself to bhangra and is the style of Al Anderson and NRBQ .
-Aaron Turner plays electric guitar and played with the black metal Twilight band and the Old Man Gloom band . A fusion of black metal is called Death metal .
-Alfredo Zitarrosa died in Montevideo , the leader of which , is Daniel Martinez . Montevideo is in Uruguay , where Spanish is the language and where Raúl Fernando Sendic Rodríguez is the leader .
-Blue Spice is a coffee shop in city centre .
-At the riverside , there is a coffee shop called The Blue Spice .
-The Blue Spice coffee shop , near Crowne Plaza Hotel , has a customer rating of 5 out of 5 .
-The Blue Spice coffee shop near Burger King has good customer ratings with excellent food and service , with a lovely atmosphere .
-
-Blue Spice is a pub in city centre .
-At the riverside , there is a pub called The Blue Spice .
-Near the Rainbow Vegetarian Café , by the riverside is a pub called The Blue Spice . It is not suitable for families .
-Blue Spice is a child - friendly pub near Rainbow Vegetarian Café in the riverside area .
-The Blue Spice pub , near Crowne Plaza Hotel , has a customer rating of 5 out of 5 .
-The Blue Spice pub near Burger King has good customer ratings with excellent food and service , with a lovely atmosphere .
-
-
-There is a pub Blue Spice located in the centre of the city that provides Chinese food . It is not family friendly and is located near Rainbow Vegetarian Café .
-In the city centre near the Rainbow Vegetarian Café there is a family friendly pub called Blue Spice . They serve Chinese food .
-A pub named Blue Spice is located in the city centre . It is for adults and is close to Rainbow Vegetarian Café . They offer Chinese food .
-Blue Spice , a pub located riverside near the Rainbow Vegetarian Café , serves Chines food . It is not family friendly .
-Blue Spice , a kid - friendly pub near the Rainbow Vegetarian Café in the riverside area , is a place where one can order Chinese food .
-Blue Spice is a pub providing Chinese food It is located in the riverside . It is near Rainbow Vegetarian Café .
-Blue Spice is a pub that serves English food . It is located near Rainbow Vegetarian Café is the city centre area . It is also a pub . It is not family - friendly .
-Near the Rainbow Vegetarian Café in the city centre , you will find the family - friendly pub Blue Spice , serving an English food menu .
-There is a riverside pub near the Rainbow Vegetarian Café called Blue Spice . It serves English food but is not family - friendly .
-Near the Rainbow Vegetarian Café , area riverside , the Blue Spice pub , serves English food and has a family friendly atmosphere
-
-Blue Spice has a no children policy , it is a pub sat next to the river that provides English breakfast not far from Rainbow Vegetarian Café .
-
-Near the Rainbow Vegetarian Café , by the riverside is a restaurant called The Blue Spice . It is not suitable for families .
-Blue Spice is a child - friendly restaurant near Rainbow Vegetarian Café in the riverside area .
-
-There is a restaurant Blue Spice located in the centre of the city that provides Chinese food . It is not family friendly and is located near Rainbow Vegetarian Café .
-In the city centre near the Rainbow Vegetarian Café there is a family friendly restaurant called Blue Spice . They serve Chinese food .
-A restaurant named Blue Spice is located in the city centre . It is for adults and is close to Rainbow Vegetarian Café . They offer Chinese food .
-Blue Spice , a restaurant located riverside near the Rainbow Vegetarian Café , serves Chines food . It is not family friendly .
-Blue Spice , a kid - friendly restaurant near the Rainbow Vegetarian Café in the riverside area , is a place where one can order Chinese food .
-Blue Spice is a restaurant providing Chinese food It is located in the riverside . It is near Rainbow Vegetarian Café .
-Blue Spice is a restaurant that serves English food . It is located near Rainbow Vegetarian Café is the city centre area . It is also a restaurant . It is not family - friendly .
-Near the Rainbow Vegetarian Café in the city centre , you will find the family - friendly restaurant Blue Spice , serving an English food menu .
-There is a riverside restaurant near the Rainbow Vegetarian Café called Blue Spice . It serves English food but is not family - friendly .
-Near the Rainbow Vegetarian Café , area riverside , the Blue Spice restaurant , serves English food and has a family friendly atmosphere
-
-Blue Spice has a no children policy , it is a restaurant sat next to the river that provides English breakfast not far from Rainbow Vegetarian Café .
-
-Near All Bar One there is a coffee shop named Clowns and it is rated 3 out of 5 .
-The coffee shop Clowns is near Crowne Plaza Hotel and has a customer rating of 5 out of 5 .
-
-
-
-Near All Bar One there is a pub named Clowns and it is rated 3 out of 5 .
-The pub Clowns is near Crowne Plaza Hotel and has a customer rating of 5 out of 5 .
-
-
-
-There is a coffee shop named Cocum located near Burger King . This coffee shop has a high customer rating .
-Near Café Sicilia is a high rated coffee shop called Cocum
-
-Cocum coffee shop near Express by Holiday Inn received a low customer Rating .
-
-For a coffee shop near The Rice Boat , try Cocum .
-
-
-There is a pub named Cocum located near Burger King . This pub has a high customer rating .
-Near Café Sicilia is a high rated pub called Cocum
-
-Cocum pub near Express by Holiday Inn received a low customer Rating .
-
-For a pub near The Rice Boat , try Cocum .
-
-
-A coffee shop called Cotto is situated near The Bakers .
-A pub called Cotto is situated near The Bakers .
-For French food and coffee , you can go to Giraffe . In the city centre , near Raja Indian Cuisine . Please note it is not family - friendly .
-Giraffe is a coffee shop found near The Bakers .
-Near to The Rice Boat there is a coffee shop called Giraffe .
-
-
-Giraffe is a pub , located near the Rainbow Vegetarian Café on the river . It is not family friendly .
-Even if it ' s not family - friendly , if you are searching for a pub near the riverside and Raja Indian Cuisine , Giraffe is a great place to go to .
-Giraffe is a children - friendly pub that provides fast - food in the riverside area near the Rainbow Vegetarian Café .
-
-Giraffe is a non - family friendly pub located near Rainbow Vegetarian Café .
-Giraffe is a pub that is children friendly and provides English food . It is located on the riverside near Rainbow Vegetarian Café .
-Giraffe is a pub and fast food place that is not family - friendly near the Rainbow Vegetarian Café in the city centre .
-In city centre near Rainbow Vegetarian Café there is a Fast food pub named Giraffe , which is family - friendly .
-
-Giraffe is a no family - friendly pub providing Fast food . It is located near Rainbow Vegetarian Café in the riverside .
-Located near the Rainbow Vegetarian Café , a Fast food pub is Family friendly , and situated riverside called Giraffe .
-Giraffe is a pub near Raja Indian Cuisine in Riverside . It is considered to be fast food and children are welcome .
-If your kids want fast food , try Giraffe pub near the Rainbow Vegetarian Café in riverside .
-
-
-Giraffe provides French food and is not family - friendly . Located in the city centre near the Raja Indian Cuisine it provides a pub atmosphere .
-The Giraffe is a pub - family - friendly serving French food in the city centre , near the Raja Indian Cuisine
-If you ' re looking for somewhere that isn ' t family - friendly , riverside has Giraffe , a French pub near the Raja Indian Cuisine .
-Giraffe is a pub that has French food and is children friendly . It is located near Raja Indian Cuisine on the riverside .
-The Giraffe is a pub serving French food . It ' s near the Raja Indian Cuisine in Riverside . Just don ' t bring the kids
-
-Giraffe is a whole foods pub located near Raja Indian Cuisine . It is not intended for the whole family .
-Giraffe is a pub found near The Bakers .
-Near to The Rice Boat there is a pub called Giraffe .
-
-
-Giraffe is a restaurant , located near the Rainbow Vegetarian Café on the river . It is not family friendly .
-Even if it ' s not family - friendly , if you are searching for a restaurant near the riverside and Raja Indian Cuisine , Giraffe is a great place to go to .
-Giraffe is a children - friendly restaurant that provides fast - food in the riverside area near the Rainbow Vegetarian Café .
-
-Giraffe is a non - family friendly restaurant located near Rainbow Vegetarian Café .
-Giraffe is a restaurant that is children friendly and provides English food . It is located on the riverside near Rainbow Vegetarian Café .
-Giraffe is a restaurant and fast food place that is not family - friendly near the Rainbow Vegetarian Café in the city centre .
-In city centre near Rainbow Vegetarian Café there is a Fast food restaurant named Giraffe , which is family - friendly .
-
-Giraffe is a no family - friendly restaurant providing Fast food . It is located near Rainbow Vegetarian Café in the riverside .
-Located near the Rainbow Vegetarian Café , a Fast food restaurant is Family friendly , and situated riverside called Giraffe .
-Giraffe is a restaurant near Raja Indian Cuisine in Riverside . It is considered to be fast food and children are welcome .
-If your kids want fast food , try Giraffe restaurant near the Rainbow Vegetarian Café in riverside .
-
-
-Giraffe provides French food and is not family - friendly . Located in the city centre near the Raja Indian Cuisine it provides a restaurant atmosphere .
-The Giraffe is a restaurant - family - friendly serving French food in the city centre , near the Raja Indian Cuisine
-If you ' re looking for somewhere that isn ' t family - friendly , riverside has Giraffe , a French restaurant near the Raja Indian Cuisine .
-Giraffe is a restaurant that has French food and is children friendly . It is located near Raja Indian Cuisine on the riverside .
-The Giraffe is a restaurant serving French food . It ' s near the Raja Indian Cuisine in Riverside . Just don ' t bring the kids
-
-Giraffe is a whole foods restaurant located near Raja Indian Cuisine . It is not intended for the whole family .
-The riverside has many lovely pubs , none more so than The Giraffe , near to the Rainbow Vegetarian Café is a great to enjoy English food in a family friendly setting .
-If you are near the Express by Holiday Inn in riverside , bring the kids to Green Man for some coffee .
-The Green Man coffee shop received a rating of 1 out of 5 . it is located near All Bar One .
-A coffee shop called Green Man is near All Bar One , Their customer rating is 3 out of 5 .
-
-The Green Man is a sushi and coffee place near the Express by Holiday Inn and does not permit families .
-
-
-
-
-The Green Man pub received a rating of 1 out of 5 . it is located near All Bar One .
-A pub called Green Man is near All Bar One , Their customer rating is 3 out of 5 .
-The Green Man is a pub located next to Express by Holiday Inn . The Green Man is a non family friendly pub .
-
-Italian food is available in a children Friendly pub Green Man near Express by Holiday Inn in riverside
-Green Man is a pub that is family friendly serving Italian food near the Raja Indian Cuisine along the riverside .
-
-
-The Green Man is a pub near Express by Holiday Inn in the city centre which serves Japanese food . It is not family - friendly .
-Near the Express by Holiday Inn in the city centre is Green Man . It is a Japanese pub that is family - friendly .
-Located by the riverside near the Express by Holiday Inn is a pub named Green Man offering Japanese food in a non - family - friendly environment .
-Green Man is a children friendly pub that serves Japanese food . It is by the riverside near Express by Holiday Inn .
-Featuring Japanese cuisine and a pub atmosphere , the Green Man is situated on the riverside , near the Express by Holiday Inn .
-There is a child friendly Japanese pub named Green Man that is located near the Express by Holiday Inn .
-A pub with Japanese food is Green Man and is next to Express by Holiday Inn .
-
-
-
-
-
-The Green Man is a restaurant located next to Express by Holiday Inn . The Green Man is a non family friendly restaurant .
-
-Italian food is available in a children Friendly restaurant Green Man near Express by Holiday Inn in riverside
-Green Man is a restaurant that is family friendly serving Italian food near the Raja Indian Cuisine along the riverside .
-
-
-The Green Man is a restaurant near Express by Holiday Inn in the city centre which serves Japanese food . It is not family - friendly .
-Near the Express by Holiday Inn in the city centre is Green Man . It is a Japanese restaurant that is family - friendly .
-Located by the riverside near the Express by Holiday Inn is a restaurant named Green Man offering Japanese food in a non - family - friendly environment .
-Green Man is a children friendly restaurant that serves Japanese food . It is by the riverside near Express by Holiday Inn .
-Featuring Japanese cuisine and a restaurant atmosphere , the Green Man is situated on the riverside , near the Express by Holiday Inn .
-There is a child friendly Japanese restaurant named Green Man that is located near the Express by Holiday Inn .
-A restaurant with Japanese food is Green Man and is next to Express by Holiday Inn .
-If you ' re looking for kid friendly Italian food in the riverside area - then the Green Man is for you . It is near the Express by Holiday Inn .
-
-The Loch Fyne is a coffee shop in the riverside area of the city .
-
-The Loch Fyne is a pub in the riverside area of the city .
-The customer rated 1 out of 5 , Strada is near Rainbow Vegetarian Café .
-The Strada is a city centre area coffee shop .
-Near All Bar One is the Strada coffee shop with a customer rating of 1 out of 5 .
-Near Rainbow Vegetarian Café , there is a coffee shop called Strada with customer rating 1 out of 5 .
-Strada coffee shop has a low customer rating and is located near Express by Holiday Inn .
-
-The Strada is a city centre area pub .
-Near All Bar One is the Strada pub with a customer rating of 1 out of 5 .
-Near Rainbow Vegetarian Café , there is a pub called Strada with customer rating 1 out of 5 .
-Strada pub has a low customer rating and is located near Express by Holiday Inn .
-
-The Cricketers located near a Ranch is child friendly and has a Low customer rating
-Near the Avalon is The Cricketers which is a children friendly coffee shop with a 1 out of 5 customer rating
-
-The Cricketers is a coffee shop located near Avalon . It is children friendly and has a 3 out of 5 customer rating .
-Given 3 out of 5 , The Cricketers is a kid friendly coffee shop near Crowne Plaza Hotel .
-The Cricketers , a coffee shop near Crowne Plaza Hotel , is highly rated but not family - friendly .
-
-The Cricketers coffee shop near Crowne Plaza Hotel is family - friendly and has a customer rating of 5 out of 5 .
-
-Close to Café Sicilia you ' ll find The Cricketers , an average rated coffee shop not so child friendly
-
-The Cricketers coffee shop has an average customer rating and is family - friendly . They are located near the Café Sicilia .
-The Cricketers is a child friendly coffee shop with a high customer rating . It is located near the Café Sicilia .
-The Cricketers , near Express by Holiday Inn , is a children friendly coffee shop with a high customer rating .
-
-The Cricketers is a coffee shop near Express by Holiday Inn . It is not family - friendly and has a low customer rating .
-The Cricketers is a coffee shop with a low customer rating , located near Ranch . It is not family - friendly .
-The Cricketers is a family - friendly coffee shop near the Ranch , but it has a low customer rating .
-
-
-
-
-
-Child friendly a coffee shop called The Cricketers is located near Avalon .
-The Cricketers is a family friendly coffee shop located near Café Sicilia .
-The Cricketers is a children friendly coffee shop . It is located near a Crowne Plaza Hotel and has perfect ratings .
-A popular child friendly coffee shop is The Cricketers located near Express by Holiday Inn .
-
-
-
-
-
-
-
-
-
-
-The Cricketers coffee shop near Express by Holiday Inn is a high end experience for the entire family .
-
-The Cricketers restaurant is family - friendly , mid price range , and is located on the river near All Bar One .
-
-
-Near the Avalon is The Cricketers which is a children friendly restaurant with a 1 out of 5 customer rating
-
-The Cricketers is a restaurant located near Avalon . It is children friendly and has a 3 out of 5 customer rating .
-Given 3 out of 5 , The Cricketers is a kid friendly restaurant near Crowne Plaza Hotel .
-The Cricketers , a restaurant near Crowne Plaza Hotel , is highly rated but not family - friendly .
-
-The Cricketers restaurant near Crowne Plaza Hotel is family - friendly and has a customer rating of 5 out of 5 .
-
-Close to Café Sicilia you ' ll find The Cricketers , an average rated restaurant not so child friendly
-
-The Cricketers restaurant has an average customer rating and is family - friendly . They are located near the Café Sicilia .
-
-The Cricketers is a child friendly restaurant with a high customer rating . It is located near the Café Sicilia .
-The Cricketers , near Express by Holiday Inn , is a children friendly restaurant with a high customer rating .
-
-The Cricketers is a restaurant near Express by Holiday Inn . It is not family - friendly and has a low customer rating .
-The Cricketers is a restaurant with a low customer rating , located near Ranch . It is not family - friendly .
-The Cricketers is a family - friendly restaurant near the Ranch , but it has a low customer rating .
-
-The Cricketers is a family friendly restaurant located next to All Bar One .
-Child friendly a restaurant called The Cricketers is located near Avalon .
-The Cricketers is a family friendly restaurant located near Café Sicilia .
-The Cricketers is a children friendly restaurant . It is located near a Crowne Plaza Hotel and has perfect ratings .
-A popular child friendly restaurant is The Cricketers located near Express by Holiday Inn .
-
-
-
-
-
-1 out of 5 customer rated , mid priced family friendly Chinese restaurant called The Cricketers is in the city center . , near All Bar One .
-The Cricketers is a highly priced adult only restaurant that offers Chinese food . It has a 1 out of 5 customer rating and is located by All Bar One in the riverside area .
-The Cricketers a restaurant that serves Chinese food that is located in the Riverside area near All Bar One was rated a 1 out of 5 by their customers . The Cricketers is a kid friendly establishment and the pricing is moderate .
-
-There is a restaurant near the All Bar One in the city centre called The Cricketers . It has a 3 out of 5 customer rating , no kids allowed and they serve Chinese .
-
-
-
-
-The Cricketers is a highly rated restaurant located in the city centre near All Bar One . It provides Chinese food in the £ 20 - £ 25 price range and is not kid friendly .
-
-The Cricketers is a restaurant which also does Chinese food . It has a high customer rating and you can expect to spend £ 20 - £ 25 . It is child friendly and gets a high customer rating . You can find it on the riverside near All Bar One .
-If you ' re looking for a family friendly restaurant , The Cricketers just may be your spot . For less than twenty dollars , you get Chinese food . The customer rating is low , but it is family friendly . The Cricketers is located in the city centre near All Bar One .
-
-
-
-
-
-The Cricketers is a cheap restaurant serving Chinese food with okay reviews . It is located in the city centre near All Bar One and is family friendly .
-restaurant The Cricketers in city centre near All Bar One provides low price Chinese food with customer rating 5 out of 5 . It is not family friendly .
-The Cricketers is a restaurant that serves Chinese food with a cheap price range , a 5 out 5 star customer rating , and is also kid friendly located near All Bar One in the city centre .
-
-The Cricketers can be found in the riverside area near All Bar One . It has excellent customer reviews despite the fact that it is not family friendly . It serves cheap Chinese food in a restaurant setting .
-The Cricketers is a Chinese food restaurant with inexpensive food . Although they do not allow children , they do have a high customer rating . They are near the riverside by All Bar One .
-
-
-
-The Cricketers is a restaurant providing Chinese food in the cheap price range . It is located in the city centre . It is near All Bar One . Its customer rating is average .
-The Cricketers is not a family friendly restaurant that serves Chinese food in the riverside area near the All Bar One that offers cheap food with an average customer rating .
-The Cricketers is a restaurant serving Chinese food in the riverside area near to All Bar One . It ' s cheap and family friendly with an average customer rating .
-The Cricketers is a restaurant providing Chinese food in the cheap price range . It is located in the riverside . It is near All Bar One . Its customer rating is average .
-
-
-
-
-
-A restaurant called The Cricketers sells Chinese food in is location in the city centre near All Bar One . This place isn ' t child friendly and it has with a high price with and a 1 out of 5 rating .
-The Cricketers is a restaurant service Chinese food in the high price range with a customer rating of 1 out of 5 , but is child friendly , near All Bar One in city centre .
-
-The Cricketers is a restaurant offering Chinese food . It is in the high price range and has a customer rating of 1 out of 5 . It is located by the riverside , near a All Bar One . It is not children friendly .
-A child friendly Chinese restaurant called The Cricketers , has a rating of 1 out of 5 , with a high price range and is located riverside , near All Bar One .
-
-In the city centre near All Bar One , there is a restaurant called The Cricketers . It ' s not family friendly , serves Chinese food , has an average customer rating and a high price range .
-The Cricketers is a Chinese restaurant in the city centre area nearby All Bar One . They have an average customer rating , a high price range , and are not child - friendly .
-
-The Cricketers is a restaurant providing Chinese food in the high price range . It is located in the city centre . It is near All Bar One . Its customer rating is average .
-There is an expensive restaurant The Cricketers , offering Chinese food and is located at riverside near All Bar One . It is not child friendly and has an average rating .
-The Cricketers is a high priced , average rated , kid friendly Chinese restaurant near All Bar One in Riverside .
-The Cricketers is a Chinese restaurant near All Bar One in Riverside . It is high priced with an average rating .
-
-The Cricketers restaurant serves Chinese food in the high price range with an average customer rating in the City Centre near All Bar One and is children friendly
-
-
-
-
-
-The Cricketers is in the center . of the city near All Bar One , and is family friendly with a low customer rating . It is a restaurant which serves Chinese food with a price range of less than £ 20 .
-The Cricketers is a restaurant providing Chinese food in the less than £ 20 price range . It is located in the city centre . It is near All Bar One . Its customer rating is low .
-The Cricketers is a restaurant providing Chinese food in a price range less than 20 pounds . It is located at the riverside , near All Bar One . The customer rating is low and it is not family friendly .
-The Cricketers is a restaurant serving Chinese food for less than 20 pounds . They have a low customer rating . The Cricketers can be found along the riverside near All Bar One and it is family friendly .
-
-
-
-The Cricketers is a restaurant with Chinese food in the city centre near All Bar One . It is not family friendly , has a moderate price range and a customer rating of 1 out of 5 .
-There is a Chinese restaurant in the city center . called The Cricketers , it is situated near a All Bar One and is moderately priced and child friendly with a low customer rating .
-
-At the riverside near All Bar One is a restaurant called The Cricketers . It serves moderate priced Chinese food and is customer rated 1 out of 5 . It is not kid friendly .
-The Cricketers is a restaurant providing Chinese food in the moderate price range . It is located in the riverside . It is near All Bar One . Its customer rating is 1 out of 5 .
-The Cricketers located in the city centre near All Bar One is not kid friendly , but has a customer rating of 3 out of 5 a restaurant serving Chinese cuisine with a moderate price range .
-The Cricketers is located in the city centre near All Bar One . It is a moderately - priced , kid friendly restaurant which also offers Chinese food . It has a customer rating at 3 out of 5 .
-
-The Cricketers restaurant and Chinese near All Bar One in the Riverside area offers moderate prices with a 3 out of 5 rating , but is not kid friendly .
-Located in the riverside area , The Cricketers is a restaurant that also sells Chinese food . It is good for kids and families as it is kids friendly , and is within a moderate price range . This restaurant has an overall customer rating of 3 out of 5 . It can be found near All Bar One in the riverside area .
-
-
-The Chinese Cricketers restaurant which is in the center . of town , does cost more than 30 pounds . The Cricketers does have a high customer rating even though not child friendly . There is a All Bar One nearby .
-Located near All Bar One , The Cricketers is a restaurant styled joint that sells Chinese food . This shop is known in the city centre for its high prices , family friendly atmosphere , and high ratings .
-
-A Chinese restaurant , The Cricketers , is located in riverside near All Bar One . It is in the high price range , is rated high by customers , and is not child - friendly .
-
-
-The Cricketers is a Chinese restaurant . It is expensive and has a high customer rating . It isn ' t kid friendly and near All Bar One .
-
-
-
-
-The Cricketers restaurant serves Chinese food , with high customer rating and price Range £ 20 - 25 , it ' s no children friendly and is located in riverside near All Bar One .
-The Cricketers , restaurant and Chinese , is near All Bar One in Riverside . Children not allowed . High customer rating and price range £ 20 - 25 .
-
-
-
-
-
-The Cricketers is a highly priced English restaurant that has earned an average rating from its customers . Although not kid friendly it is located in the riverside area near Café Rouge .
-The Cricketers is a kid friendly restaurant . It ' s located in the centre of the city , near All Bar One . It serves English food and has a high customer rating .
-
-
-
-The Cricketers is an English food and restaurant . It is located in the city centre near Café Rouge and has been rated by customers as a kid - friendly , average place with a cheap price range .
-There ' s a cheap place by the river called The Cricketers . It ' s a very popular restaurant . It ' s a family friendly place that serves English food . It ' s by the Café Rouge .
-
-The Cricketers is a cheap , non - family - friendly restaurant with a 5 out of 5 customer rating . This restaurant , which features English food is located in the centre of the city near a Café Rouge .
-restaurant called The Cricketers is family - friendly , sells English food and is cheap with a customer rating 5 out of 5 in the city centre near Café Rouge
-Near Café Rouge in the city center you will find a 5 star cheap restaurant suited for couples named The Cricketers That serves English Food .
-
-On the riverside area near Café Rouge you can visit cheap family friendly restaurant called The Cricketers that serves English food . Customer rated 5 out of 5 .
-The Cricketers is a cheap , 5 out of 5 rated restaurant that is located in Riverside near Café Rouge . It offers English food .
-Not for families , The Cricketers is a restaurant in the city centre near Café Rouge where you can enjoy cheap English food with an average rating .
-The restaurant The Cricketers located in the city centre near Café Rouge serves average quality English food very cheap but is family - friendly .
-
-The Cricketers is a cheap restaurant on the riverside . It serves English food and has an average customer rating . It is child friendly and can be found close to Café Rouge .
-
-
-
-There is an English family friendly restaurant called The Cricketers on the riverside . It is near Café Rouge . It has a cheap price range and average customer rating .
-
-A high priced English restaurant , The Cricketers near the city centre ' s Café Rouge had achieved a poor rating from its customers and isn ' t child friendly .
-A restaurant located in the city centre near Café Rouge is The Cricketers . English food and children friendly it has a high prices and customers have rated it 1 out of 5 .
-A restaurant called The Cricketers has a high price range . Located in riverside near Café Rouge , the restaurant offers English food with a customer rating of 1 out of 5 . It is not child friendly .
-The Cricketers is an English restaurant which is child friendly , has a high price range but has a customer rating of 1 out of 5 . It is located by the riverside near a Café Rouge .
-
-There is an English restaurant near Café Rouge called The Cricketers with a high price range and 1 out of 5 customer rating .
-
-For a high priced English restaurant with an average rating that is based in the city centre near to Café Rouge that isn ' t children - friendly then The Cricketers is the place to go
-A restaurant with English food is The Cricketers which is in the city centre near Café Rouge . It is children - friendly , with an average customer rating , and is in the high price range .
-The Cricketers is near Café Rouge in riverside . It serves expensive English food in a restaurant setting . It ' s not child friendly , but has average ratings .
-
-
-
-
-The Cricketers is an English restaurant near All Bar One in the city centre with a price Range £ 20 - 25 and is not kid friendly .
-
-If you are looking for an English restaurant , I recommend The Cricketers located in the city centre near the All Bar One . Its customer rating is very high and has a price range of about 20 to 25 pounds . It is not kid friendly .
-In the city centre near All Bar One , there is a kids friendly restaurant serving English food called The Cricketers . It has a high customer rating and a price range of £ 20 - 25 .
-
-Near All Bar One in the riverside area is an English restaurant called The Cricketers . They are not conducive for kids , but the prices are between £ 20 - 25 and they highly rated .
-
-
-
-
-The Cricketers restaurant near Express by Holiday Inn is a high end experience for the entire family .
-
-
-
-With a low price range and an average customer rating , The Cricketers is a family friendly restaurant near Café Rouge by the riverside in the City centre .
-The Cricketers is a high priced family restaurant located near Café Rouge and the river .
-
-
-
-The Cricketers comes customer approved , they are located near Café Sicilia and offer family friendly dining .
-The Cricketers is a family - Friendly 5 out 5 rating store near the Crowne Plaza Hotel
-
-
-
-The Cricketers serves low cost English style food . It can be found on the riverside near Café Rouge . While they are not family - friendly it has received 5 out of 5 in customer reviews .
-Welcome to the The Cricketers . We are not children friendly . Our food is English , and we are located on the city centre near Café Rouge . Our price range is cheap .
-
-
-
-
-
-
-
-
-
-Leave the kids at home , while you quickly feed your needs at The Mill . This 1 out of 5 establishment is near Café Sicilia in riverside and is also very expensive coffee .
-The Mill is an upscale pub offering tasty fried fare , and is located several blocks from the city center . It is family friendly , although on the pricey side . It is located near the Café Sicilia .
-
-
-The Mill is a pub , located in the area of riverside , near The Café Sicilia .
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-The Mill pub has a good offer on soft drinks , potato fries and burgers . The quality is all right for the money and it is a family friendly local , nearby Café Sicilia .
-
-The Mill is a family friendly pub with prices less that £ 20 . This English pub is located by riverside near Raja Indian Cuisine .
-
-You can enjoy British cuisine at The Mill , a family pub in the mid - price range by a river and near Raja Indian Cuisine .
-The Mill is a pub near Raja Indian Cuisine and offers English food and is child friendly . It is in riverside and is expensive .
-
-
-There is a family - friendly pub called The Mill in the city centre near Raja Indian Cuisine . It serves English food in low price range .
-
-there is a adults only cheap pub The Mill serving English food located in the riverside area near Raja Indian Cuisine
-The Mill pub offers a family friendly environment with a price range of less than £ 20 . We offer English food near Raja Indian Cuisine in the riverside area .
-The Mill , Is a pub and is family - friendly , cheap and reasonable priced is very good for the family , We provide full English food . Located near Raja Indian Cuisine In the city centre .
-The Mill is a non kids friendly pub , that has moderate price ranged English food . It is located near Raja Indian Cuisine in the city center .
-The Mill is a pub with moderate price featuring English food and is Kid Friendly and is located near Raja Indian Cuisine in the city centre .
-The Mill is a pub located in riverside near Raja Indian Cuisine . It offers English food with a moderate price range . It is not a kid friendly establishment .
-The Mill is a pub that serves English style food . It is moderately priced and kid friendly . It is located on the riverside near Raja Indian Cuisine .
-
-
-The Mill is a pub near Raja Indian Cuisine . It is on the riverside and is child friendly . The food is English and over £ 30 .
-
-The Mill is an average non family - friendly pub that has Fast food near Café Sicilia in the city centre .
-The Mill is a fast food pub located in city centre , near Café Sicilia .
-Try The Mill , an average , child friendly pub with fast food riverside near Café Sicilia
-The Mill is a fast food pub that ' s kid friendly where you can eat for under £ 25 and is located near Raja Indian Cuisine in riverside
-The Mill is a fast food pub in the riverside area near Café Sicilia .
-
-The Mill is a fast food pub . It is located in riverside , near Café Sicilia . It has low customer rating since it is not kid friendly .
-The Mill is a high cost fast food child friendly pub near Café Sicilia in the riverside area with low customer rating
-In the center of the city near Café Sicilia , the fast food , is a kid friendly pub named The Mill . Customers rate it a 3 out of 5 , with moderate pricing .
-
-
-
-
-
-
-
-The Mill is a low - cost , fast food , 5 - star , pub located near the Café Sicilia by the river .
-
-
-The Mill is a pub that also offers reasonably priced fast food around E20 - E25 . They are located in the city center near Café Rouge . Last year , they received high customer ratings and have been found very kid friendly .
-
-
-
-
-Near the Café Sicilia in the city centre , there is a cheap , non - family - friendly Fast food and pub named The Mill .
-The Mill , cheap and family - friendly , is a pub that serves Fast food . Near Café Sicilia it is in the city centre .
-Near Café Sicilia in riverside you will find The Mill . It is your average pub with inexpensive fast food options and a family friendly environment .
-
-There is a pub style food called The Mill it ' s fast food on riverside near Café Sicilia it is cheap and for the family .
-The Mill is a cheap pub that also serves Fast food . It is located in the city centre near a Café Sicilia . Customers rate it a 5 out of 5 . It is not family - friendly .
-In the city centre near Café Sicilia there ' s a cheap fast food pub named The Mill . It is family - friendly with a customer rating of 5 out of 5 .
-The Mill is a pub that provides fast food . It is located at riverside near Café Sicilia . It is not family - friendly , in the cheap price range and has a customer rating 5 out of 5 .
-A cheap family friendly pub near Café Sicilia serving fast food in riverside would be The Mill with cheap prices and a perfect rating of 5 out of 5 .
-
-
-
-The fast food pub called The Mill located in riverside near Café Sicilia is not family - friendly but is cheap and has a average customer rating .
-The Mill is located near Café Sicilia in the riverside area . The Mill is a very delegate pub that is family friendly and offers Fast food , the customer rating is average and the prices are cheap .
-
-
-
-
-The Mill is a family - friendly pub that offers fast food . It has a low customer rating , is located in city centre , near Café Sicilia , and is expensive .
-
-
-The Mill is a one star family friendly pub offering fast food . It is in the high price range and near to Café Sicilia .
-
-
-
-
-Near Café Sicilia , The Mill , is a fast food pub - not child friendly , with a high price range and average customer rating in the Riverside area ,
-
-The Mill is a pub selling fast food . It is not family - friendly , low price range with a low customer rating . It is located in the city centre near Café Sicilia .
-The Mill is a family - friendly pub offering fast food for less than £ 20 . It is in the city centre near Café Sicilia and has a low rating .
-
-The Mill is a pub in the low price range serving fast food located near Café Sicilia on the riverside . It is not family - friendly and has a low customer rating .
-The Mill is a low priced fast food pub near Café Sicilia by the river . It is family friendly and has a low rating .
-
-
-The Mill pub has fast food , is kid friendly , and has a moderate price range . They are located near Café Sicilia on the riverside .
-The Mill is a moderately priced pub that serves Fast food . It is located in the city centre near Café Sicilia and is not kid friendly with a customer rating of 1 out of 5 .
-The Mill is a moderate priced , kid friendly pub . Located in the city centre near Café Sicilia , this fast food pub has a customer rating of 1 out of 5 .
-
-
-
-The Mill is a pub that serves fast food . It is located near Café Sicilia in the center of the city . It is not kid friendly . The price range is moderate and the customer rating is 3 out of 5 .
-The Mill pub is located in the city centre near Café Sicilia . It is a kid friendly moderately price establishment which offers fast food . Customers rate it 3 out of 5 .
-Near Café Sicilia , in the riverside area , there is a pub called The Mill . It is rated 3 out of 5 and serves fast food . It is moderately priced an not kid friendly .
-The Mill is an average rated pub for adults that serves an array of moderately priced fast food . It is located near Café Sicilia in riverside .
-
-
-
-The Mill is a riverside pub offering fast food at average prices . Located near Café Sicilia , it has a low customer rating and does not welcome children .
-The Mill is a poorly rated , moderately expensive family pub near Café Sicilia . It serves fast food .
-With average prices and fast food , The Mill pub can be found in city centre near Café Rouge . This is not a kid friendly establishment .
-The Mill is a pub located near Raja Indian Cuisine at riverside providing fast food . Its price range is £ 20 - 25 and it is kids friendly .
-The Mill is a fast food pub near Café Rouge with a price range between £ 20 - 25 . It has a high customer rating and is near the city centre , but it is not kid friendly .
-
-
-
-
-
-
-
-
-
-
-
-The Mill is a Fast - food pub located in the center of the city near Café Sicilia . While the prices are cheap , the pub is not family - friendly , although it does hold an average customer rating .
-
-The Mill is a cheap highly rated non - kids friendly pub , located in the riverside , near Café Rouge .
-
-
-
-The Mill is a family friendly pub near Café Sicilia by a riverside in the City centre , with a high price range and low customer rating .
-The Mill is a city centre pub near Café Sicilia . It doesn ' t have that much going for it with a score of 1 out of 5 from customers , a high price range , and no , it ' s not friendly to children .
-
-The Mill pub is rated 1 out of 5 by its customers . The Mill is high priced . The Mill is situated near Café Sicilia in the riverside area . Children Friendly - yes .
-The Mill is a fast service pub in Riverside . It is child friendly and is in the high price range . It is located near Café Sicilia and has an average rating .
-
-
-The Mill is a family friendly pub located near Raja Indian Cuisine in the city centre which offers cheap food .
-
-Near the Café Sicilia in the City Centre is a low priced , low rated pub named The Mill that isn ' t family friendly
-The Mill pub is near Café Sicilia in the city centre . It has a price range of less than £ 20 and has a low customer rating .
-
-
-Visit The Mill , a low priced family friendly breakfast and pub located near Raja Indian Cuisine .
-Located next to Raja Indian Cuisine , is a non family low priced pub called The Mill .
-There is a pub named The Mill in the city centre . It is near Raja Indian Cuisine , moderately priced and caters to an adult crowd .
-
-In the Riverside area near Raja Indian Cuisine there ' s a kid friendly , moderately priced pub named The Mill .
-
-
-
-The Mill is a pub , located next to Café Sicilia and is a moderately priced and family friendly .
-
-
-
-
-
-
-A family friendly restaurant called The Mill is located near Café Rouge . It has a low customer rating .
-The riverside area near Café Rouge has a restaurant that is kids - friendly . It has a price range in The Mill . I give the food a 3 out of 5 .
-The Mill is a low cost adult only restaurant . It is by Café Rouge and receives poor reviews .
-
-
-
-
-The Mill if a restaurant for traditional British food . We ' re near Café Rouge at City Centre . Join Us .
-
-The Mill is a family friendly restaurant with prices less that £ 20 . This English restaurant is located by riverside near Raja Indian Cuisine .
-By Café Rouge in city centre is The Mill British restaurant , family - friendly rated 1 out of 5 .
-
-
-If you are searching for an English restaurant near the city centre and Café Rouge , The Mill is a high customer rating place to go . It is not children friendly place and it has a £ 30 and over menu , but you might want to check it out .
-
-
-
-
-Near the Café Rouge is a restaurant called , The Mill , that serves traditional English food . It is higher priced and suitable for families .
-You can enjoy British cuisine at The Mill , a family restaurant in the mid - price range by a river and near Raja Indian Cuisine .
-
-The Mill is a restaurant near Raja Indian Cuisine and offers English food and is child friendly . It is in riverside and is expensive .
-The Mill is a child friendly restaurant with English food . It has an average customer rating and a high price range . It is near Café Rouge in riverside .
-The Mill is a restaurant along the riverside near Café Rouge . It is child friendly and has an average customer rating . It serves English food in the high price range
-The Mill is a high priced restaurant offering British food . It is family friendly and rated three stars . It can be found just below the River near Café Rouge .
-
-
-There is a family - friendly restaurant called The Mill in the city centre near Raja Indian Cuisine . It serves English food in low price range .
-
-there is a adults only cheap restaurant The Mill serving English food located in the riverside area near Raja Indian Cuisine
-The Mill restaurant offers a family friendly environment with a price range of less than £ 20 . We offer English food near Raja Indian Cuisine in the riverside area .
-
-
-The Mill is a restaurant which serves English food and is located in the city centre near Café Rouge . It is family - friendly , has meals less than 20 pounds , but has a low customer rating .
-Located in city centre near Café Rouge , The Mill is a restaurant that serves English food at a great price but received a low customer rating .
-
-The Mill , a family friendly restaurant located by the riverside near Café Rouge serves English food for less than £ 20 , it has been low - rated .
-The Mill is a restaurant which serves English food for less than £ 20 but has a low customer rating . It is located near Café Rouge in riverside
-
-The Mill , Is a restaurant and is family - friendly , cheap and reasonable priced is very good for the family , We provide full English food . Located near Raja Indian Cuisine In the city centre .
-The Mill is a non kids friendly restaurant , that has moderate price ranged English food . It is located near Raja Indian Cuisine in the city center .
-The Mill is a restaurant with moderate price featuring English food and is Kid Friendly and is located near Raja Indian Cuisine in the city centre .
-
-The Mill is a restaurant located in riverside near Raja Indian Cuisine . It offers English food with a moderate price range . It is not a kid friendly establishment .
-The Mill is a restaurant that serves English style food . It is moderately priced and kid friendly . It is located on the riverside near Raja Indian Cuisine .
-
-The Mill is a moderately priced restaurant with a low customer rating . It serves English food and is located close to Café Rouge in the city centre . It is not suitable for families with children .
-The Mill is a restaurant also do English food . A moderate price range , none kids friendly place with a poor 1 out of 5 customer rating . You can find this place in the city centre near Café Rouge .
-
-Located in riverside near Café Rouge The Mill restaurant , in the moderate price range , they serve English food . They are not kid friendly they have 1 out of 5 customer rating .
-The Mill is a one - star restaurant that offers English breakfast . It is family - friendly , moderately priced and is located near the Café Rouge by the river .
-
-
-The Mill is a restaurant that isn ' t kids - friendly . Located near Café Rouge , at the city centre , it serves English food . The price range is moderate and the customer rating is 3 out of 5 .
-The Mill is a moderately priced family - friendly restaurant serving English food . Located at the city centre near the Café Rouge , The Mill boasts a 3 out of 5 customer satisfaction rating .
-
-The Mill , located riverside near the Café Rouge , is a moderately priced English restaurant with 3 of 5 customer ratings and not a kid friendly environment .
-The Mill is a riverside restaurant that is kid friendly , has a moderate price range , serves English food , and has a 3 out of 5 rating . It is near the Café Rouge .
-The Mill restaurant is located near Café Rouge in riverside area . It providing English food , moderate price range and 3 out of 5 costumer rating
-
-The Mill is a low rated adult only restaurant with average prices for English grub in the city centre near Café Rouge .
-The Mill is a restaurant selling English food with an average price range . It is family - friendly and located near Café Rouge in the city centre , has a low customer rating .
-
-The Mill is a restaurant near Raja Indian Cuisine . It is on the riverside and is child friendly . The food is English and over £ 30 .
-The Mill is an English restaurant that costs more than £ 30 . It is not children friendly , but it has a high customer rating . It is in the city centre , near the Café Rouge .
-The Mill is a highly rated , child - friendly English restaurant located in the city centre , near Café Rouge . Its price range is more than £ 30 .
-Located on the Riverside close to Café Rouge , is The Mill ; a highly rated yet high priced restaurant serving English food , which is not considered child friendly .
-The Mill is a children friendly high rated English restaurant located near Café Rouge in riverside with a price range of more than £ 30 .
-
-
-The Mill is an expensive family restaurant that serves British food . It is located near a Café Rouge .
-The Mill is a fast food restaurant that ' s kid friendly where you can eat for under £ 25 and is located near Raja Indian Cuisine in riverside
-
-
-
-The Mill is a restaurant located near Raja Indian Cuisine at riverside providing fast food . Its price range is £ 20 - 25 and it is kids friendly .
-The Mill offers Japanese food and restaurant with cheap price near Café Rouge in riverside .
-
-
-
-
-
-The Mill is a family friendly restaurant in the low price range . It is located close to the city centre , near to Café Rouge
-The Mill is a family friendly restaurant located near Raja Indian Cuisine in the city centre which offers cheap food .
-
-There is a children friendly restaurant called The Mill located near the Café Rouge in the Riverside area , it receives high customer ratings and is moderately priced at around £ 30 .
-There is a one star , low - priced restaurant called The Mill located near Café Rouge that is family friendly .
-
-Visit The Mill , a low priced family friendly breakfast and restaurant located near Raja Indian Cuisine .
-The Mill restaurant is located near Café Rouge next to the river . The shop serves breakfast food at low prices .
-Located next to Raja Indian Cuisine , is a non family low priced restaurant called The Mill .
-
-There is a restaurant named The Mill in the city centre . It is near Raja Indian Cuisine , moderately priced and caters to an adult crowd .
-In the Riverside area near Raja Indian Cuisine there ' s a kid friendly , moderately priced restaurant named The Mill .
-
-
-Near Café Rouge by the riverside there is a restaurant called The Mill yes with a moderate price range and rating of 1 out of 5
-
-
-The Mill , near Raja Indian Cuisine in riverside , serves English food . It is moderately priced and kid friendly .
-
-
-
-
-
-
-The Mill has moderately priced fast food . It ' s not kind friendly . It rates 1 out of 5 and is located neat Café Sicilia at Riverside .
-There is a pub called The Phoenix located near Raja Indian Cuisine in the city centre that provides coffee and tea .
-
-The Phoenix is a highly rated pub in the City Centre near Crowne Plaza Hotel . It is aimed at older upper class people serving fantastic coffee and delicious French Food .
-
-
-There is a restaurant called The Phoenix located near Raja Indian Cuisine in the city centre that provides coffee and tea .
-
-In Riverside , near Raja Indian Cuisine is a child friendly , high priced , fast food coffee ship called The Phoenix .
-The Phoenix fast food Café is located in city centre near Raja Indian Cuisine with a moderate price range and is kids friendly .
-
-
-
-The Phoenix is a family friendly pub located near Crowne Plaza Hotel in the city centre which offers good food at a premium price .
-There is a mid - priced , family friendly pub , The Phoenix pub , that offers take - out or deliveries . It is located in city centre just east of Raja Indian Cuisine .
-
-The Phoenix is a family friendly pub located next to Crowne Plaza Hotel on the river .
-The Phoenix is a low cost family friendly pub near the river and Raja Indian Cuisine .
-
-The Phoenix is a family style pub with a rating of one out of five stars in City center . near Crowne Plaza Hotel
-Along the riverside near Crowne Plaza Hotel , is a family friendly pub called The Phoenix . They serve wine and hors d ' oeuvre in the medium price range and have a one - star rating .
-
-
-A better option than Crowne Plaza Hotel is The Phoenix , a 3 - star pub . Families can gather here for wine and cheese while spending more money than they would have at Crowne Plaza Hotel .
-
-
-The Phoenix is highly rated pub located in the city centre , near to Café Sicilia . It is priced in the more than £ 30 range and is not children friendly .
-The Phoenix is a five star pub that is family friendly and serves American food . It is located in City Centre next to Café Sicilia .
-
-
-
-
-
-Located near Raja Indian Cuisine , lies a French restaurant called The Phoenix , known for being a cheap family friendly pub in riverside
-
-
-
-The French restaurant named The Phoenix is a pub in the city centre , near Café Sicilia is a place for kids with price range from 20 - 25 with a customer rating of 3 out of 5 .
-
-
-
-
-
-Families are welcome at The Phoenix pub - great for those on a budget . Find us near The Crowne Plaza Hotel .
-The Phoenix is located near Raja Indian Cuisine and is a low cost family friendly pub .
-Located inside City center . , next to the Crowne Plaza Hotel , is the high - priced pub The Phoenix . This well - reviewed pub , 5 out of 5 stars , is a family - friendly establishment that serves British style food and alcohol .
-Welcome to The Phoenix , we are a pub . We ' re family - friendly we serve fast food we are located in the city centre near the Raja Indian Cuisine .
-The Phoenix is a charming pub featuring fast food service and lower prices to £ 20 are located near Raja Indian Cuisine in the city center area
-
-The Phoenix is a children friendly fast food pub and pub . It is located in the riverside area near Raja Indian Cuisine
-
-
-The Phoenix is a high rated pub located on the riverside near Café Sicilia offering fast food . It has a mid - level price range and is not children friendly .
-The Phoenix is a family friendly , high rated , pub with Fast food . It ' s on the riverside by Café Sicilia with a price range of about 30 Euros .
-The Phoenix is a cheap and family friendly pub in the Riverside area . The Phoenix serves fast food and is located near Raja Indian Cuisine .
-
-
-The Phoenix is a pub near Raja Indian Cuisine in the city centre . They serve Fast food , no children menus or services , in a high price range .
-The child friendly Fast food pub named The Phoenix pub is near the Raja Indian Cuisine and the city center in the high price range .
-The Phoenix , a fast food pub is not kid friendly . With a high price range , it is near Raja Indian Cuisine and in the riverside area .
-The Phoenix is a high priced , child friendly , Fast food pub in Riverside , near Raja Indian Cuisine .
-
-The Phoenix offers Fast food and pub with expensive price near Raja Indian Cuisine .
-The Phoenix is a moderately priced pub in the city centre near Raja Indian Cuisine . It is not family - friendly but they serve fast food .
-The Phoenix is a family - friendly fast food and pub near Raja Indian Cuisine in the city centre where you can eat for less than £ 20
-At the riverside near Raja Indian Cuisine is The Phoenix pub that has Fast food less than £ 20 and is not family - friendly .
-The Phoenix , a pub with fast food , near Raja Indian Cuisine , on the riverside is family friendly and less than 20 euros
-
-There is a pub by the name of The Phoenix . Their price range is moderate and they serve Fast Food . They are not kid friendly and they are at the city centre near Raja Indian Cuisine .
-The Phoenix is a pub serving fast food near Raja Indian Cuisine in the city center . The Phoenix is kid friendly and moderately priced .
-
-There is a Fast food pub located near Raja Indian Cuisine in riverside called The Phoenix . It has a moderate price range and is not kid friendly .
-The Phoenix is a moderately priced pub offering fast food and is kid friendly . It is located near Raja Indian Cuisine in riverside .
-The Phoenix serves moderately priced fast food in a kids friendly pub . It is rated 3 out of 5 and is found near Café Sicilia in the riverside area .
-
-The Phoenix is a Fast food pub near Raja Indian Cuisine in the riverside area . It is children friendly with a price range more than £ 30 per head .
-The Phoenix a family fast food pub in the more than £ 30 range is located in Riverside near Café Sicilia .
-If you ' re looking for a children - free pub , check out The Phoenix . Located near the Café Sicilia at the city centre . The Phoenix offers Fast food ranging more than £ 30 . Rated high by customers .
-The Phoenix , a pub that serves fast food near Café Sicilia in riverside has a high customer rating , and is not kid friendly . Their price range is more than £ 30 .
-
-The Phoenix pub is located near Crowne Plaza Hotel in the city centre and serves French food in the £ 20 - £ 25 price range but is not child friendly
-The Phoenix is a family - friendly pub serving French cuisine for a budget price . It is located in the city centre near to The Crowne Plaza Hotel
-
-
-
-The Phoenix is a reasonably priced pub offering a more adult experience by the riverside . It ' s location near a Crowne Plaza Hotel and misguided French bistro styling take to much from the experience to warrant a second visit .
-
-The Phoenix is not kid friendly . It is located near Crowne Plaza Hotel in city centre . It is a French pub that has a 1 out of 5 rating .
-
-Near Café Sicilia in the city centre you can find a quite pricey pub which does not welcome children called The Phoenix . It has a pretty good customer rating and tends to serve French food .
-
-
-Located near Café Sicilia in Riverside , The Phoenix is an adult only pub with a 3 out of 5 rating serving French food for under £ 25
-
-
-
-If you are in the Riverside area , try The Phoenix , a high - end pub , located near Crowne Plaza Hotel . At £ 30 and above , its menu is a bit pricey , but its 5 out of 5 customer rating proves that its delectable , children - friendly French food is well worth every penny .
-
-The Phoenix is a French pub near Crowne Plaza Hotel , and beside the river , costing roughly £ 20 , it ' s a bit cheaper , however it ' s not family - friendly , and its customer rating is average .
-
-
-
-
-
-The Phoenix is a pub . This pub is family friend and prices range less then 20 dollars . They offer different types of French food . The Phoenix is located in Riverside near the Crowne Plaza Hotel . Our customer rating is low .
-
-
-
-There is a cheap French pub named The Phoenix that is family friendly in riverside by Raja Indian Cuisine .
-If you are looking for a cheap French pub with a 5 out of 5 rating that is not family - friendly , visit The Phoenix in the city centre near Crowne Plaza Hotel .
-There ' s a family - friendly pub called The Phoenix selling French food . It ' s rated 5 out of 5 and it ' s cheap as well , you can find it by Crowne Plaza Hotel in the city centre .
-For a cheap pub offering French Food , try The Phoenix . It is located in the city centre , near Crowne Plaza Hotel , and has a customer rating of 5 out of 5 .
-The Phoenix is a riverside pub serving cheap French food , near Crowne Plaza Hotel . It may be a no families environment , but with a customer rating of 5 out of 5 , you can ' t complain .
-Near Crowne Plaza Hotel there is a family friendly , French pub The Phoenix . It is a cheap place in riverside with a 5 out of 5 customer rating .
-The Phoenix is a family - friendly high priced pub in the city centre near Crowne Plaza Hotel offering French food
-The Phoenix is a pub near Raja Indian Cuisine in Riverside that serves expensive French food . It is children friendly .
-The Phoenix pub is in the city centre near Crowne Plaza Hotel . It serves French food of high prices . Not being child friendly customers rate it 3 out of 5 .
-The Phoenix is a children friendly French pub near Crowne Plaza Hotel in the city centre with a customer rating of 3 out of 5 and a high price range .
-The Phoenix is a French pub which is near Crowne Plaza Hotel by riverside . It is in the high price range and has a customer rating of 3 out of 5 . The Phoenix is not child friendly .
-The Phoenix is a pub serving high priced French food that is located near Crowne Plaza Hotel on the riverside . It is child friendly and has customer rating of 3 out of 5 .
-
-pub called The Phoenix is located in city centre , near Crowne Plaza Hotel . It serves average French food with price range less than £ 20 . It is not family - friendly place .
-The Phoenix , a French pub , serves dishes less than £ 20 near Crowne Plaza Hotel in the city centre
-
-
-Located in the city centre near Crowne Plaza Hotel , The Phoenix is a family - friendly pub with French cuisine . Prices are less than £ 20 . Customers give it an average rating .
-The Phoenix is a French pub average rated located in the city center near Crowne Plaza Hotel . You pay less than £ 20 in a non family environment .
-in the riverside is a family friendly French pub named The Phoenix with a price range of less than £ 20 near Crowne Plaza Hotel has an average customer rating .
-
-The Phoenix is located near Crowne Plaza Hotel in the center of the city . It is a pub that serves French food . It is not family - friendly . The customer rating is low and the price range is less than £ 20 .
-In the city centre close to Crowne Plaza Hotel is a French pub called The Phoenix , it is family - friendly with a low rating and prices at approximately under £ 20 per person
-The Phoenix is a pub that serves French food and is situated near Crowne Plaza Hotel at Riverside . Low customer ratings and not suitable for families yet low price range of around £ 20 .
-The Phoenix is a cheap , low rated pub in the riverside area . It serves French food , not recommended for families and is close to Crowne Plaza Hotel .
-
-The Phoenix is in the city centre , near Crowne Plaza Hotel . It ' s a French pub that isn ' t kids friendly . It has a moderate price range and a customer rating of 1 out of 5 .
-The Phoenix is a pub . It has a moderate price range and it sells French food . It is kids friendly and has a 1 out of 5 rating . It is in the city centre near Crowne Plaza Hotel .
-Located in Riverside , near Crowne Plaza Hotel , The Phoenix is a moderately priced , kid friendly pub . It serves French food and has a customer rating of 1 out of 5 .
-The Phoenix is a quaint pub serving French food at a moderate price point , specifically friendly to kids . However it has a 1 out of 5 customer rating , but is located near Crowne Plaza Hotel by the riverside
-The Phoenix is Moderate price pub serving French food Located in city center near Crowne Plaza Hotel with a customer rating of 5 out of 5 but not children - friendly
-
-
-
-
-
-
-
-
-The Phoenix is a French pub that is located in the city centre near Crowne Plaza Hotel . It is family - friendly , the price range is high , but it has a 5 out of 5 customer rating .
-The Phoenix is pub with French food . Its customer rating is 5 out of 5 and has a price range of over £ 30 . It is not child friendly . It is located near Crowne Plaza Hotel in the riverside area .
-
-The Phoenix pub serves French food for more than £ 30 in the city centre near Crowne Plaza Hotel . It is children friendly but has a low customer rating .
-
-Costing more than £ 30 and located in riverside near Crowne Plaza Hotel , The Phoenix is a French pub . It is not kid friendly and has a low customer rating .
-The Phoenix is a pub near Crowne Plaza Hotel by Riverside area that provides French food . its price is more than £ 30 with a low customer rating and is children friendly
-
-
-
-There is a riverside pub called The Phoenix that has French food at an average price range . It is child friendly , located near Crowne Plaza Hotel , and has a 3 customer rating .
-The Phoenix is a kid - friendly pub located near Raja Indian Cuisine in the riverside area . They serve French food in the £ 20 - 25 range .
-
-
-Located in the city centre , near Café Sicilia , The Phoenix is an average priced , family - friendly pub serving French food with a customer rating of 3 out of 5 .
-The Phoenix is a French pub located in riverside near the Café Sicilia . It has an average price range of £ 20 - 25 and a 3 out of 5 customer rating , however it is not kid friendly .
-A French pub near Café Sicilia and riverside is The Phoenix . It has a customer rating of 3 out of 5 , an average price range and is kid friendly .
-The Phoenix is a French pub near to riverside and Crowne Plaza Hotel . It is kid friendly , has an average price range and a customer rating of 3 out of 5 .
-The Phoenix is a French pub located near the Crowne Plaza Hotel in the city centre . They have a high customer rating and their prices range between £ 20 - 25 but they are not children friendly .
-In the city center near Crowne Plaza Hotel , there is a French pub called ' The Phoenix ' . It has a child - friendly environment with reasonable prices and excellent customer reviews .
-The Phoenix , which is a pub that is not kid friendly , is near Crowne Plaza Hotel and serves French food in the price range of £ 20 - 25 in the Riverside area . It has a high customer rating .
-Located in Riverside , The Phoenix , a pub serving French cuisine , has a high rating among customers . The food ranges from £ 20 - 25 and is child - friendly . It is located near Crowne Plaza Hotel .
-
-Highly rated French pub near Crowne Plaza Hotel is The Phoenix . It is not kids friendly . The price ranges from £ 20 - 25 .
-
-
-
-
-
-
-
-
-The Phoenix is a pub that offers wine tasting that is very good and fairly inexpensive located near the Crowne Plaza Hotel .
-
-
-
-There ' s a pub named The Phoenix by Raja Indian Cuisine . It ' s a dine in at a high price .
-
-
-
-There is a cheaply - priced pub named The Phoenix near Crowne Plaza Hotel in riverside . Children are not allowed .
-The Phoenix is a low priced pub on the river located near Raja Indian Cuisine
-
-The Phoenix is a cheap pub near Crowne Plaza Hotel in the city centre . It is family - friendly and has a customer rating of three out of five .
-
-There is a family friendly pub near Crowne Plaza Hotel called The Phoenix . It has a one - star rating and is inexpensive .
-The Phoenix is a family friendly pub in a cheap price range near Raja Indian Cuisine
-
-Located in the city centre , near Raja Indian Cuisine , The Phoenix is a moderately priced adult oriented pub .
-There is a moderately priced , kid friendly pub in the city centre area near Crowne Plaza Hotel that has a customer rating of 1 out of 5 named The Phoenix .
-
-
-
-
-
-
-
-
-
-There is a high priced pub called The Phoenix it ' s a family friendly pub located near Crowne Plaza Hotel .
-The Phoenix is a pub and is expensive price ranged . It is located close to Crowne Plaza Hotel .
-There is a mid - priced , family friendly restaurant , The Phoenix restaurant , that offers take - out or deliveries . It is located in city centre just east of Raja Indian Cuisine .
-
-
-The Phoenix is a low cost family friendly restaurant near the river and Raja Indian Cuisine .
-
-The Phoenix is located near Raja Indian Cuisine and is a low cost family friendly restaurant .
-Welcome to The Phoenix , we are a restaurant . We ' re family - friendly we serve fast food we are located in the city centre near the Raja Indian Cuisine .
-Café Sicilia and The Phoenix Shop are a fast food restaurant located north of the City center .
-The Phoenix is a charming restaurant featuring fast food service and lower prices to £ 20 are located near Raja Indian Cuisine in the city center area
-The Phoenix is a children friendly fast food restaurant and restaurant . It is located in the riverside area near Raja Indian Cuisine
-
-The Phoenix is a cheap and family friendly restaurant in the Riverside area . The Phoenix serves fast food and is located near Raja Indian Cuisine .
-
-
-The Phoenix is a restaurant near Raja Indian Cuisine in the city centre . They serve Fast food , no children menus or services , in a high price range .
-The child friendly Fast food restaurant named The Phoenix restaurant is near the Raja Indian Cuisine and the city center in the high price range .
-The Phoenix , a fast food restaurant is not kid friendly . With a high price range , it is near Raja Indian Cuisine and in the riverside area .
-The Phoenix is a high priced , child friendly , Fast food restaurant in Riverside , near Raja Indian Cuisine .
-
-The Phoenix offers Fast food and restaurant with expensive price near Raja Indian Cuisine .
-The Phoenix is a moderately priced restaurant in the city centre near Raja Indian Cuisine . It is not family - friendly but they serve fast food .
-The Phoenix is a family - friendly fast food and restaurant near Raja Indian Cuisine in the city centre where you can eat for less than £ 20
-At the riverside near Raja Indian Cuisine is The Phoenix restaurant that has Fast food less than £ 20 and is not family - friendly .
-The Phoenix , a restaurant with fast food , near Raja Indian Cuisine , on the riverside is family friendly and less than 20 euros
-
-There is a restaurant by the name of The Phoenix . Their price range is moderate and they serve Fast Food . They are not kid friendly and they are at the city centre near Raja Indian Cuisine .
-The Phoenix is a restaurant serving fast food near Raja Indian Cuisine in the city center . The Phoenix is kid friendly and moderately priced .
-
-There is a Fast food restaurant located near Raja Indian Cuisine in riverside called The Phoenix . It has a moderate price range and is not kid friendly .
-The Phoenix is a moderately priced restaurant offering fast food and is kid friendly . It is located near Raja Indian Cuisine in riverside .
-The Phoenix is a Fast food restaurant near Raja Indian Cuisine in the riverside area . It is children friendly with a price range more than £ 30 per head .
-
-
-
-
-
-The Phoenix restaurant is now serving French food at low prices in a family friendly atmosphere , located in the riverside area by Raja Indian Cuisine
-The Phoenix is a restaurant near Raja Indian Cuisine in Riverside that serves expensive French food . It is children friendly .
-The Phoenix is a kid - friendly restaurant located near Raja Indian Cuisine in the riverside area . They serve French food in the £ 20 - 25 range .
-
-
-
-An Indian restaurant named The Phoenix is not child friendly , has a high customer rating , with prices ranging from £ 20 to £ 25 , and is located in the city centre near Crowne Plaza Hotel .
-The Phoenix is a restaurant serving Indian food in the mid - price range . it is in the city centre near Crowne Plaza Hotel , is kid friendly and has a high customer rating .
-
-The Phoenix , located in the city centre , is a small and authentic Indian restaurant . The Phoenix is mediocre shop but it offers fast , cheap food . It is across from Express by Holiday Inn and is not family friendly .
-
-The Phoenix , located riverside near Crowne Plaza Hotel is an adult friendly restaurant . It serves great , cheap Indian food .
-
-The Phoenix is and Indian style restaurant with highly rated food at a low price . It can be found in the city centre by the Crowne Plaza Hotel and is not family friendly .
-There is a cheap - priced restaurant The Phoenix located in the city centre near Crowne Plaza Hotel providing 5 out of 5 Indian food and is family friendly .
-The Phoenix is a Indian restaurant that is not for the whole family . It has low prices , but high customer ratings . It is located in the city center near Crowne Plaza Hotel .
-A restaurant called The Phoenix sells cheap Indian food that is rated 5 out of 5 and is even better with its family friendly location near a riverside and the local Express by Holiday Inn .
-The Phoenix is a restaurant providing Indian food in the cheap price range . It is located in the riverside . It is near Express by Holiday Inn . Its customer rating is 5 out of 5 .
-
-
-
-
-
-
-
-
-In the City Centre near Crowne Plaza Hotel is a kid - friendly restaurant called the Phoenix , which serves Indian food at a moderate price . The Phoenix has high customer ratings .
-The Phoenix is a restaurant providing Indian food in the £ 20 - 25 price range . It is located in the city centre . It is near Crowne Plaza Hotel . Its customer rating is high .
-Highly rated Indian restaurant The Phoenix is located on the riverside near Crowne Plaza Hotel . Not kid friendly but average price .
-There is a restaurant called The Phoenix . Its is located near Crowne Plaza Hotel in the riverside area . It is child friendly and serves Indian food at a £ 20 - 25 price range . It has a high customer rating .
-
-
-
-
-
-
-
-The Phoenix is a low - priced restaurant in near Crowne Plaza Hotel that delivers take - away .
-
-
-There ' s a restaurant named The Phoenix by Raja Indian Cuisine . It ' s a dine in at a high price .
-
-
-
-The Phoenix is a low priced restaurant on the river located near Raja Indian Cuisine
-The Phoenix is a family friendly restaurant in a cheap price range near Raja Indian Cuisine
-
-Located in the city centre , near Raja Indian Cuisine , The Phoenix is a moderately priced adult oriented restaurant .
-Located in the centre of the city near Raja Indian Cuisine , moderately priced The Phoenix offers an adult , non kid friendly fast food experience .
-
-
-
-
-
-
-The Phoenix is located by Café Sicilia . It has fair prices and had burgers , drinks , and fries
-
-
-The Phoenix is located near Raja Indian Cuisine that has expensive , family friendly take out .
-
-
-The Plough is a pub serving Chinese food in the mid - price range . It is family - friendly and near Raja Indian Cuisine in the city center .
-
-
-The Plough is a cheap Chinese pub located riverside by Raja Indian Cuisine . It is a family friendly establishment .
-The Plough is a pub providing Chinese food in the cheap price range . It is located in the riverside . It is near Raja Indian Cuisine .
-
-The Chinese pub , The Plough , is located in the city centre near Raja Indian Cuisine . The price range is high and isn ' t children friendly .
-
-The Plough is a pub providing Chinese food in the high price range . It is located in the city centre . It is near Raja Indian Cuisine .
-The Plough is a pub that has expensive Chinese food , not child friendly , and is located riverside near Raja Indian Cuisine .
-There is a riverside pub near Raja Indian Cuisine called The Plough , that serves Chinese food in the high price range . This venue is not suited for families with children .
-The Plough is a pub providing Chinese food in the high price range . It is located in the riverside . It is near Raja Indian Cuisine .
-Serving Chinese food , the non - family friendly pub , The Plough , is a pub in the less than £ 20 price range . It is in city centre near Raja Indian Cuisine .
-With below average prices , The Plough , a non - family friendly pub in the city centre , offers Chinese food and is located near the Raja Indian Cuisine .
-The Plough is a pub offering Chinese food with a price range of 20 - 25 pounds . This pub is located in riverside near the Raja Indian Cuisine pub . It is kids friendly .
-
-
-
-
-The Plough is a restaurant serving Chinese food in the mid - price range . It is family - friendly and near Raja Indian Cuisine in the city center .
-
-
-The Plough is a cheap Chinese restaurant located riverside by Raja Indian Cuisine . It is a family friendly establishment .
-The Plough is a restaurant providing Chinese food in the cheap price range . It is located in the riverside . It is near Raja Indian Cuisine .
-
-The Chinese restaurant , The Plough , is located in the city centre near Raja Indian Cuisine . The price range is high and isn ' t children friendly .
-
-The Plough is a restaurant providing Chinese food in the high price range . It is located in the city centre . It is near Raja Indian Cuisine .
-The Plough is a restaurant that has expensive Chinese food , not child friendly , and is located riverside near Raja Indian Cuisine .
-There is a riverside restaurant near Raja Indian Cuisine called The Plough , that serves Chinese food in the high price range . This venue is not suited for families with children .
-The Plough is a restaurant providing Chinese food in the high price range . It is located in the riverside . It is near Raja Indian Cuisine .
-Serving Chinese food , the non - family friendly restaurant , The Plough , is a restaurant in the less than £ 20 price range . It is in city centre near Raja Indian Cuisine .
-With below average prices , The Plough , a non - family friendly restaurant in the city centre , offers Chinese food and is located near the Raja Indian Cuisine .
-The Plough is a restaurant offering Chinese food with a price range of 20 - 25 pounds . This restaurant is located in riverside near the Raja Indian Cuisine restaurant . It is kids friendly .
-
-
-The Plough is near the riverside and Raja Indian Cuisine . It serves Indian food and allows children . It has an average rating .
-
-
-
-
-
-The Punter is children friendly and serves English food . It is near Raja Indian Cuisine in the city centre . It ' s a coffee house with a high price range .
-
-
-
-
-
-
-
-The Punter is a pub which serves Chinese food with a price range of less than £ 20 . It is located in the center of the city near the Raja Indian Cuisine and is family friendly .
-The Punter is a pub providing Chinese food in the less than £ 20 price range . It is located in the city centre . It is near Raja Indian Cuisine .
-The Punter pub and Chinese is along the riverside near Raja Indian Cuisine . It ' s generally less than £ 20 but isn ' t family friendly .
-Located on the riverside , near Raja Indian Cuisine , is The Punter . It is a family - friendly , low - priced pub which also serves Chinese food .
-The Punter , a pub with Chinese food is near Raja Indian Cuisine riverside . Their prices are less than £ 20 .
-The Punter is a moderately priced pub in the city centre , near Raja Indian Cuisine . It serves Chinese food and does not welcome children .
-The Punter is a moderately priced pub providing Chinese food . It ' s in the city centre near to Raja Indian Cuisine and is kid friendly
-The Punter is a pub serving Chinese food with a moderate price . It is located near Raja Indian Cuisine along the riverside and is not kids friendly .
-For Chinese food in riverside there is a moderately priced pub that is kid friendly named The Punter near Raja Indian Cuisine .
-The Punter is a pub providing Chinese food in the moderate price range . It is located in the riverside . It is near Raja Indian Cuisine .
-The Punter is a Chinese pub near Raja Indian Cuisine in the river side . Price is moderate , no kids friendly .
-
-
-The Punter pub has Chinese food and is kids friendly . It is located in the riverside area near Raja Indian Cuisine with a high price range .
-
-
-Catering a traditional English menu , The Punter pub sits on the riverside , and offers a highly priced alternative to the nearby Raja Indian Cuisine . The Punter is not considered child friendly .
-The Punter is a kids friendly pub that serves English food for £ 20 - £ 25 . It is along the riverside near Raja Indian Cuisine .
-
-Come visit riverside and eat some English food at The Punter family friendly pub for a cheap price . Found near Raja Indian Cuisine .
-The Punter is an English pub that is located in the city centre . It is near Raja Indian Cuisine . It has a high price range , and it is not family - friendly .
-The Punter is a pub type pub located in the city centre with a high price , with a bad kids friendly atmosphere . It offers English food and is located near Raja Indian Cuisine .
-
-There is an English pub near Raja Indian Cuisine in the riverside area called The Punter . It has a high price range and is not child - friendly .
-
-
-
-The Punter is a kid friendly English pub located in riverside near Raja Indian Cuisine that is moderately priced .
-
-The Punter is a high priced , average rated , adult only Italian pub located near Rainbow Vegetarian Café in the city centre
-
-
-
-
-The Punter is a restaurant located in the city center , near the Rainbow Vegetarian Café .
-
-
-
-
-
-
-
-A five star restaurant called The Punter is situated next to Express by Holiday Inn . It is great for families and offers medium prices .
-
-
-
-
-The Punter is a restaurant which serves Chinese food with a price range of less than £ 20 . It is located in the center of the city near the Raja Indian Cuisine and is family friendly .
-The Punter is a restaurant providing Chinese food in the less than £ 20 price range . It is located in the city centre . It is near Raja Indian Cuisine .
-The Punter restaurant and Chinese is along the riverside near Raja Indian Cuisine . It ' s generally less than £ 20 but isn ' t family friendly .
-Located on the riverside , near Raja Indian Cuisine , is The Punter . It is a family - friendly , low - priced restaurant which also serves Chinese food .
-The Punter , a restaurant with Chinese food is near Raja Indian Cuisine riverside . Their prices are less than £ 20 .
-The Punter is a moderately priced restaurant in the city centre , near Raja Indian Cuisine . It serves Chinese food and does not welcome children .
-The Punter is a moderately priced restaurant providing Chinese food . It ' s in the city centre near to Raja Indian Cuisine and is kid friendly
-The Punter is a restaurant serving Chinese food with a moderate price . It is located near Raja Indian Cuisine along the riverside and is not kids friendly .
-For Chinese food in riverside there is a moderately priced restaurant that is kid friendly named The Punter near Raja Indian Cuisine .
-The Punter is a restaurant providing Chinese food in the moderate price range . It is located in the riverside . It is near Raja Indian Cuisine .
-The Punter is a Chinese restaurant near Raja Indian Cuisine in the river side . Price is moderate , no kids friendly .
-
-
-The Punter restaurant has Chinese food and is kids friendly . It is located in the riverside area near Raja Indian Cuisine with a high price range .
-
-
-Catering a traditional English menu , The Punter restaurant sits on the riverside , and offers a highly priced alternative to the nearby Raja Indian Cuisine . The Punter is not considered child friendly .
-The Punter is a kids friendly restaurant that serves English food for £ 20 - £ 25 . It is along the riverside near Raja Indian Cuisine .
-
-Come visit riverside and eat some English food at The Punter family friendly restaurant for a cheap price . Found near Raja Indian Cuisine .
-The Punter is an English restaurant that is located in the city centre . It is near Raja Indian Cuisine . It has a high price range , and it is not family - friendly .
-The Punter is a restaurant type restaurant located in the city centre with a high price , with a bad kids friendly atmosphere . It offers English food and is located near Raja Indian Cuisine .
-
-There is an English restaurant near Raja Indian Cuisine in the riverside area called The Punter . It has a high price range and is not child - friendly .
-
-
-
-The Punter is a kid friendly English restaurant located in riverside near Raja Indian Cuisine that is moderately priced .
-
-
-The Punter is a restaurant with Indian food . It is near Express by Holiday Inn in riverside .
-
-
-
-
-In the city centre . the restaurant The Punter has an average customer rating for its Indian food and it is not children friendly . It is located near to Express by Holiday Inn .
-
-
-
-
-
-
-
-
-For a cheap Indian restaurant check out the average family friendly The Punter , located in the riverside area near Express by Holiday Inn .
-For cheap Indian food with an average satisfaction rating try The Punter , they are a family friendly restaurant . They are near Express by Holiday Inn in the city center .
-The Punter restaurant offers cheap Indian cuisine . Has an average customer rating . Located by the riverside near Express by Holiday Inn . It is not family friendly .
-The Punter is a cheap Indian restaurant in a riverside location . It has an average customer rating , is family friendly and is located near Express by Holiday Inn .
-The Punter is a restaurant providing Indian food in the cheap price range . It is located in the riverside . It is near Express by Holiday Inn . Its customer rating is average .
-The Punter located by the Express by Holiday Inn , is a restaurant that offers Indian Food at a cheap price range .
-The Punter is a restaurant serving Indian food in the cheap price range with average customer ratings in the riverside area near Express by Holiday Inn and is family friendly .
-Near Express by Holiday Inn is an expensive Indian restaurant called The Punter . It is not child friendly and is in the city centre .
-City Centre restaurant The Punter serves Indian food , not far from Express by Holiday Inn , adults only , customer rating 1 out of 5 , price range high .
-The Punter is a 1 out of 5 stars Indian restaurant near Express by Holiday Inn in the city centre . It is in the high price range , but is children friendly .
-The Punter is a restaurant providing Indian food in the high price range . It is located in the city centre . It is near Express by Holiday Inn . Its customer rating is 1 out of 5 .
-The Punter is a restaurant providing Indian food in the high price range . It is located at the riverside , near Express by Holiday Inn . The customer rating is 1 out of 5 and it is not children friendly .
-The restaurant called The Punter , near Express by Holiday Inn in the riverside area , is a children friendly restaurant that serves Indian food and has 1 out of 5 stars , it has a high price range .
-The Punter is an Indian restaurant situated near Express by Holiday Inn by the riverside . It is ideal for couples and has a fairly high price range and In general it has a 1 out of 5 customer rating .
-By a riverside near Express by Holiday Inn , The Punter is a restaurant serving Indian food it is not a child Friendly , with a low customer Rating and a high price Range .
-
-The Punter is a restaurant that serves Indian food for a high price range . It has an average customer rating and is located near Express by Holiday Inn in the city centre , It is not children friendly .
-Near Express by Holiday Inn in city center there is an Indian restaurant called The Punter . It has a price range is high , is kid friendly , and has an average customer rating .
-The Punter is a restaurant serving Indian food at a high price . They are located near Express by Holiday Inn in riverside . with an average rating and are not child friendly .
-The Punter is a restaurant serving Indian food in the high price range that is children friendly with an average customer rating in the riverside area near Express by Holiday Inn
-
-The Punter is an Indian restaurant in the city centre area near Express by Holiday Inn . It is not child friendly and has a high price range with the average customer rating being a 1 out of 5 .
-
-
-There is a cheap restaurant in Riverside near Express by Holiday Inn that serves Indian food called The Punter .
-The Punter , a low - rated restaurant , serves Indian food in the low price range . Customers say it is not family friendly and it can be found near the city centre and Express by Holiday Inn .
-Looking for a restaurant serving Indian food in the price range of less than £ 20 , with low customer ratings in the city centre area near Express by Holiday Inn and is family friendly , then visit The Punter .
-
-The Punter is a restaurant with Indian food in the price Range of less than £ 20 , with a low customer Rating and not family Friendly , in the riverside area near Express by Holiday Inn .
-The Punter is a restaurant that provides Indian food with prices less than £ 20 . It has a low customer rating and is located on the riverside near Express by Holiday Inn . It is family friendly .
-The Punter is a restaurant providing Indian food in the less than £ 20 price range . It is located in the riverside . It is near Express by Holiday Inn . Its customer rating is low .
-The Punter located in the city centre near Express by Holiday Inn is a child friendly restaurant offering moderately priced , average Indian foods .
-
-Near Express by Holiday Inn in the centre of the city , The Punter is a restaurant that offers moderately priced Indian food . The shop has a 1 out of 5 rating and is not kid friendly .
-City centre located The Punter serves moderately priced Indian food in a restaurant environment . Just near Express by Holiday Inn , it ' s rated 1 out of 5 and serves adult parties only .
-There is a restaurant in riverside near Express by Holiday Inn that is an Indian restaurant called The Punter . It is moderate price range with a one out of 5 customer rating that is not kid friendly .
-
-The Punter is a restaurant providing Indian food in the moderate price range . It is located in the riverside . It is near Express by Holiday Inn . Its customer rating is 1 out of 5 .
-
-For a moderate price The Punter restaurant offers Indian Cuisine in the city centre . While the restaurant is not kid friendly there is a Express by Holiday Inn nearby and it has a customer rating of 3 out of 5 .
-The Punter is a kid friendly restaurant in the city centre area near Express by Holiday Inn . They serve Indian food at a moderate price range with a customer rating of 3 out of 5 .
-The Punter is a restaurant providing Indian food in the moderate price range . It is located in the city centre . It is near Express by Holiday Inn . Its customer rating is 3 out of 5 .
-There is a moderate priced restaurant in riverside near Express by Holiday Inn called The Punter . It is an Indian restaurant witch is not kid friendly and has an average rating .
-The Punter is a restaurant , which also provides Indian cuisine at moderate prices . Customers have rated the food 3 out of 5 . The Punter is situated near the riverside and Express by Holiday Inn . Children are welcome .
-The Punter is an Indian restaurant , it is pretty bad moderate prices and 3 out of 5 customer ratings , The Punter is on the riverside near the Express by Holiday Inn , yes mothers it can accommodate kids .
-The Punter is a kid friendly restaurant that offers Indian food . The price is more than 30 euro ' s and is located near Express by Holiday Inn in the riverside area .
-
-The Punter is a high rated restaurant found in the city centre near Express by Holiday Inn , that sells Indian food , with a price range of over £ 30 , not child friendly .
-The Punter is a restaurant that offers Indian food . Its prices are more than £ 30 but it has a high customer rating . It is located in the city centre near Express by Holiday Inn and it is children Friendly
-The Punter is a restaurant providing Indian food in the more than £ 30 price range . It is located in the city centre . It is near Express by Holiday Inn . Its customer rating is high .
-The Punter is an Indian restaurant near Express by Holiday Inn that is rated high by customers . It is located in riverside , is not children friendly and has a price range of more than 30 pounds .
-The Punter is a highly rated child friendly restaurant offering Indian food for more than £ 30 . They are located on the riverside near Express by Holiday Inn
-The Punter is a restaurant providing Indian food in the more than £ 30 price range . It is located in the riverside . It is near Express by Holiday Inn . Its customer rating is high .
-
-
-
-
-
-
-The Punter is a five star family friendly Italian restaurant which is located next to Rainbow Vegetarian Café .
-The Punter restaurant near the Express by Holiday Inn in the city centre offers highly rated , mid - priced Italian food and a kid friendly environment .
-
-The Punter Italian restaurant near Express by Holiday Inn in the Riverside area is kid friendly and has a high customer rating .
-There is a restaurant called The Punter , it is medium priced , five star rated , family friendly and sells Italian . It is located next to Express by Holiday Inn .
-
-An average , cheap , Italian restaurant , near Rainbow Vegetarian Café in the city center , is called The Punter . They are not family - friendly .
-
-
-
-The Punter is a cheap Italian restaurant near Rainbow Vegetarian Café in the city center , we are no a family - friendly restaurant with a great customer Rating of 5 out of 5 .
-With a customer rating of 5 out of 5 there is a restaurant serving Italian food called The Punter near Rainbow Vegetarian Café in the city centre . It is family - friendly and cheap .
-A restaurant named The Punter sells Italian food is not family - friendly and the price range is cheap with a customer rating 5 out of 5 located in riverside near Rainbow Vegetarian Café
-Located near Rainbow Vegetarian Café in the Riverside area , visit the The Punter restaurant for a cheap family friendly environment with Italian food and a 5 out of 5 customer rating .
-The Punter is a cheap , non family - friendly , restaurant located in the city centre near Rainbow Vegetarian Café . They serve Italian and have an average customer rating .
-The Punter is a Italian restaurant near Rainbow Vegetarian Café . This family - friendly location in the city center area has a average rating with cheap prices .
-hello and welcome to The Punter , we serve the finest Italian food around and have an average customer rating this is very good for a restaurant we are near Rainbow Vegetarian Café and our area is the riverside our price range is very cheap for such good food at the moment we are not family - friendly .
-The Punter is a cheap , family - friendly , Italian restaurant near Rainbow Vegetarian Café , in riverside . It has an average customer rating .
-A restaurant serving Italian food for adults can be found on the riverside near Rainbow Vegetarian Café . The Punter has average ratings , and cheap prices
-There is a cheap family friendly restaurant located near the Rainbow Vegetarian Café called The Punter . They offer good Italian food .
-
-
-The Punter is a children Friendly restaurant with high price range providing Italian food . It is located in the city centre near Rainbow Vegetarian Café and it has customer rating of 1 put of 5 .
-
-The Punter , located near Rainbow Vegetarian Café in the city centre , is a non kid friendly Italian restaurant with a high price range and a customer rating of 1 out of 5 .
-The Punter , a family - friendly Italian restaurant in the city centre near Rainbow Vegetarian Café , is high priced and but has a lower customer service rating of 1 out of 5 .
-The Punter is a high price range restaurant in riverside near Rainbow Vegetarian Café . It has low customer ratings and it is not kids friendly but they serve Italian food .
-The Punter is a children friendly Italian restaurant located in riverside near Rainbow Vegetarian Café . The prices are on the high end with a 1 out of 5 customer rating .
-
-
-Located near Express by Holiday Inn in the city centre is a highly rated restaurant called The Punter . The Punter is not conducive for kids . They serve Italian food with a price range of £ 20 - 25 .
-The Punter is an Italian restaurant in the riverside area near Express by Holiday Inn . The price range is 20 - 25 and has a high customer rating . It is not kid friendly .
-This Italian food restaurant in riverside , names The Punter , located near Express by Holiday Inn . Prices ranging from £ 20 - 25 has a high rating and is kids Friendly .
-As a restaurant that has Italian food , The Punter ' s price range is £ 20 - 25 and has a high customer rating . This non family - friendly place is located near Express by Holiday Inn .
-
-
-
-
-
-The Punter restaurant is low priced , rated three stars and is for the whole family . It is in the City center close to Rainbow Vegetarian Café . It serves fine food .
-
-
-
-
-The Punter is an expensive family friendly restaurant , by the side of the river and just down the road from Rainbow Vegetarian Café .
-
-
-
-
-
-
+indian rupee is the currency in india .
+sumitra mahajan is the leader of india .
+indonesian is the language of indonesia .
+aristoteles sandoval is a leader in jalisco .
+the banyumasan people are an ethnic group in java .
+malaysian malay is an ethnic group in malaysia .
+the name of the leader of mexico is silvano aureoles conejo .
+one of the languages of new york is spanish .
+shumai is a dish from china .
+peanut sauce is an ingredient of siomay .
+malays are an ethnic group in sumatra .
+david cameron is a leader in the united kingdom .
+the 11th mississippi infantry monument was established in the year 2000 and is categorised as a contributing property .
+the 14th new jersey volunteer infantry monument is located in the monocacy national battlefield which nearest city is frederick , maryland .
+the baku turkish martyrs ' memorial is dedicated to the ottoman army soldiers killed in the battle of baku and located in azerbaijan .
+the baku turkish martyrs ' memorial is known locally as türk şehitleri anıtı and is dedicated to the ottoman army soldiers killed in the battle of baku .
+an ethnic group in the united states are african americans . akron , ohio is located in the u . s .
+albany is a city in oregon whose capital is salem .
+new mexico in the united states is home to albuquerque , where the leader is the united states house of representatives .
+amarillo is part of texas and is located in the united states .
+the united states house of representatives leads anaheim , which is part of california .
+anaheim is part of orange county , california , united states .
+anderson can be found within adams township , madison county , indiana , united states .
+antioch , california lies 13 . 0 metres above sea level and covers an area of 75 . 324 square kilometres .
+arlington , texas , located 184 . 0 above sea level , covers an area of 258 . 2 square kilometres .
+arlington is part of the state of texas u . s .
+atlanta is part of georgia in the us .
+atlantic city is part of atlantic county , new jersey , united states .
+the united states has the capital city of washington dc and is the location of atlantic city , new jersey .
+atlantic city is part of atlantic county , new jersey , in the united states .
+atlantic city , new jersey , has a population density of 1421 . 2 inhabitants per square kilometre . the total area of the city is 44 . 125 square kilometres .
+auburn is in pierce county , washington , united states .
+washington dc is the capital of the united states , where albany , oregon is located .
+washington , d . c . is the capital of the united states , which is the home country to amarillo , texas .
+albuquerque , new mexico , is part of the united states , where the african americans are an ethnic group .
+the united states is the location of albany , georgia and includes native americans among its ethnic groups .
+the native americans are an ethnic group in the united states , where auburn , alabama can be found .
+akron , ohio is located within the united states , where english is the language spoken .
+albuquerque , new mexico , is within the united states ; the leader of which , is called the president of the united states .
+amatriciana is a sauce containing tomato that comes from italy .
+arem - arem is commonly served in indonesia where jusuf kalla is leader .
+arrabbiata sauce is from italy where the italian language is spoken .
+arrabbiata sauce can be found in italy where sergio mattarella is the leader .
+arrabbiata sauce can be found in italy and one of the ingredients in it is chili pepper .
+arros negre comes from the region of the valencian community in spain .
+fish is cooked in sour and hot sauce to create an asam pedas which originates from the country of indonesia .
+ayam penyet comes from both malaysia and indonesia .
+blt is a variation of the club sandwich and the bacon sandwich .
+aside from the main ingredient bacon , sausage is included in the bacon explosion .
+the bacon sandwich , which always includes bacon , has different names including : bacon butty , bacon sarnie , rasher sandwich , bacon sanger , piece ' n bacon , bacon cob , bacon barm and bacon muffin .
+an ingredient in a bacon sandwich is bread and a variation is the blt .
+baked alaska ( france ) uses sponge cake as an ingredient .
+france ( led by manuel valls ) is the origin of baked alaska .
+baked alaska , a united states dish , includes the ingredient meringue .
+the bakewell tart , containing fruit preserves , is a variation of bakewell pudding .
+vermicelli is included in the indonesian dish of bakso .
+celery , which is part of the apiaceae family , is an ingredient of bakso .
+chicharrón is one of the ingredients in colombian cuisine ' s bandeja paisa .
+barny cakes can be found in france where the leader is claude bartolone .
+batagor , which has peanut sauce as an ingredient , is found in indonesia .
+the dishes batagor and siomay both contain the ingredient peanut sauce .
+palm sugar is an ingredient in beef kway teow which comes from singapore .
+beef kway teow is a dish from singapore where halimah yacob is the leader .
+kway teow , beef tender loin , gula melaka , sliced dried black beans , garlic , soy sauce , lengkuas , oyster sauce , soya sauce , chilli and sesame oil are the main ingredients of beef kway teow which is a dish found in indonesia and singapore .
+bhajji originates from india which is where indian people are from .
+bhajji and t . s . thakur are from india and thakkur is the leader .
+the igorot people are an ethnic group found in the philippines which is also home to the binignit dish .
+one of the main ingredients in binignit is banana and it can be found in the philippines .
+one of the main ingredients of binignit is the sweet potato , and it also contains banana .
+enrique pena nieto is the leader of mexico , where the food bionico is found .
+granola is a required ingredient of the guadalajara regional dish , bionico .
+bionico is a dish served for dessert as is cake .
+indonesia is the country bakso comes from and the leader is joko widodo .
+shiitake is an ingredient of shumai which has a variation known as batagor .
+aarhus lufthavn a / s is the operation organisation of aarhus airport which has a runway length of 2777 .
+adolfo suarez madrid - barajas airport is located in madrid , paracuellos de jarama , san sebastian de los reyes and alcobendas and lies 610 metres above sea level .
+the runway length at adolfo suarez madrid - barajas airport is 3500 . it is located in madrid , paracuellos de jarama , san sebastian de los reyes and alcobendas .
+agra airport is located in uttar pradesh , which is part of awadh .
+al asad airbase is located in al anbar province , iraq and has a runway length of 3090 . 0 .
+al asad airbase is found in iraq where the language is arabic .
+al asad airbase is operated by the united states air force who were involved in battles at the invasion of grenada .
+the 1st runway at alderney airport is made from poaceae , which is in the monocotyledon class .
+the first runway at alderney airport is made of asphalt , and its length is 877 .
+allama iqbal international airport is located in pakistan who ' s leader is anwar zaheer jamali .
+the allama iqbal international airport is found in punjab , pakistan and has a runway length of 2900 . 0 .
+amsterdam airport schiphol is - 3 . 3528 from sea level and the length of its first runway is 3800 metres .
+amsterdam airport schiphol os - 3 . 3528 from sea level and the 1st runway is made from asphalt .
+
+
+andrews county airport is located in texas where the largest city is houston .
+the runway length of angola international airport , which serves the city of luanda , is 3800 . 0 .
+the runway length of ardmore airport ( new zealand ) is 597 . 0 and its 3rd runway has a surface type of poaceae .
+the ashgabat international airport is 211 metres above sea level and its first runway has a length of 12467 feet .
+the headquarters of turkmenistan airlines are located in turkmenistan and they are the operating organisation for ashgabat international airport .
+atlantic city international airport is located in egg harbor township , new jersey , united states .
+the port authority of new york and new jersey operate the atlantic city international airport which has a runway known as 4 / 22 .
+operated by the port authority of new york and new jersey , atlantic city international airport has a runway which is 3048 . 0 metres long .
+afonso pena international airport is operated by infraero , brasilia .
+fc magdeburg played in the regionalliga in 2014 - 15 season and has 27250 members .
+verona , italy is the home to a . c . chievo verona who have 39371 members .
+associazione calcio chievoverona is managed by italian born rolando maran .
+jorge humberto rodriguez , manager of a d isidro metapan , plays for fc dallas .
+a . e dimitra efxeinoupolis were in the 2014 – 15 a epsth . greece season , and have 1500 members .
+the manager of a . f . c . blackpool is stuart parker who played for blackburn rovers fc .
+the manager of a . f . c . blackpool is stuart parker ( footballer ) who is a member of the irlam town f . c .
+the ground of afc fylde , which holds 3180 fans , can be found in the county of lancashire .
+a . s . gubbio 1910 , which has its ground in gubbio , has 5300 members .
+as livorno calcio play in serie b , and their grounds are in livorno .
+a . s livorno calcio is managed by christian panucci , who plays for a s roma .
+paulo sousa is the manager of the acf fiorentina and his club is juventus .
+the full name of acf fiorentia is " acf fiorentina s . p . a . " and they have 47290 members .
+aek athens ' s ground is in greece and the club has 69618 members .
+the olympic stadium , in athens , is the home ground of aek athens fc which is in the superleague of greece .
+jong ajax is the tenant of sportpark de toekomst which is the ground for afc ajac ( amateurs ) .
+azal arena , shuvalan , baku , azerbaijan , is the ground of azal pfk .
+akron summit assault ; has 3000 members and plays in the 2011 pdl season .
+the ground of a . s . gubbio 1910 is in gubbio in the region of umbria .
+the ground of a . s . gubbio 1910 is located in italy where pietro grasso is the leader .
+the manager of a . s . roma is luciano spalletti who plays for empoli f . c .
+eric flint is the author of 1634 : the bavarian crisis which is preceded by the grantville gazettes .
+1634 : the ram rebellion was written by virginia demarce and can be found as an ebook .
+the eissn number of aip advances ( abbreviated to " aip adv . " ) is 2158 .
+a fortress of grey ice was written by j . v . jones and is available in print .
+a fortress of grey ice with isbm 0 - 7653 - 0633 - 6 has 672 pages .
+a glastonbury romance which written by john cowper powys , was followed by weymouth sands .
+a long long way which has the oclc number 57392246 , was published in print & amp ; paperback .
+a long long way is 292 pages long , and has the isbn number 0 - 670 - 03380 - 4 .
+a long long way was published by viking press a subsidiary of penguin random house .
+a loyal character dancer which is in print , was written by qiu xiaolong .
+a severed wasp has the isbn number 0 - 374 - 26131 - 8 and oclc number 8805735 .
+a severed wasp , oclc number 8805735 , is a hardcover book .
+english is spoken in great britain and a severed wasp was written in this language .
+the book " a severed wasp " is available in print and has an isbn number of " 0 - 374 - 26131 - 8 " .
+julius springer founded springer science and business media , the publisher of abhandlungen aus dem mathematischen seminar der universitat hamburg .
+alcatraz versus the evil librarians has the isbn number 0 - 439 - 92550 - 9 and can be found under the genre of fantasy literature .
+the isbn number of " alcatraz versus the evil librarians " is 0 - 439 - 92550 - 9 ; the oclc number is 78771100 .
+alcatraz versus the scrivener ' s bones , written by brandon sanderson was the follow up book to alcatraz versus the evil librarians .
+am . j . math . is the abbreviation of the american journal of mathematics which comes under the discipline of math .
+johns hopkins university press is the publisher of the american journal of mathematics with johns hopkins university being the parent company .
+washington d . c . is the capital of the united states , the country where ' 1634 the ram rebellion ' comes from .
+
+a fortress of grey ice is from the united states , which has among its ethnic groups african americans .
+' a wizard of mars ' was published in the united states , a country where one of the ethnic groups is african americans .
+a wizard of mars originates from the united states , where many asian americans live .
+1 decembrie 1918 university ' s nickname is uab and is located in alba .
+acharya institute of technology in belgaum is affiliated with visvesvaraya technological university .
+the president of acharya institute of technology in bangalore is b . m . reddy .
+it was the all india council for technical education in mumbai that gave acharya institute of technology its technical campus status .
+awh engineering college is in the state of kerala , whose leader is kochi .
+the character , april o ' neil , was created by peter laird , a united states national .
+bananaman was broadcast by the bbc and starred jill shilling .
+bananaman stars graeme garden , and is broadcasted by stv .
+tim brooke taylor , was born in derbyshire , and starred in bananaman .
+baymax first appeared in the film big hero 6 , starring alan tudyk .
+the first appearance in a film for the character baymax was big hero 6 which starred scott adsit .
+baymax was created by steven t seagle and is a character in big hero 6 .
+roger mckenzie is the comic book writer who created ben urich ( full name benjamin urich ) .
+jerry ordway and marv wolfman are the creators of bibbo bibbowski .
+marv wolfman was creator of bibbo bibbowski , often called bo bibbowski .
+born on march 15 , 1932 , alan bean has now retired .
+test pilot alan shepard has died .
+buzz aldrin was born in glen ridge , new jersey on january 20 , 1930 .
+buzz aldrin was born in essex county , at glen ridge new jersey .
+william anders was a member of the apollo 8 crew and was born in british hong kong .
+william anders , who received a m . s from his alma mater , afit , in 1962 , is retired .
+108 st georges terrace , completed in 1988 , has 50 floors .
+200 public square in the united states has a floor count of 45 .
+20 fenchurch street has 34 floors and has a floor area of 62145 . 3 square metres .
+300 north lasalle is located in chicago and has 60 floors .
+george winkler , from the united states of america , was the architect of 320 south boston building .
+the 3arena , created by architect hok sve , is located at east link bridge .
+the 3arena , designed by populous , is located in dublin .
+the tenant of the ac hotel bella sky , located in copenhagen , is marriott international .
+the architect george richard pain completed adare manor in 1862 .
+adare manor is located in adare , in county limerick .
+addis ababa city hall is located in addis ababa , ethiopia .
+adisham hall is located in haputale , sri lanka and is tudor revival in style .
+adisham hall is located in sri lanka and it ' s architectural style is tudor revival .
+akita museum of art is located in japan where some brazilians are found .
+the akita museum of art , found at 1 - 4 - 2 nakadori , has 3 floors .
+amdavad ni gufa is at lalbhai dalpatbhai campus , near cept university , opp . gujarat university , university road in gujarat .
+ampara hospital is located in eastern province , sri lanka whose leader is austin fernando .
+the asser levy public baths are located in new york city which is in the united states .
+asser levy public baths are located in new york city which contains brooklyn .
+adare manor is located in county limerick which is part of munster .
+the 3arena is located in dublin in the republic of ireland .
+retired us national alan bean was born in wheeler , texas .
+
+buzz aldrin , a us national , was selected by nasa in 1963 having graduated from mit in 1963 with a doctorate in science .
+elliot see , a us national born in dallas , was a student at university of texas at austin .
+elliot see who was selected by nasa in 1962 , attended the university of texas at austin and died in st louis .
+elliot see , who attended the university of texas at austin , died in st . louis , whose mayor is francis g . slay .
+elliot see died on 28 february , 1966 in st . louis a part of the kingdom of france .
+
+1634 : the bavarian crisis is written by virginia demarce and eric flint and has 448 pages in print .
+english is spoken in great britain and is the language used in 1634 : the ram rebellion . the book was preceded by 1634 the galileo affair .
+the association for computing machinery is led by alexander l . wolf and is headquartered in new york city . they publish acm transactions on information systems .
+
+aids journal ( issn number 1473 - 5571 ) comes under the academic discipline hiv and studies hiv / aids .
+the united states is the residence of a t charlie johnson who edited aip advances and has stanford university for an alma mater .
+the author of a fortress of grey ice is j . v . jones . the isbn is 0 - 7653 - 0633 - 6 and the oclc number is 51969173 .
+a loyal character dancer , authored by qiu xiaolong , has a oclc number of 49805501 and a isbn number of 1 - 56947 - 301 - 3 .
+a loyal character dancer is published by soho press and written in english . soho press is situated in the us .
+
+a severed wasp is a hardcover book that has 388 pages and has the oclc number 8805735 .
+the abhandlungen aus dem mathematischen seminar der universitat hamburg , abbreviated as abh . math , semin . univ . hambg , has an lccn number of 32024459 and issn number 1865 - 8784 .
+above the veil ( which came after the book aenir ) is written in english and comes from australia .
+aenir and it ' s successor above the veil is written in english by garth nix .
+above the veil has 248 pages and was written by garth nix . it is available in hardcover .
+acta palaeontologica polonica has the issn number 0567 - 7920 and the lccn number of 60040714 . it is abbreviated to acta palaeontol . pol . .
+the journal addiction has the issn number 1360 - 0443 , it is about addiction and has the same abbreviation .
+wiley - blackwell , whose parent company is john wiley & amp ; sons , is the publisher of addiction ( journal ) which has an issn number of 0965 - 2140 .
+cornell university which is in new york , is affiliated with the association of american universities and is the publisher of administrative science quarterly .
+garth nix is the author of aenir which is written in the english language . this novel was followed up with the book above the veil .
+alcatraz versus the evil librarians is from the united states and written in the english language which is spoken in great britain .
+alcatraz versus the evil librarians is published in hardcover , is 320 pages long and has the oclc number of 7877110 .
+alcatraz versus the evil librarians is from the united states where they speak english as they do in great britain .
+john cowper powys , author of a glastonbury romance , was born in shirley , derbyshire , and died in blaenau ffestiniog .
+sara miller mccune founded sage publications who publish administrative science quarterly with issn number " 0001 - 8392 " .
+a severed wasp originates from the united states where the capital is washington dc and the native americans are an ethnic group .
+a wizard of mars was originally published in the united states and is written in english . african americans are one of many ethnic groups in the u . s .
+the united states are home to asian americans as well as where " a wizard of mars " was published . washington d . c . is the capital .
+a wizard of mars originates from the united states where barack obama is the leader and there are many asian americans .
+1634 the ram rebellion was written in the united states where the leader is known as the president , and the african americans are an ethnic group .
+a fortress of grey ice is from the united states where the leader is known as the president and the native americans are an ethnic group .
+jens härtel has been the manager of 1 fc magdeburg and plays for both 1 . fc lokomotive leipzig and sv germania schoneiche .
+massimo drago played for a . s . d . s . s . nola 1925 , managed a c cesena and now plays for a . s . d . licata 1931 .
+associazione calcio lumezzane spa ( abbreviated to a . c . lumezzane ) play in the lega pro / a and has 4150 members .
+jorge humberto rodriguez is the manager of a . d . isidro metapan and his club is alianza f . c . but he plays for the el salvador national football team .
+antonis milionis is chairman of a . e dimitra efxeinoupolis . they have 1500 members and their ground is located in the town of efxeinoupoli .
+a . f . c . blackpool fullname is " association football club blackpool " , they have 1500 members and their ground is located in blackpool .
+the manager of a . f . c . blackpool is stuart parker ( footballer ) who is attached to chesterfield football club and used to play for runcorn fc halton .
+dave challinor played for stockport county f . c . , is at colwyn bay fc and is the manager of afc fylde .
+as livorno calcio ' s home ground is in livorno , italy . it has the full name of " livorno calcio s . p . a " and has 19238 members .
+a . s . livorno calcio are managed by christian panucci . they play in serie b where carpi fc 1909 are the champions .
+a . s . livorno calcio is managed by christian panucci who has played for chelsea fc and was attached to the real madrid cf club .
+aek athens ' s ground is in greece and it competes in the superleague greece , the past champions were olympiacos f . c .
+aek athens f . c . manager is gus poyet who ' s club is real zaragoza , having previously played for chelsea f . c .
+
+the ground of afc ajax ( amateurs ) can be found in amsterdam , which has eberhard van der laan as leader , and a region called amsterdam - noord .
+john van den brom , who manages az alkmaar , plays for jong ajax and istanbulspor as .
+agremiação sportiva arapiraquense play in the campeonato brasileiro série c league in brazil . their ground is the estadio municipal coaracy da mata fonseca .
+luciano spalletti played for udinese calcio and now manages a . s . roma and plays for empoli f . c . .
+massimo drago has been the manager of a c cesena and was at the club asd licita 1931 . he now plays for s . s . chieti calcio .
+massimo drago plays for u . s castrovillari calcio and a . s . d . s . s . nola 1925 . he also manages ac cesena .
+massimo drago ' s club is the s . s . chieti calcio , he also manages a . c . cesena and was once a player for us castrovillari calcio .
+103 colmore row was designed by birmingham born architect john madin .
+200 public square is in cleveland which is part of cuyahoga county , ohio . the leader in cleveland is frank g jackson .
+250 delaware avenue in the united states has 12 floors with a total floor area of 30843 . 8 square metres .
+300 north lasalle is located in chicago , part of dupage county , illinois where rahm emanuel is a leader .
+george winkler from the united states was the architect of 320 south boston building . 320 south boston street has 22 floors .
+arcitect hok sve , completed the 3arena on north wall quay in december 2008 .
+ac hotel bella sky copenhagen , whose tenant is marriott international , has 23 floors and is located in copenhagen denmark .
+marriott international is the tenant of ac hotel bella sky copenhagen , that was designed by the architects of the 3xn firm and has 23 floors .
+augustus pugin , born in bloomsbury , designed adare manor and palace of westminster .
+adare manor ' s architect was philip charles hardwick and it was completed in 1862 . jp mcmanus owns adare manor .
+adisham hall , in the tudor and jacobean architectural style , completed in 1931 and located in haputale .
+adisham hall , sri lanka was finished in 1931 and is in the architectural style of " tudor and jacobean " .
+adisham hall is located in haputale , sri lanka , whose leader is ranil wickremesinghe .
+sri jayawardenepura kotte is the capital of sri lanka , which uses the sri lankan rupee as its currency and is the location of adisham hall .
+alan b . miller hall ' s building opened in 30th march 2007 . the mason school of business in the united states are the current tenants of alan b miller hall .
+san francisco born julia morgan was the architect of the asilomar conference grounds and she also designed other significant buildings including the riverside art museum .
+julia morgan , who was born in california , was the architect of the asilomar conference grounds and designed many significant buildings in chinatown , san francisco .
+asilomar conference grounds are located at asilomar blvd , pacific grove california and given the reference of 87000823 in the national register of historic places on 27 february 1987 .
+asser levy public baths were constructed in 1904 at avenue a , manhattan . they were added to the national register of historic places on 23rd april 1980 .
+the asser levy public baths in new york city were built in 1904 and added to the national register of historic places on " 1980 - 04 - 23 " .
+
+architect john madin , born in birmingham ( led by the liberal democrats ) , designed 103 colmore row .
+addis ababa city hall is located in addis ababa , ethiopia , which is led by hailemariam desalegn .
+amdavad ni gufa is located in ahmedebad , gujarat . the leader of gujurat was anandiben patel .
+marriott international , where bill marriott is one of the key people , is located in bethesda maryland and is the tenant of ac hotel bella sky copenhagen .
+the asian americans are an ethnic group within the united states , which is the location of albany , part of dougherty county in georgia .
+the new mexico senate leads albuquerque ( new mexico ) which has a total area of 490 . 9 square kilometres and the population density of 1142 . 3 people per square kilometers .
+alpharetta is part of fulton county , georgia which is in the united states . african americans are an ethnic group in the us .
+alpharetta is part of the state of georgia in the united states . one of the ethnic groups found in this country is asian americans .
+the asian americans are an ethnic group in the united states which has the capital of washington dc and is the location of alpharetta in georgia .
+anaheim , california has a total area of 131 . 6 square kilometres , area codes 657 and 714 , and a utc offset of - 7 .
+the california state senate , located in the california state capitol , leads anaheim , which is part of california .
+anderson is in lafayette township , madison county , indiana ; which is in the united states .
+the asian americans are an ethnic group in the united states which is the location of angola , pleasant township , part of steuben county in indiana .
+led by the united states house of representatives , antioch is part of contra costa county , part of the san francisco bay area .
+arlington in the united states is part of tarrant county in texas where the county seat is fort worth .
+the asian americans are an ethnic group found in the united states which has the capital city of washington dc and is the location of atlanta .
+atlanta , which has the area code of 404 , has a population density of 1299 inhabitants per sq km and a total area of 347 . 1 sq km .
+atlantic city , new jersey is in the united states where the largest city in that state is newark .
+new york city is the largest city in the united states . the country is also where atlantic city ( part of atlantic county , new jersey ) , is located .
+auburn is part of lee county in alabama in the united states .
+the united states has the capital of washington dc and is the location of auburn in the state of washington , .
+auburn is in washington state in the united states . the state capital of washington is olympia .
+atlanta is the capital of georgia ( united states ) , the state where albany , dougherty county , is located .
+alexandria in the united states is part of madison county , indiana which has the largest city of anderson .
+the capital of the state of new jersey in the u . s . is trenton . atlantic city is also part of that state .
+arlington is part of texas where the largest city is houston and the english language is spoken .
+attica , fountain county , indiana is in the united states : where washington , d . c . . is the capital .
+attica is in fountain county indiana in the united states . washington dc is the country ' s capital .
+akron , ohio is located in the united states , where english is spoken , and where the capital is washington dc .
+the united states , which includes the ethnic group of asian americans , is the location of akron , summit county , ohio .
+albany is part of benton county in oregon , in the u . s , of which the asian americans are an ethnic group .
+albuquerque , new mexico is in the united states ; where barack obama is the leader and asian americans call home .
+albany , georgia is in the united states ; where english is spoken and african americans call home .
+the united states , where the asian americans are an ethnic group , uses the english language and is the location of angola , indiana .
+aarhus airport is operated by aarhus lufthavn a / s and its 2776 meters long runway is called 10r / 28l .
+adirondack regional airport serves the city of lake placid , new york and saranac lake , new york . the runway is 2003 feet long .
+adolfo suarez madrid - barajas airport is located at paracuellos de jarama which is part of the community of madrid , spain .
+the agra airport ( viag ) in uttar pradesh is operated by the indian air force .
+the united states air force is the operating organisation for al asad airbase in iraq where the length of the runway is 3992 . 88 .
+in 1986 the usaf bombed libya . it operates the al asad airbase and uses the mcdonnell douglas f - 15 eagle fighter jet .
+the operating organisation for al asad airbase is the united states air force . they were involved in battles at the invasion of grenada and deploy the aircraft fighter plane known as the mcdonnell douglas f15 eagle .
+
+located in pakistan , allama iqbal international airport is operated by the pakistan civil aviation authority , the headquarters of which is the jinnah international airport .
+allama iqbal international airport , whose runway name is 18l / 36 is located in punjab , pakistan . its length is 2900 .
+at 210 metres above sea level , alpena county regional airport is located in maple ridge township , alpena county , michigan , in the united states .
+located in texas , andrews county airport , is 973 . 0 above sea level and has a runway length of 1773 metres .
+located in texas , andrews county airport is 973 . 0 above sea level and has a runway length of 896 .
+austin is the capital of texas , where they speak english , and andrews county airport is located .
+andrews county airport is located in texas in the united states where the inhabitants have the demonym tejano , .
+antwerp , served by antwerp international airport , is a popular tourist destination in belgium . german is spoken in belgium .
+atlantic city international airport is in egg harbor township , atlantic county , new jersey , united states .
+atlantic city international airport is operated by the port authority of new york and new jersey located at four world trade centre and serves the new jersey region .
+atlantic city international airport is in egg harbor township , new jersey , united states and has a runway length of 3048 . 0 .
+lahore , pakistan is served by allama iqbal international airport , and is led by anwar zaheer jamali .
+adolfo suárez madrid – barajas airport is located in madrid which is part of the community of madrid led by ahora madrid .
+adolfo suárez madrid – barajas airport is found in madrid , spain where the leading party is ahora madrid .
+adolfo suárez madrid – barajas airport is found in san sebastián de los reyes ( spain ) where the lead party is the people ' s party .
+
+the 11th mississippi infantry monument is placed in the municipality of gettysburg , adams county , pennsylvania , northwest of carroll county maryland .
+
+the baku turkish martyrs ' memorial is in azerbaijan , where the leader is artur rasizade , and the legislature is dictated by the national assembly .
+ahmet davutoglu is a leader from turkey whose capital is ankara and where the ataturk monument can be found in izmir .
+guanciale is an ingredient in amatriciana sauce which comes from the lazio region in italy .
+arem arem is a javanese dish and the main ingredients of arem - arem are compressed rice cooked in banana leaf with vegetables or minced meat fillings .
+tomato , an ingredient of arrabbiata sauce , is part of the flowering plant division and belongs to the family of solanaceae .
+arrabbiata sauce is made from olive oil and comes from rome in italy .
+arrabbiata sauce originates from the region of rome , italy , and tomato is one of its ingredients .
+the main ingredient of asam pedas , which hails from malaysia , peninsula , is fish cooked in a sour and hot sauce .
+the capitol city of malaysia is kuala lumpur , the country is led by arifin zakaria and is home to the dish asam pedas .
+ayam penyet is found in indonesia and malaysia , home of malaysian chinese .
+lettuce is an ingredient in a blt which is a variation of a club sandwich . while the bacon sandwich is a variation of blt .
+the bacon explosion is found in united states , led by barack obama and inhabited by white americans .
+
+the blt is a variation on the club sandwich or the bacon sandwich , all three are made with bread .
+sponge cake is an ingredient of baked alaska which is claimed to come from france and new york .
+the currency of france is the euro , it is also where manuel valls is a leader and baked alaska is a popular dish .
+baked alaska contains christmas pudding and is from the new york region of the united states .
+sponge cake is an ingredient in the dessert baked alaska , another type of desert is a cookie .
+bakewell pudding is a dessert that originates from the derbyshire dales and contains the ingredients ground almonds , jam , butter and eggs .
+the main ingredients of bakewell pudding are ground almond , jam , butter and eggs . it is a variant of bakewell tart and comes from the derbyshire dales region .
+beef is an ingredient of bakso which is a dish that comes from a region in indonesia .
+avocado is one of the ingredients in the dish bandeja paisa , which is a dish from colombian cuisine . it originates from the paisa region .
+bandeja paisa is a traditional dish from the paisa region of colombia and includes the ingredient hogao .
+barny cakes come from france . claude bartolone and manuel valls are leaders in france .
+batchoy is a dish eaten in the philippines . it is a noodle dish which includes pork organs , vegetables , chicken , shrimp and beef .
+batchoy is eaten in the philippines and the main ingredients are noodles , pork organs , vegetables , chicken , shrimp and beef .
+a popular dish in singapore and indonesia is beef kway teow , tony tan is the leader of singapore .
+beef kway teow is from singapore and indonesia and is made with sesame oil .
+beef kway teow is a dish commonly found in singapore , the singapore region and indonesia . it contains oyster sauce among the ingredients .
+
+cookies and binignit , which contains banana as a key ingredient , are types of desserts and should be served as that course .
+cookies and binignit are types of dessert . a key ingredient of binignit is sago .
+taro is an ingredient in binignit which should be served as the dessert course . a cookie is a dessert .
+the main ingredient of binignit is sweet potato , which is of the order of solanales . banana is another ingredient of the dish .
+bionico is served as a dessert course . it is found in mexico and requires granola as an ingredient .
+bionico , which contains raisins , is from the guadalajara region of mexico .
+the name of the leader in mexico is silvano aureoles conejo whose currency is the mexican peso . bionico is a food found in that country .
+italy is the country amatriciana sauce comes from . the capital of italy is rome and the leader is pietro grasso .
+batchoy is a dish from the philippines , where igorot people are part of one of the ethnic groups and where one of the languages spoken is arabic .
+beef kway teow is a popular dish in singapore where tony tan is the leader and the english language is spoken .
+the tomato , used in an amatriciana sauce , belongs to the family solanaceae and is of the order solanales .
+awh engineering college has an academic staff of 250 and is located in the state of kerala , india .
+the acharya institute of technology , bangalore , has 700 postgraduate students and is affiliated with visvesvaraya technological university .
+kochi is the leader of kerala which is southeast of mahe india , and the location of the awh engineering college .
+romania is the home of the ethnic group of germans of romania , and is the location of the 1 decembrie 1918 university . the romanian anthem is desteapta - te romane .
+the 1 decembrie 1918 university is located in romania . the romanian leader is called klaus iohannis and one of the country ' s ethnic groups are the germans of romania .
+the school of business and social sciences at the aarhus university was established 1928 and is affiliated with the european university association ( which has its headquarters in brussels ) .
+the school of business and social sciences at the aarhus university , denmark , was established in 1928 .
+the comic character asterix , was created by albert uderzo and rené goscinny , who is french .
+bananaman , which was broadcast by the bbc and last aired on april 15th , 1986 , starred tim brooke - taylor .
+the first appearance in a film for the character baymax was big hero 6 , distributed by walt disney studios motion pictures , the film starred scott adsit .
+the film , big hero 6 stars scott adsit and includes the character baymax . it was distributed by walt disney studios motion pictures .
+baymax is a character in the big hero 6 film starring ryan potter and distributed by walt disney studios motion pictures .
+the comics character blockbuster , aka mark desmond , was created by gardner fox and carmine infantino .
+larry bolatinsky is the alternative name for the comic character bolt who was created by gary cohn and dan mishkin .
+bolt , a comic character is also known as larry bolatinsky was created by ernie colon and gary cohn .
+
+
+200 public square is in cleveland , part of cuyahoga county , ohio in the united states and the governing body is the cleveland city council .
+250 delaware avenue in buffalo , new york cost 110 million dollars and has 12 floors with a total area of 30843 . 8 square metres .
+300 north lasalle is located in chicago , which is a part of cook county in illinois , united states . rahm emanuel is a leader in chicago .
+300 north lasalle , a 120770 . 0 square metre 60 floor building in illinois , was completed in 2009 .
+dublin is part of leinster and a city in the republic of ireland . dublin is also home to the 3arena which is currently owned by live nation entertainment .
+the ac hotel bella sky is located in copenhagen and has 23 floors . the hotel was designed by the architects of the 3xn firm and the current tenant is marriott international .
+adare manor is located in adare county limerick , munster which is governed by limerick city and county council .
+the akita museum of art is located in akita , akita , of the akita prefecture in japan . brazilians are one of the japanese ethnic groups .
+the akita museum of art is located in akita , akita ( in japan ) , part of the akita prefecture , where one of the ethnic groups is the filipinos .
+akita museum of art is located in akita prefecture , in akita , akita , japan , a country with the ethnic group of vietnamese people .
+the brazilians are one of the ethnic groups of japan where the akita museum of art is located in akita , akita prefecture .
+alan b miller hall , 101 ukrop way , williamsburg , virginia was completed on 1st june 2009 and is owned by the college of william and mary .
+amdavad ni gufa is located in gujarat , india where narendra modi is the prime minister and one of the leaders is sumitra mahajan .
+the asilomar conference grounds were constructed in 1913 in pacific grove , california , and were added to the national register of historic places on february the 27nd 1987 with reference number 87000823 .
+built in 1904 and located in avenue a , manhattan , asser levy public baths was added to the national register of the historic places on 1980 / 04 / 23 ( reference number 80002709 ) .
+the asser levy public baths are located in new york city which has sections known as brooklyn and manhattan . cyrus vance jr is the leader of manhattan .
+gale brewer is the leader of manhattan , new york city , united states where the asser levy public baths are located .
+led by andrew mitchell , birmingham has postcode area ' b ' and is the birthplace of the 103 colmore row architect , john madin .
+103 colmore row was designed by the architect , john madin who was born in birmingham . birmingham council is led by the labour party and has a b postal code .
+anandiben patel is a leader in gujarat , india where amdavad ni gufa is located . sumitra mahajan is also an indian leader .
+the prime minister of india is narendra modi , and t s thakur is another leader . the country is the location of amdavad ni gufa in gujarat .
+the brazilians are one of the ethnic groups of japan where the akita museum of art is located in akita , akita prefecture .
+london is the capital of the united kingdom , which is governed by parliament and has elizabeth ii as its leader . 20 fenchurch street is located in the uk .
+250 delaware avenue is located in the united states where the leader is known as the president of the united states , they speak english and joe biden is also a leader .
+the 11th mississippi infantry monument is located in pennsylvania in the united states . established in the year 2000 , the monument falls under the category of contributing property .
+prime minister of azerbaijan is the official title of the leader of azerbaijan and his name is artur rasizade . the baku turkish martyrs ' memorial can be found in baku , the capital of azerbaijan .
+the baku turkish martyrs memorial , also known as turk sehitleri aniti , is dedicated to ottoman soldiers killed in the battle of baku . it is located in baku , the capital of azerbaijan .
+the 14th new jersey volunteer infantry monument was established on july 11th , 1907and located in the monocacy national battlefield in the county frederick , maryland . the city nearest to monocacy national battlefield is frederick , maryland .
+the atatürk monument in izmir is made of bronze , is located in turkey , which is led by ahmet davutoglu and has ankara as its capital .
+president of turkey is the official title of the turkish leader . the atatürk monument ( i̇zmir ) designed by pietro canonica is found in turkey and inaugurated on the july 27th , 1932 .
+albany , georgia , is in the united states , where english is spoken , and , where native americans are one of the ethnic groups .
+albuquerque , new mexico covers a total of 490 . 0 sq kms which includes a land area of 486 . 2 sq km . it has the area codes 505 and 575 and a population density of 1142 . 3 inhabitants per sq km .
+alpharetta is part of fulton county in georgia ( united states ) , where atlanta is the county seat .
+amarillo is part of potter county , texas in the united states . african americans are an ethnic group in the united states .
+amarillo is part of potter county in texas , united states . austin is the capital of texas .
+california is led by the california state assembly ( location : state capital ) , is spanish speaking and location of anaheim .
+anderson , indiana is part of adams fall creek , lafayette , richland , union and elevated 268 . 0 meters above sea level . the town has an area of 107 . 43 square kilometres and its population density is 523 . 9 inhabitants / sq km .
+angola is part of pleasant township in steuben county and covers a total area of 16 . 55 square kilometres . the city is in indiana , united states .
+the total area of antioch , california is 75 . 324 square km . , has an utc offset of - 7 and its population is 102372 . the area code there is 925 .
+atlantic city , new jersey ( area code 609 ) , covers a total area of 44 . 125 square kilometres . the mayor of the city is responsible of a population which averages about 1421 people for each of those square kilometres .
+the asian americans are an ethnic group in the united states , where you will find auburn , which is part of lee county in the state of alabama .
+auburn in lee county , alabama is in the u . s . a . which is home to african americans .
+auburn is part of both pierce county and king county in washington in the united states . the country ' s capital city is washington dc .
+the capital of u . s is washington , d . c . . king county , auburn is located in this state .
+austin is in hays county , texas whose county seat is san marcos . the largest city in texas is houston .
+anaheim is part of california and led by the california state assembly located at the california state capitol . chinese is a language spoken in california .
+alpharetta , fulton county , atlanta , georgia are in the united states .
+lafayette township , madison county , indiana is in the united states and the township is home to anderson while indianapolis is the state capital .
+texas , where english is spoken , is part of the u . s . and among its cities are arlington and houston which is the largest city in the state .
+the city of albany is part of benton county , oregon , in the united states . the capital of the country is , washington d . c . , and african americans , are one of the country ' s ethnic groups .
+atlantic city , is a part of new jersey , in the united states . the country ' s capital , is washington d . c . , and its largest city , is new york city .
+barack obama is the president of the united states where one finds african americans and the city of albuquerque in new mexico .
+albuquerque is in new mexico , in the united states , where one of the ethnic groups is asian americans . the new mexico senate leads albuquerque and john sánchez is one of the leaders .
+in the u . s . , where the capital is washington d . c . , you ' ll find albany in benton county , oregon and asian americans .
+
+english is spoken in the united states , where native americans are an ethnic group . the us is home to albany , which is located in georgia .
+angola , indiana is in the united states , where english is the language spoken and asian americans are an ethnic group .
+angola is in pleasant township which is part of steuben county , in indiana , in the united states . the country where english is spoken , and where asian americans are one of the ethnic groups .
+
+rolando maran was born in italy and is in the carrarese calcio club . he currently plays for f . c . bari 1908 while managing a . c . chievo verona .
+italian born michele marcolini has been the manager of ac lumezzane . he currently plays for torino fc and ac chievo verona .
+a . e dimitra efxeinoupolis is in the league , epsth 2nd group and have 1500 members . their chairman is antonis milionis and their home ground is situated in efxeinoupoli .
+afc blackpool in blackpool are managed by stuart parker , previously a player for stockport county f . c . the leader of blackpool is the conservative party ( uk ) .
+gordon marsden , leads blackpool , which is where a . f . c . blackpool is located . they have had , for a manager , stuart parker , whose club was stockport county f . c .
+a . f . c . fylde ( association football club fylde ) played in 2014 and has 3180 members . its ground is in warton , fylde , lancashire .
+afc fylde , which has the full name " association football club fylde " are based at bryning lane . the club has 3180 members and played in 2014 .
+paulo sousa is the manager of acf fiorentina and his club is juventus . he plays for both plays for maccabi tel aviv f . c . and the inter milan club .
+aek athens fc has a ground in greece and has 69618 memberrs . they played in the 2014 season and compete in the superleague greece .
+afc ajax ( amateurs ) ' s ground is sportpark de toekomst which is operated by afc ajax and owned by afc ajax n . v . the current tenant of the ground is jong ajax .
+amsterdamsche football club ajax amateurs is abbreviated to afc ajax ( amateurs ) and has the nickname joden , godenzonen . they have 5000 members and they have played in the 2014 season .
+john van den brom has been manager of az alkmaar and played for the netherlands national football team . he is in vitesse arnhem and now plays for afc ajax .
+
+agremiação sportiva arapiraquense ' s ground is estadio municipal coaracy da mata fonseca which is located in alagoas . they play in the campeonato brasileiro série c league which is from brazil .
+agremiacao sportiva arapiraquense ' s ground is the estadio municipal coaracy da mata fonseca in arapiraca . they play in the campeonato brasileiro série c league which is based in brazil .
+the ground of akron summit assault is at st vincent - st mary high school in akron , ohio , summit county , united states .
+the ground of a . s . gubbio 1910 is located in italy where rome is the capital and two of the leaders are pietro grasso and sergio mattarella .
+peter stöger is at the fk austria wien club and is in the sk vorwärts steyr club , a player in fc admira wacker mödling , and is the manager of fc kolin .
+abilene , texas is served by the abilene regional airport whose runway name is 17l / 35r . the airport is 546 meters above sea level and 2194 meters in length .
+adirondack regional airport serves the city of lake placid and the city of saranac , new york , the airport is 507 metres above sea level with a runway length of 2003 . 0 .
+adolfo suárez madrid – barajas airport can be found in madrid , paracuellos de jarama , san sebastián de los reyes and alcobendas and is operated by enaire . the runway name is 18l / 36r with a length of 3500 .
+agra airport in india is operated by the indian air force . it has the location identifier of viag and the iata location identifier of agr .
+the united states air force is operating al asad airbase in iraq with runway 08 / 26 that is 3990 . 0 long .
+the united states air force operates the al - asad airbase ; located in al anbar province , iraq . the runway named 09r / 27l is 3990 in length .
+al asad airbase is operated by the united states air force which was involved in the invasion of grenada . the united states air force has the lockheed ac - 130 , an attack aircraft and the mcdonnell douglas f - 15 eagle , an aircraft fighter .
+allama iqbal international airport in pakistan serves the city of lahore , has a runway length of 2900 . 0 and is operated by pakistan civil aviation authority .
+amsterdam airport , schiphol serves the city of amsterdam and is - 3 . 3528 from sea level . the runway name is 09 / 27 buitenvelderbaan and is 2014 . 0 in length .
+amsterdam airport schiphol is - 3 . 3528 above sea level , has a runway name 18l / 36r ' aalsmeerbaan which is 2014 . 0 in length and serves the city of amsterdam .
+andrews county airport , serving the city of andrews in texas has a runway length of 929 . 0 and is 973 metres above sea level .
+tejano is the demonym for people from the state of texas in the united states . the state capital is austin and it is served by andrews county airport .
+andrews county airport is located in texas , the capital of which is austin . english is the language of texas which is located in the united states .
+angola international airport is located at ícolo e bengo , luanda province , angola and serves the city of luanda .
+the flemish government operate antwerp international airport which is owned by the flemish region . the airport has an elevation of 12 . 0 metres above sea level and a runway length of 600 . 0 .
+the operating organization for ashgabat international airport is called turkmenistan airlines who have headquarters in ashgabat , turkmenistan . their hub airport is turkmenbashi international airport .
+athens is served by athens international airport located in spata . the airport is 94 metres above sea level and has a runway length of 3800 . 0 .
+the atlantic city international airport is located in egg harbor township in the united states and serves atlantic city , nj where don guardian is leader .
+atlantic city international airport is located in egg harbor township , new jersey , u . s . the south jersey transportation authority is the owner of the airport and it is run by stephen dilts .
+charles michel is the leader of belgium where the german language is spoken . antwerp is located in the country and served by antwerp international airport .
+antwerp international airport serves the city of antwerp in belgium . the country ' s leader is philippe of belgium and french is one of the official language there .
+adirondack regional airport serves the city of saranac lake which is part of harrietstown and essex county , new york .
+al - taqaddum air base serves the city of fallujah , which is in iraq , where fuad masum is the leader and the kurdish languages are spoken .
+al - taqaddum air base serves the city of fallujah in iraq . the leader of the country is haider al - abadi and the kurdish language is spoken .
+located in pakistan , the city of lahore is served by allama iqbal international airport which is punjab pakistan , where the leader is malik muhammad rafique rajwana .
+poaceae is in the order of commelinids , the class of monocotyledon and belongs to the division of flowering plants . it forms the surface to the 1st runway at alderney airport .
+rona fairhead is a key person for the bbc which headquarters are called the broadcasting house . along others , both bbc radio and bananaman are broadcasted .
+jill shilling was the star of the stv hit bananaman , created by steve bright and first aired on the 3rd of october 1983 .
+american , duncan rouleau created baymax , a character in the film big hero 6 , which starred ryan potter .
+the comic character bolt , with the alternative name larry bolatinsky , was created by gary cohn and ernie colon , who is a puerto rican national .
+eric flint ( born burbank , california ) is the author of 1634 : the bavarian crisis , which is the sequel to grantville gazette iii . demarce short stories in the grantville gazettes preceded 1634 : the bavarian crisis .
+1634 : the ram rebellion is available as an e - book and is 512 pages long . it was written by eric flint , virginia demarce , et al . and has the isbn number 1 - 4165 - 2060 - 0 .
+wolters kluwer , the parent company of lippincott williams & amp ; wilkins that publishes aids ( journal ) , is in the uk where elizabeth ii is the leader .
+a fortress of grey ice , written by j . v . jones and produced in hardcover , has the isbn number 0 - 7653 - 0633 - 6 and the oclc number 51969173 .
+the hardcover book a loyal character dancer was written by qiu xiaolong , has an oclc number of 49805501 and an isbn number of 1 - 56947 - 301 - 3 .
+native americans are an ethnic group within the united states where a loyal character dancer was written in english , a language also spoken in great britain .
+a loyal character dancer was published in the united states by soho press . the language of the country is english and one of the ethnic groups is asian american .
+diane duane ' s ' a wizard of mars ' ( isbn : 978 - 0 - 15 - 204770 - 2 ) was published in hardback and has 560 pages .
+acta mathematica hungarica ( abbreviated as " acta math . hungar . " ) covers the academic discipline of mathematics . it has the issn number of " 0236 - 5294 " and lccn number 83646315 .
+paleobiology is an academic discipline of acta palaeontologica polonica ( acta palaeontol . pol . ) with a lccn number of 60040714 and a issn number of 0567 - 7920 .
+acta palaeontologica polonica is abbreviated to acta palaeontol . pol and is published by the polish academy of sciences . the publication has the issn number 1732 - 2421 and the lccn number 60040714 .
+administrative science quarterly was published by cornell university , new york , affiliated with the association of public and land grant universities and the association of american universities .
+affiliated with the association of public and land grant universities , cornell university , publisher of administrative science quarterly , is the located in the city of ithaca found in the state of new york .
+garth nix is the author of aenir which has the isbn number of 0 - 439 - 17684 - 0 . it has 233 pages and is available in paperback .
+african americans are an ethnic group in the united states . it is also where the book alcatraz versus the evil librarians comes from . this book was written in english which is the language of great britain .
+american journal of mathematics is published in 1878 by the johns hopkins university press whose parent company is johns hopkins university located in the united states .
+english is spoken in great britain and the united states . the book alcatraz versus the evil librarians comes from the u . s . where one of the ethnic groups is asian americans .
+a wizard of mars was published in the united states where the leader is barack obama . it is published in english which is the language spoken in great britain .
+a wizard of mars is written in english and was published in the united states , where barack obama is the president and asian americans is one of the ethnic groups .
+english is spoken in great britain and the united states . the leader of the united states is barack obama and is where a wizard of mars originates from .
+english is spoken in the united states and this is the country where a severed wasp is from . the us includes many asian americans and is led by barack obama .
+
+
+born in hong kong , william anders was a crew member of apollo 8 with representative chris patten and apollo 8 member frank borman .
+buzz aldrin was born in glen ridge , new jersey . he obtained an sc . d in 1963 from massachusetts institute of technology . he was a crew member of apollo 11 and has retired .
+buzz aldrin was born in glen ridge , new jersey . he was a fighter pilot before being selected by nasa as a crew member of apollo 11 in 1963 .
+
+
+
+
+
+awh engineering college was established in 2001 , and is located in the city of kuttikkattoor , india , where the ganges river is also located .
+the campus of the acharya institute of technology in india which is affiliated to the visvesvaraya technological university in belgaum is located at in soldevanahalli , acharya dr . sarvapalli radhakrishnan road , hessarghatta main road , bangalore – 560090 .
+the acharya institute of technology is located in the city of bangalore in india . it is affiliated with visvesvaraya technological university and its director is dr . g . p . prabhukumar .
+the all india council for technical education in mumbai granted technical campus status to the acharya institute of technology . tennis , which is governed by the international tennis federation is a sport offered at the institute .
+1 decembrie 1918 university is located in alba iulia , alba county , romania . the capital of the country is bucharest .
+the school of business and social sciences at the aarhus university in aarhus is located in denmark , a country in which a magistrate form of government is led by lars lokke rasmussen .
+kochi is leader of kerala state where the awh engineering college with an academic staff of 250 is located in the city of kuttikkattoor .
+
+the 1 decembrie 1918 university is located in alba iulia , romania . the capital of the country is bucharest and it ' s leader is klaus iohannis .
+amatriciana sauce is from the lazio region of italy . the main ingredients are tomatoes , guanciale , cheese , and olive oil .
+arrabbiata sauce can be found in italy , the capital of which is rome . pietro grasso and sergio mattarella are leaders of the country .
+arròs negre is a traditional dish from catalonia , spain . the main ingredients are white rice , cuttlefish or squid , cephalopod ink and cubanelle peppers .
+arròs negre is a traditional dish from catalonia , spain . the main ingredients in arròs negre are white rice , cuttlefish or squid , cephalopod ink and cubanelle peppers .
+arros negre is a traditional dish from spain , where the ethnic group is the spaniards . arros negre is from the region of catalonia , whose leaders are the parliament of catalonia .
+asam pedas is a dish from sumatra and malaysia . malaysian malay is an ethnic group in malaysia and batak of sumatra .
+asam pedas is a food found in malaysia and sumatra . malays are the minangkabau people are ethnic groups in sumatra .
+the united states , capital city washington , d . c . , is led by barack obama . asian americans are one of the ethnic groups in the u . s . the country is also the origin of bacon explosion .
+bacon explosion comes from the united states where john roberts is a leader . the country ' s capital city is washington d . c . and asian americans are one of the ethnic groups of the usa .
+bacon sandwich is a dish from the uk that ketchup is often added to . a variant of this sandwich is a blt , which itself is a variation of the club sandwich .
+bacon sandwich is a dish from the united kingdom . it is also known as a bacon butty , bacon sarnie , rasher sandwich , bacon sanger , piece ' n bacon , bacon cob , bacon barm , or bacon muffin . the main ingredients in a bacon sandwich are bread and bacon and it can be served with ketchup or brown sauce as a condiment .
+baked alaska and cookie is a type of dessert and comes from the united states . african americans are one of the country ' s ethnic group .
+baked alaska comes from the us and is popular in paris , new york and hong kong . the main ingredients are meringue , ice cream and sponge cake ( or christmas pudding ) .
+baked alaska hails from hong kong but france , the us and china all claim to have invented the dish . the main ingredients are meringue , ice cream , sponge cake or christmas pudding .
+baked alaska comes from both hong kong and the united states . the main ingredients are meringue , ice cream , sponge cake or christmas pudding .
+a variant of bakewell pudding is bakewell tart . bakewell pudding is from the derbyshire dales region which is part of derbyshire . fruit preserves are found in the bakewell tart .
+bakso is an indonesian dish which is also popular in neighbouring southeast asian countries . the main ingredients of the dish are ground beef , tapioca , noodle , rice vermicelli , beef broth , kailan , celery , salted vegetables and fried shallots .
+bakso is a food found in indonesia . the main ingredients of the dish are ground beef , tapioca , noodle , rice vermicelli , beef broth , kailan , celery , salted vegetables and fried shallots .
+bandeja paisa is a traditional dish from the paisa and colombian regions . the main ingredients in bandeja paisa are red kidney beans , pork belly , white rice , ground meat , chicharon , fried egg , plantain ( patacones ) , chorizo , arepa , hogao sauce , black pudding ( morcilla ) , avocado and lemon .
+the main ingredients of bandeja paisa are red beans , pork belly , white rice , ground meat , chicharon , fried egg , plantain ( patacones ) , chorizo , arepa , hogao sauce , black pudding ( morcilla ) , avocado and lemon . the dish is from colombian cuisine and originates in the paisa region .
+barny cakes come from is france where they speak french . the leader is either françois hollande and / or gerard larcher .
+batagor originates from the country of indonesia , shumai is a variation of the dish siomay and contains shiitake .
+batchoy is a food found in la paz , iloilo city , philippines . the main ingredients of batchoy are noodles , pork organs , vegetables , chicken , shrimp , beef .
+batchoy is a soup from the philippines . the main ingredients of batchoy are noodles , pork organs , vegetables , chicken , shrimp , and beef .
+beef kway teow is a popular dish in singapore and indonesia . the main ingredients for beef kway teow are : kway teow , beef tender loin , gula melaka , sliced , dried black beans , garlic , dark soy sauce , lengkuas , oyster sauce , soya sauce , chilli and sesame oil .
+beef kway teow is found in indonesia and singapore . halimah yacob is a leader of standard chinese speaking singapore .
+beef kway teow originates from singapore and indonesia . kway teow , beef tender loin , gula melaka , sliced , dried black beans , garlic , dark soy sauce , lengkuas , oyster sauce , soya sauce , chilli and sesame oil are the main ingredients of the dish .
+bhajji comes from the karnataka region of india . the dish contains vegetables and also known as bhaji or bajji .
+bhajji , also known as bhaji or bajji , are found in the region of karnataka and its ingredients are gram flour and vegetables .
+sago and sweet potato are ingredients in binignit . sweet potato belongs to the solanales order of flowering plants .
+the main ingredient of binignit is coconut milk and it also contains sago . the dish comes from the visayas region of the philippines .
+bionico , a dessert found in the jalisco region of mexico , has granola in it .
+bionico is a food originates from the guadalajara region of mexico . the main ingredients of the dish are chopped fruits , sour cream , condensed milk , granola , shredded coconut and raisins .
+bionico is a dessert found in mexico , the leader is silvano aureoles conejo and cookies are also a dessert .
+bakso is a food originates from indonesia and contains tapioca . the country ' s leader is jusuf kalla .
+baduy is an ethnic group of java , where the dish ayam penyet can be found . this dish is from the singapore region , where tony tan is a leader .
+batchoy is eaten in the philippines where the spoken language is philippine spanish . the zamboangans and ilocano people are both ethnic groups in the country .
+batchoy is a dish that is found in the philippines , where the igorot people and the zamboangans are ethnic groups and where arabic is one of the languages spoken .
+philippine english is the language spoken in the philippines , where the dish binignit can be found . it should be served as the dessert course . other type of dessert is a cookie .
+sandesh ( confectionery ) and binignit are both dishes served as dessert . the latter dish originates from the philippines where philippine english is spoken .
+
+administrative science quarterly was published by cornell university , located in ithaca , new york , and affiliated with the association of public and land grant universities , as well as with the association of american universities . president of cornell university is elizabeth garrett .
+english is the language spoken in both great britain and the united states . however it is in the us that a loyal character dancer was published by soho press . it is in this country that the ethnic group of african americans can be found .
+english is spoken in great britain but is also the language of the united states where native americans are one of the ethnic groups . the book " a loyal character dancer " was published in the us by soho press .
+a loyal character dancer was published by soho press , which is located in the u . s . where they speak english , same as in great britain and have many asian americans .
+the language of both great britain and the united states is english . it is in the united states , where the capital is washington dc and the ethnic group of native americans are found . the country is also the origin of the book " a severed wasp " .
+
+a severed wasp , published in the united states , is written in the english language , which is also spoken in great britain . the president of the united states , where many asian americans live , is barack obama .
+
+1634 : the ram rebellion is an american novel and is preceded by 1634 : the galileo affair . the capital of the us is washington d . c . and the previous leader was barack obama , one ethnic group in the country is asian american .
+the united states is inhabited by americans including the ethnic group of african americans . the book 1634 the ram rebellion was written in the country which is led by president barack obama and has the capital city of washington dc .
+english is spoken in great britain and the united states where a wizard of mars was published . the leader of the united states is known as the president and there is an ethnic group called asian americans .
+albany is located in the us state of georgia , u . s . with the leader called the president of the united states there are asian americans as well as americans living there .
+the native americans are an ethnic group in the united states where fulton county is found . the county , which is in the state of georgia is the location of alpharetta and has atlanta as its largest city .
+amarillo is part of potter county in texas in the united states whose capital is washington dc and english is the language .
+amarillo , potter county is located in english speaking texas ( united states ) , with its state capital as austin .
+english is spoken in us state of texas , where the capital is austin . texas is home to amarillo , which is part of potter county .
+anderson is part of fall creek township , madison county , indiana in he u . s . anderson is 107 . 43 square kilometres large and has 523 . 9 residents for every square kilometre .
+antioch is in contra costa county which is part of the san francisco bay area , in california , a state where english is spoken . antioch forms california ' s 11th state assembly district .
+atlanta , ( part of dekalb county , georgia ) , covers an area of 344 . 9 ( square kilometres ) and has 1299 people per sq km . it ' s total area is 347 . 1 sq km . the area code for atlanta is 404 .
+attica , located in logan township indiana , is 166 ft above sea level . it has a population density of 783 . 1 , and is 4 . 14 square km .
+auburn is part of lee county , alabama , u . s . washington , d . c . is the capital of the u . s . and african americans are an ethnic group .
+auburn is part of both king county and pierce county in washington which is located in the united states . it has a population density of 914 . 8 inhabitants per sq km and covers a total area of 77 . 41 sq kms .
+austin is located in texas which is where english is spoken . austin is part of williamson county , texas and the largest city is round rock while georgetown is the county seat .
+austin , part of hays county , is located in texas . san marcos is the county seat for hays county . the biggest city in that state is houston and english is spoken there .
+austin is a part of texas , where the largest city is houston and spanish is one of the languages spoken . austin is in hays county , whose county seat is san marcos .
+alexandria is part of madison county , indiana , u . s . indianapolis is the capital of indiana where american english is spoken .
+arlington is part of tarrant county in texas , where houston is the largest city and spanish is spoken . the county seat of tarrant county is fort worth .
+texas , located in the united states , has a capital city of austin . it is also home to arlington ( located in tarrant county ) and fort worth , which is the largest city in texas .
+atlantic city is part of new jersey , u . s . and white americans are an ethnic group . the capital of the united states is washington dc , but the largest city is new york .
+albany , is part of linn county , oregon , in the u . s . , where the capital is washington d . c . the country ' s inhabitants are known as americans , and one of the ethnic groups is native americans .
+albany , oregon is in the united states , whose capital is washington dc and whose inhabitants are americans . asian americans are an ethnic group there .
+angola , is in steuben county , in the united states where english is spoken , the inhabitants are americans , and one of the ethnic groups , is african americans .
+auburn is part of lee county , in alabama , in the united states . this country , has washington d . c . as the capital , and native americans as one of the ethnic groups .
+the native americans are an ethnic group within the united states which is where auburn , alabama is found . it is part of lee county which has the county seat off opelika .
+new jersey is in the united states , where the native americans are an ethnic group . atlantic city , is a part of new jersey , whose largest city is newark and capital is trenton .
+the leader of the united states , which uses the english language , is president barack obama . albuquerque in new mexico is located within the country .
+angola , indiana , is part of steuben county , united states where americans live . the asian americans are an ethnic group of the united states and english is the language spoken .
+akron is in summit county , ohio , in the united states where the capital is washington d . c . the country ' s leader is barack obama , and native americans are one of the ethnic groups .
+the leader of the united states , which includes the ethnic group of african americans among its population of americans , is the president . the country is the location of albany in georgia .
+the 11th mississippi infantry monument is in seminary ridge , gettysburg , pennsylvania , usa . it was established in 2000 and is categorized as a contributing property .
+the 11th mississippi infantry monument , classed as a contributing property , can be found in adams county pennsylvania . adams county , south of cumberland county has carroll county , maryland to the southeast and frederick county , maryland to the southwest .
+dedicated to the ottoman army soldiers killed in the battle of baku and located in baku is the turkish martyrs memorial . baku is the capital of azerbaijan whose prime minister and leader is artur rasizade .
+the turkish martyrs memorial , dedicated to ottoman army soldiers killed in the battle of baku is located in that city , the capital of azerbaijan . the leader of the country , artur rasizade is head of the national assembly .
+president of turkey is the official title of the turkish leader and his name is ahmet davutoglu . turkey ' s capital is ankara and its largest city is istanbul . the atatürk monument is located in izmir , turkey .
+kerala state which has mahe , india to it ' s northwest is also the home of the awh engineering college . the college was established in 2001 in the city of kuttikkattoor and currently has 250 members of staff .
+the acharya institute of technology is located at in soldevanahalli , acharya dr . sarvapalli radhakrishnan road , hessarghatta main road , bangalore – 560090 . the school is affiliated with visvesvaraya technological university and has 700 postgraduate students . dr . g . p . prabhukumar is director of the school .
+b m reddy is the president of the acharya institute of technology in bangalore , india . the institute is affiliated with the visvesvaraya technological university and has 700 postgraduate students .
+the european university association has its headquarters in brussels . the school of business and social sciences at the aarhus university is affiliate d with the european university association and is located in denmark . denmark has a monarchy with its leader being lars løkke rasmussen .
+awh engineering college established in 2001 in kuttikkattoor , india has 250 academic staff . mumbai is the largest city in india .
+
+lars lokke rasmussen is the leader of denmark where the school of business and social sciences at the aarhus university in the city of aarhus is located . the school was established in 1928 and has 737 academic staff members .
+mols is situated to the northeast of aarhus which has the magistrate type of government . the city of aarhus is the location of the school of business and social sciences at the aarhus university which is affiliated with the european university association headquartered in brussels .
+baymax is a character who appeared in big hero 6 starring alan tudyk . it was created by steven t seagle and the american , duncan rouleau .
+the manager of a . c . lumezzane is michele marcolini who has played for f . c . bari 1908 and vicenza calcio . a . c . lumezzane ' s ground is in italy where the leader is pietro grasso .
+
+a . s . gubbio 1910 is in the serie d league in italy . champions of serie d are the s . s . robur siena . sergio mattarella leads italy and italian is the language spoken there .
+gus poyet is the manager of aek athens who play at their home ground of the olympic stadium ( athens ) at marousi . he previously played for chelsea fc and is associated with real zaragoza fc .
+the ground of a . s . gubbio 1910 is located in italy , the capital of which is rome , and the leader ' s name is pietro grasso . the people of italy are italian , as is the language spoken .
+the ground of a . s . gubbio 1910 is located in italy , where the leader is sergio mattarella and italian is the official language . italians are the people who live in italy , where the capital city is rome .
+arem - arem is a food usually served in indonesia which has the rupiah as its currency and the people speak indonesian . its leader is jusuf kalla and although arem - arem - is found nationwide , it ' s more specific to java .
+from the sumatra and malay peninsula regions , asam pedas , is a food found in malaysia . the country where the capital is kuala lumpur and where the malay and malaysian chinese are two of the ethnic groups .
+asam pedas is a food found in malaysia , where the capital is kuala lumpur and ethnic groups include malay and malaysian indian . the dish is also found in the regions of sumatra and the malay peninsula .
+asam pedas , a dish from sumatra , is found in malaysia , where the capital if kuala lumpur and the malaysian malay is an ethnic group along with the malaysian indian .
+asam pedas is from the malay peninsula region of malaysia , the country where abu zahar ujang is leader and where malaysian malay and malaysian indian are ethnic groups .
+the bacon explosion comes from kansas city in the united states . it includes bacon obviously , but also sausage .
+the bacon explosion comes from the united states where english is spoken and the capital is washington d . c . a political leader there is paul ryan and white americans are one ethnic group of the country .
+the bacon sandwich , also known as : bacon butty , bacon sarnie , rasher sandwich , bacon sanger , piece n ' bacon , bacon cob , bacon barm , blt and bacon muffin , is from the united kingdom . it includes bread , bacon and ketchup or brown sauce .
+france , led by gérard larcher and manuel valls , is the home of baked alaska . outside of this french - speaking nation , baked alaska is also popular in hong kong .
+lemon is a member of the family rutaceae and is of the order of rosids . lemon is an ingredient in the dish bandeja paisa , which hails from the antioquia department region of colombia .
+barny cakes , made from sponge cake , come from france where french is the national language and françois hollande and gérard larcher are leaders .
+batagor is a variation of siomay ( which contains peanut sauce ) and shumai . it originates from indonesia where the leader is president joko widodo .
+batagor , shumai and siomay are variations of the same dish . batagor is found in the country of indonesia , which leader is joko widodo . shiitake is an ingredient of shumai .
+batagor comes from indonesia where jusuf kalla is the vice - president . siomay and shumai are variations of the dish and all of them contain shiitake .
+bhajji ( also called bahjo or bajji ) comes from the karnataka region of india . it contains gram flour and vegetables .
+bhajji , from the region of karnataka , originates from india where people are referred to as indians , the leaders are t . s . thakur and vajubhai vala .
+
+bionico is a dessert dish from the guadalajara region of mexico and it contains the main ingredients sour cream , chopped fruits , condensed milk , granola , raisins and shredded coconut .
+
+bionico is a dessert often including honey found in the jalisco region of mexico . the name of the leader in mexico is silvano aureoles conejo .
+arros negre is a spanish dish from the region of catalonia where carles puigdemont is a leader . spaniards are an ethnic group in spain and the leader is felipe vi .
+amatriciana sauce can be found in italy , where the speak italian , the capital is rome and their leaders are matteo renzi and laura boldrini .
+amatriciana is a popular sauce from italy where the capital is rome and the population are known as italians . leaders of the country include sergio mattarella and laura boldrini .
+italy is led by pietro grasso and the language spoken in the country is italian . matteo renzi is a leader from italy which has rome as its capital and where you can find amatriciana sauce .
+
+in singapore , one of the spoken languages is english , a leader is tony tan and ayam penyet is a dish from here . this dish is also found in java where an ethnic group is the javanese people .
+batchoy comes from the philippines , whose ethnic groups include the zamboangans and the chinese filipino , and where arabic and philippine spanish are among the languages spoken .
+the dish ajoblanco originates from spain and more specifically andalusia where susana diaz is the leader . in spain , the language spoken is spanish and an ethnic group are the spaniards .
+some famous spaniards from spain include felipe vi ( leader of spain ) and susana diaz who is the leader of andalusia where ajoblanco comes from .
+alan bean is a retired american , who was born in wheeler , texas . he served as a test pilot and was selected by nasa in 1963 .
+alan shepard was on the crew of apollo 14 , which was operated by nasa . he was born in new hampshire , and was warded the united states navy distinguished service medal , which is higher than the department of commerce gold medal .
+william anders who was originally from british hong kong joined nasa and became a member of apollo 8 along with frank borman who was the commander .
+buzz aldrin was born on 20 january 1930 in glen ridge , new jersey . a us national , he was a fighter pilot before becoming a crew member of apollo 11 .
+buzz aldrin was a united states national . born glen ridge new jersey , who served as a fighter pilot before being a crew member on apollo 11 , program organized by nasa .
+buzz aldrin was born in glen ridge , nj and graduated from mit , sc . d . 1963 . he was a fighter pilot and a crew member on apollo 11 . he is now retired .
+buzz aldrin , born in glen ridge , new jersey , was a crew member on the nasa operated apollo 11 mission ( for which william anders was the backup pilot ) . buzz is now retired .
+buzz aldrin was born on the 20th october 1930 . he was a crew member of apollo 11 , but is now retired . william anders was a backup pilot on the apollo 11 mission , which was operated by nasa .
+alan shepard , crew member of the nasa apollo 14 mission , died in california , the state that is famous for a gemstone called benitoite . dianne feinstein is a senator in california .
+
+william anders , a us national born in british hong kong , retired in 1969 - 09 - 01 . he was a fighter pilot and later served as a crew member of apollo 8 .
+margrethe ii is the leader of denmark where the faroese language is spoken . the country is the location of aarhus airport in tirstrup , part of the central denmark region .
+adolfo suarez madrid - barajas airport is located in madrid , paracuellos de jarama , san sebastian de los reyes and alcobendas at an elevation of 610 . 0 metres above sea level . it is operated by enaire and has a runway name of 14l / 36r with a length of 4100 . 0 .
+agra airport has the icao location identifier of viag and it has a runway length of 1818 . it is located in india at 167 . 94 metres above sea level and is operated by the indian air force .
+the united states air force operates an airbase in iraq called al asad airbase . its icao location id is oraa . its runway " 08 / 26 " is 3990 . 0 in length .
+the united states airport operates the al asad airbase which is located in the al anbar province , iraq . the icao location identifer of al asad airbase is oraa and the length is 3992 . 88m and the runway is known as 08 / 26 .
+al asad airbase is operated by the united states air force which was involved in the 1986 united states bombing of libya . some of the air force ' s aircraft are the lockheed ac - 130 ( an attack aircraft ) , boeing c - 17 globemaster iii ( transport aircraft ) and the general dynamics f - 16 fighting falcon ( aircraft fighter ) .
+the united states air force is the operating organisation for al asad airbase and was involved in battles at the invasion of grenada and operation enduring freedom . the lockheed ac - 130 attack aircraft and the lockheed c - 130 hercules transporter are planes of the usaf .
+the alderney airport serves alderney and its runway name is 08 / 26 . the 1st runway was made of poaceae and it is 733 m long . the airport is 88 meters above sea level .
+allama iqbal international airport in pakistan is governed by the pakistan civil aviation authority and serves the city of lahore . the airport runway is named 18l / 36r and has a length of 3310 .
+allama iqbal international airport is located in punjab , pakistan and governed by the pakistan civil aviation authority & amp ; the name of its runway is " 18r / 36l " and its lentgh is 2900 . the airport serves the whole city of lahore .
+alpena county regional airport , which serves alpena , is found in maple ridge township , alpena county , michigan in the u . s . a . the airport is 210 metres above sea level and a runway that is 1 , 533 in length .
+the city of alpena in michigan is served by alpena county regional airport which is located 210 metres above sea level in maple ridge township , alpena county , michigan . the runway name is 7 / 25 and it has a length of 1533 . 0 .
+the location of alpena county regional airport is wilson township , alpena county , michigan and it serves alpena , michigan . the airport , which lies 210 metres above sea level , has a runway named 1 / 19 / which is 2744 metres long .
+aplena county regional airport , serving alpena , michigan is found in wilson township , aplena county , michigan in the usa . this airport is elevated 210 meters above sea level and it has a runway measuring 1533 . 0 in length .
+angola international airport is located in icolo e bengo and serves the city of luanda . it is situated 159 meters above sea level and has a 3 , 800 kilometers long runway named 05l / 23r .
+the athens international airport serves the city of athens in greece , greek is spoken in greece and the leaders names in greece are alexis tsipras and nikos voutsis .
+athens international airport serves the city of athens , greece where the spoken language is greek . two leaders of greece are alexis tsipras and prokopis pavlopoulos .
+atlantic city in new jersey is led by don guardian and is served by atlantic city international airport at egg harbor township , new jersey , united states .
+antwerp international airport serves the city of antwerp . it is in the country of belgium , where the capital city is brussels . the leaders of belgium are charles michel ad philippe of belgium .
+atlantic city international airport is located in egg harbor township , new jersey in the united states . the airport ' s icao location identifier is kacy .
+adirondack regional airport serves lake placid and saranac lake , new york . saranac lake is part of harrietstown , new york and is located in the united states .
+saranac lake is part of harrietstown and part of essex county , in new york , united states . adirondack regional airport serves both the city of saranac lake and the city of lake placid , new york .
+uttar pradesh is part of awadh and bundelkhand . it is the location of agra airport which is operated by the indian air force who deploy the aircraft capable helicopter known as the hal light combat helicopter .
+agra airport is in uttar pradesh ( part of bundelkhand ) and operated by the indian air force . the hal light combat helicopter is a helicopter used by the indian air force . ram naik is a leader of uttar pradesh .
+the leaders of iraq are halder al - abadi and fuad masum , who speak arabic . in the city of fallujah , iraq , there is the al - taqaddum air base .
+200 public square completed in 1985 is in cleveland ( part of cuyahoga county ) in ohio , u . s .
+
+300 north lasalle is located in chicago ( leader : rahm emanuel ) , which is part of illinois , united states . the capital of illinois is springfield .
+margrethe ii of denmark leads the country where the faroese language is spoken . the marriott international , founded in washington dc , are the current tenants of the ac hotel bella sky in copenhagen .
+bill marriott is the key person of marriott international which was founded in washington dc and is the tenant of the ac hotel bella sky in copenhagen , denmark . one of the languages spoken in the country is greenlandic .
+marriott international , founded in washington dc , is a tenant of ac hotel bella sky located in copenhagen , denmark ( which is led by lars lokke rasmussen and has greenlandic as a spoken language ) .
+adare manor is located in the republic of ireland , whose leader is enda kenny . its architect was augustus pugin , who was born in bloomsbury . another significant building designed by pugin is the palace of westminster .
+the " government of addis ababa " are the current tenants of addis ababa city hall . the building started in 1961 and was completed in 1964 . it has a floor area of 140000 . 0 square metres and is 42 m high .
+the akita museum of art is located in akita , akita , which is part of akita prefecture , japan . the museum has 3 floors and its address is 1 - 4 - 2 nakadori .
+tarō asō is one of the leaders in japan , a country where there is an ethnic group of chinese people . also where the akita museum of art is located , in akita which is part of akita prefecture .
+the college of william and mary is the owner of the alan b . miller hall . which was designed by robert a . m . stern . situated in virginia , it has as its tenants united states based mason school of business .
+amdavad ni gufa is located in ahmedabad , gujarat , india . sumitra mahajan is an indian leader and gujarat is led by the legislative assembly .
+ampara hospital is in the ampara district of eastern province , sri lanka . the leader of eastern province is austin fernando and the leader of sri lanka is ranil wickremesinghe .
+ampara hospital is in the eastern province , sri lanka . the eastern provincial council is the governing body of eastern province . the capital of sri lanka is sri jayawardenepura kotte and the leader of the country is ranil wickremesinghe .
+
+the architect julia morgan was born in san francisco and designed several significant buildings . these included the grounds of asilomar conference , the riverside art museum , hearst castle and asilomar state beach .
+the asser levy public baths are in new york city ( part of manhattan ) in the u . s . new york city is part of new netherland and a leader there is cyrus vance jr .
+103 colmore row was designed by the architect john madin , who was born in birmingham , with the postcode area ' b ' . labour politician , john clancy is the city ' s leader , and the local governing body is birmingham city council .
+the title of the leader of the united states is the president of the united states , and the leader was barack obama . john roberts is a leader in the us . the capital of the us is washington dc , and 250 delaware avenue is located in the us .
+in 2000 the 11th mississippi infantry monument which is categorised as a contributing property , was established . it is located at seminary ridge , adams county , pennsylvania , in the us .
+adams county , pennsylvania is located to the south of cumberland county , pennsylvania , to the east of franklin county , pennsylvania , to the northeast of frederick county , maryland , and to the northwest of carroll county , maryland . the 11th mississippi infantry monument , which is classified as a contributing property , is located in adams county .
+baku turkish martyrs ' memorial ( designed by huseyin butuner and hilmi guner ) is dedicated to the ottoman army soldiers killed in the battle of baku and is made of red granite and white marble . the memorial is located in baku , the capital of azerbaijan . artur rasizade was an azerbaijan leader .
+the turkish leader is artur rasizade . huseyin butuner and hilmi guner designed the red granite and white marble baku turkish martyrs memorial , also known as turk sehitleri aniti , in azerbaijan . the memorial is dedicated to the soldiers who fell in the battle of baku .
+the 14th new jersey volunteer infantry monument is located on the monocacy national battlefield , frederick , maryland . the monument was established in 1907 - 07 - 11 and is categorised as a historic district in the united states .
+alan bean ( born 15th of march 1932 in wheeler , texas ) served as a test pilot . he was in space for 70 days and is now retired .
+alan shepard was born in new hampshire and died in california . he was a crew member of the apollo 14 , which was operated by nasa . the united states navy awarded the distinguished service medal to alan shepard , which ranks higher than department of commerce gold medal .
+alan bean , born alan lavern bean was a crew member aboard nasa ' s apollo 12 . he retired in 1981 . david scott commanded apollo 12 and alfred worden was the backup pilot .
+us national buzz aldrin , a fighter pilot born in glen ridge , nj , graduated from massachusetts institute of technology , sc . d . 1963 and went on to become a crew member on apollo 11 after being recruited by nasa in 1963 .
+buzz aldrin was born january 20 , 1930 in glen ridge , new jersey . he graduated from m . i . t . with a sc . d in 1963 , and served as a crew member aboard nasa ' s apollo 11 , william anders was a backup pilot on the same mission .
+buzz aldrin was originally from glen ridge , new jersey . he worked as a fighter pilot for nasa and became a member of the apollo 11 mission along with william anders as backup pilot .
+
+alan shepard died in california where dianne feinstein is a senator and one can find the gemstone benitoite and fossils of the smilodon . he once received the distinguished service medal from the u . s . navy which ranks higher than department of commerce gold medal .
+american william anders was born in in british hong kong , was a test pilot , graduated from afit , m . s . in 1962 , was a member of apollo 8 ' s crew and retired on 1st september 1969 .
+william anders who is originally from hong kong worked for nasa and became a crew member for apollo 8 along with buzz aldrin and frank borman . he retired on september 1st 1969 .
+william anders who graduated from afit in 1962 worked for nasa and became a crew member of the apollo 8 crew along with frank borman and buzz aldrin as backup pilot . mr anders is now retired .
+the accademia di architettura di mendrisio in mendrisio , ticino switzerland was established in 1996 and currently has 100 staff . the dean of the academy is mario botta .
+the acharya institute of technology in the city of bangalore , kerala , india has 700 postgraduate students and is affiliated to the visvesvaraya technological university and has b m reddy as president . the campus is located at in soldevanahalli , acharya dr . sarvapalli radhakrishnan road , hessarghatta main road , bangalore – 560090 .
+established in 2000 , the acharya institute of technology is in bangalore , india . the institute ' s president is b . m . reddy and it is affiliated with the visvesvaraya technological university . the campus is located in soldevanahalli , acharya dr . sarvapalli radhakrishnan road , hessarghatta main road , bangalore – 560090 .
+
+the school of business and social sciences at the aarhus university ( dean thomas pallesen ) is located in the city of aarhus , denmark and is affiliated with the european university association which has its headquarters in brussels . denmark ' s leader is lars løkke rasmussen .
+the river ganges flows through india where the largest city is mumbai . the awh engineering college was established in 2001 in the state of kerala which is led by kochi .
+1 decembrie 1918 university is in romania which is led by klaus iohannis and has bucharest as its capital . roman ' s anthem is deșteaptă - te , române , its patron saint is andrew the apostle and its ethnic group are the germans of romania .
+denmark , which is led by lars lokke rasmussen is the location of the school of business and social sciences at the aarhus university in the city of aarhus . the school was established in 1928 and has 16000 students and an academic staff of 737 .
+the atatürk monument is a bronze monument inaugurated on 27th july , 1932 , in izmir . it is found in turkey , a country which has ankara as its capital and istanbul as its largest city . the leader of turkey is called ahmet davutoğlu , and the currency is the turkish lira .
+president ahmet davutoglu is the turkish leader where the capital city is ankara . the bronze ataturk monument which was designed by pietro canonica is located in izmir and was inaugurated on 27 july 1932 .
+president ahmet davutoglu is the leader of turkey which has the currency of the turkish lira . the capital city is ankara although the largest city is istanbul . the ataturk monument was inaugurated on 27 july 1932 and is located in izmir .
+the accademia di architettura di mendrisio is located in mendrisio , switzerland . it was established in 1996 and its dean is mario botta . it has 100 academic staff and 600 students . switzerland ' s leader is the federal chancellor .
+the acharya institute of technology whose motto is " nurturing excellence " was established in 2000 in bangalore , karnataka in india . it ' s president is b . m . reddy and director is dr . g . p . prabhukumar .
+the acharya institute of technology is in karnataka , which is southwest of telangana and east of the arabian sea . the institute offers tennis courses and is governed by the international tennis federation and was given the ' technical campus ' status by the all india council for technical education in mumbai .
+the 1 decembrie 1918 university is in the city alba iulia in romania . klaus iohannis the leader of romania and they also have a prime minister . the germans of romania are the main ethnic group in romania and the capital is bucharest . the romania anthem is deșteaptă - te , române !
+established in 1928 , the school of business and social sciences at the aarhus university in aarus , denmark has a staff of 737 and is affiliated with the european university association . the dean is thomas pallesen . denmark ' s leader is lars løkke rasmussen .
+the school of business and social sciences at the aarhus university in aarhus , denmark is affiliated with the european university association in brussels . denmark has a monarchy and a magistrate government . its leader is lars lokke rasmussen .
+
+alan bean is an american born on march 15 , 1932 in wheeler , texas . he graduated from ut austin in 1955 with a bsc . bean was a test pilot and a member of apollo 12 . he is retired .
+alan shepard , born on november 18 , 1923 , graduated from nwc in 1957 with an m . a . alan shepard served as a test pilot , and was selected by nasa in 1959 . alan shepard , born in new hampshire , died in california , .
+alan bean is a us national , who was born in wheeler , texas . he was a test pilot and part of the crew of the nasa operated apollo 12 . apollo 12 was commanded by david scott , and had alfred worden as a backup pilot .
+edwin e . aldrin , jr . was better known as buzz aldrin , a fighter pilot and member of apollo 11 after nasa picked him for the space program in 1963 . aldrin was born on january 20th , 1930 in glen ridge , new jersey and a graduate of mit ' s sc . d . program in 1963 .
+buzz aldrin was an american , who was born in glen ridge , new jersey on the 20th january , 1930 . he graduated from mit with an sc . d in 1963 . he was a fighter pilot and member of the apollo 11 crew . he walked in space for 52 minutes .
+buzz aldrin is a us national born on 1930 01 20 in glen ridge , new jersey . he graduated in 1963 from mit with a sc . d , was a member of the apollo 11 crew and has won 20 awards . buzz aldrin is now retired .
+buzz aldrin , a us national , has retired . he was born on 20 january 1930 in glen ridge , new jersey . he was selected by nasa in 1963 to serve as crew member on the apollo 11 program .
+buzz aldrin was born in glen ridge , new jersey . he graduated from mit in 1963 with a sc . d . he is an american who was a crew member on nasa operated apollo 11 . he is now retired . apollo 11 ' s back up pilot was william anders .
+william anders is an american who was born in british hong kong on october 17th 1933 . he was a fighter pilot and crewed apollo 8 . he retired on the 1st september 1969 .
+william anders was born in british hong kong but is an american . he was a member of apollo 8 which is operated by nasa . his backup pilot was buzz aldrin . anders retired in 1960 - 09 - 01 .
+william anders was born in british hong kong on october 17th , 1933 . he served as a fighter pilot . he joined nasa in 1963 and was a crew member on apollo 8 . he retired on the 1st september 1969 , having spent 8820 minutes in space .
+aaron s . daggett was awarded the purple heart .
+aaron s . daggett fought in the battle of mine run .
+ab klink was born in stellendam , netherlands .
+abdul rahman ya ' kub was in office whilst tuanku bujang tuanku othman was vice president .
+abdul taib mahmud is a member of the parti bumiputera sarawak party .
+abdul taib mahmud was succeded by sulaiman abdul rahman taib .
+
+minna was the birthplace of abdulsalami abubakar .
+abdulsalami abubakar was born in niger state .
+
+abner w . sibal died in alexandria , virginia .
+
+adam holloway resided in gravesend .
+adenan satem ' s alma mater is the university of adelaide .
+adolf schärf was born in mikulov .
+adonis georgiadis was in office under antonis samaras , prime minister .
+adonis georgiadis was the deputy minister for development , competitiveness and shipping .
+
+agnes ward white was born in marietta , ohio .
+
+
+airey neave was born in knightsbridge , london .
+airey neave was a lieutenant colonel .
+airey neave started serving in military in 1935 .
+albert b . white is a member of the republican party in the united states .
+albert b . white is married to agnes ward white .
+albert jennings fountain was a member of the union army .
+alberto teisaire is argentinian .
+alberto teisaire was rear admiral in the argentine navy .
+alfons gorbach died in austria .
+
+alfred moore scales fought in the battle of chancellorsville .
+alfred n . phillips place of birth was darien connecticut .
+alfred n . phillips was the mayor of stamford connecticut .
+
+
+allan shivers was succeeded by price daniel .
+alvah sabin started active service on 1853 - 03 - 04 .
+alvah sabin belongs to the whig party ( united states ) .
+robert e . lee was a commander in the american civil war .
+the language in austria is austrian german .
+robert e . lee was a commander in the battle of antietam .
+
+the leader of buenos aires is called gabriela michetti .
+colin powell was the commander in the gulf war .
+dwight d . eisenhower preceded john f . kennedy as president .
+josef klaus alma mater is the university of vienna .
+the predecessor of juan carlos i f spain was francisco franco .
+juan peron belongs to the labour party in argentina .
+
+
+bloomington , maryland was the birthplace of william m o dawson .
+the 1955 dodge is also named the dodge coronet .
+the size of the engine in the 1955 dodge is 230 cubic inches .
+the a - rosa luna was " christened " on the 7th april 2005 .
+aida cruises are located at rostock .
+the aidaluna is operated by aida cruises .
+the aidastella was christened in march 16 2013 .
+the aidastella was completed on the 11th march 2013 .
+the ship aidastella had her maiden voyage on march 17th 2013 .
+the operator of aidastella is aida cruises .
+the launch site of the alv x - 1 was the mid - atlantic regional spaceport .
+amc matador is also known as american motors matador .
+the ara veinticinco de mayo ( v - 2 ) was sold to the netherlands on 01 / 04 / 1948 .
+the abarth 1000 gt coupe has the straight four engine .
+
+
+
+the acura tlx has a 9 - speed zf 9hp automatic ( v6 ) transmission .
+
+the related transport to the alfa romeo 164 is the lancia thema .
+
+the samuda brothers built the alhambra .
+the alhambra has a ship beam of 8 . 3m .
+
+the alhambra has a top speed of 18 . 52 .
+
+the alvis speed 25 was first manufactured in 1937 .
+the american submarine nr - 1 has a ship draft of 4 . 6 metres .
+the final flight of the antares rocket was on 2014 - 10 - 28 .
+the launch site of the antares rocket was the mid - atlantic regional spaceport launch pad 0 .
+
+the ariane 5 was launched from the guiana space centre .
+ariane 5 had its maiden flight on august 11th 2005 .
+
+the aston martin made the aston martin v8 .
+aston martin are the manufacturers of the aston martin virage .
+the final flight of atlas ii was on 1998 - 03 - 16 .
+the atlas ii was launched from vandenberg air force base .
+august horch founded audi .
+the audi a1 is assembled at audi brussels .
+the audi a1 and the seat ibiza are similar means of transport .
+caterpillar inc . is in peoria , illinois .
+costa crociere is in genoa .
+desoto custom is a related means of transport to chrysler newport .
+
+germans is the demonym for people who live in germany .
+the leader of germany is norbert lammert .
+stanislaw tillich is a leader of germany .
+
+the guiana space centre ' s headquarters are located in kourou , french guiana .
+honda are the makers of the honda k engine .
+the anthem of the united states is the star spangled banner .
+the united states has an ethnic group called native americans .
+silvio berlusconi is the chiarman of a . c . milan .
+aaron boogaard was born in canada .
+aaron hunt plays for sv werder bremen .
+abel hernandez played for the uruguay olympic football team .
+abel hernandez plays for the uruguay national football team .
+abner ( a footballer ) was born in brazil .
+diemen is the birth place of adam maher .
+
+adam maher plays for the netherlands national club for players under 17 .
+
+ahmad kadhim assad represented the iraq national football team .
+akeem adams ' birthplace is point fortin .
+akeem dent used to play for the atlanta falcons .
+akeem priestley plays for the connecticut huskies .
+al - khor sports club play in the qatar stars league .
+basim qasim manages al - zawra ' a sc .
+
+baghdad is the birth place of alaa abdul - zahra .
+alaa abdul zahra plays for sanat mes kerman fc .
+alan martin is a footballer for the hamilton academical fc .
+alan martin played football for the scotland national under 19 team .
+aleksander barkov jr . was born on the 2nd september 1995 .
+aleksander barkov , jr ' s club is the florida panthers .
+aleksander barkov , jr ' s height is 1 . 905 metres .
+aleksander barkov jr . plays in the national hockey league .
+aleksandr prudnikov was born on 24th february 1989 .
+aleksandr prudnikov plays for the fc amkar perm football club .
+aleksandre guruli ' s birth place is batumi .
+aleksandre guruli ' s club is fc samtredia .
+aleksandre guruli once played for the georgia national under - 21 football team .
+alessio romagnoli is a member of a . s . roma .
+alessio romagnoli plays for a . s . roma ' s youth team .
+alex plante ' s birthplace is manitoba .
+alex tyus plays in the turkish basketball super league .
+atlanta falcons play in the city of atlanta .
+don sweeney is general manager of the boston bruins .
+
+english language is spoken in canada .
+canada ' s language is the slavey language .
+the columbus blue jackets are based in the city of columbus , ohio .
+the manager of fc karpaty lviv is oleh luzhny .
+
+gabor kubatov is the chairman of ferencvarosi tc .
+the finnish language is spoken in finland .
+daniele zoratto is coach of the italy national under 16 football team .
+the coach of maccabi ashdod b . c . is zvi sherf .
+motherwell f . c . play their home games at fir park .
+jean - michel aulas is the owner of the olympique lyonnais .
+american football team , st . louis rams , are based in the city of st . louis .
+the tennessee titans are based in the city of nashville , tennessee .
+
+aaron deer plays with the horns of happiness .
+aaron deer is signed to the record label kill rock stars .
+aaron turner performs avant - garde metal music .
+aaron turner performs progressive metal music .
+abradab ' s background is that of solo singer .
+the birth date of abradab is 12th november 1978 .
+abradab was born in poland .
+abradab performs hip hop music .
+the genre guarania , is the musical genre that agustin barboza is involved in .
+
+alan frews ' musical genre is rock music .
+
+a solo singer is part of aleksandra kovač ' s background , .
+the birth place of aleksandra kovac is yugoslavia .
+aleksandra kovac ' s genre is rhythm and blues .
+aleksandra kovač performs soul music .
+alex day performs synthpop music .
+alfredo zitarrosa is associated with hector numa moraes .
+the birth place of alfredo zitarrosa is montevideo .
+
+alfredo zitarrosa ' s record label is rca records .
+1963 was the beginning of alison o ' donnell ' s active years .
+alison o ' donnell performs jazz music .
+alison o ' donnell is a musician who uses her voice , bodhran , percussion and autoharp .
+allen forrest ' s birth date is 04th february 1981 .
+allen forrest was a pop artist .
+alligator records is based in chicago .
+anders osborne and johnny sansone are associates .
+rhythm and blues is the musical genre of anders osborne .
+anders osborne is signed to the record label alligator records .
+andra performs rhythm and blues music .
+andrew rayel started his career in 2009 .
+the musicians andrew rayel and christian burns are associates .
+andrew rayel was born in chisinau , moldova .
+andrew white is associated with the musical artist marry banilow .
+the musician andrew white is signed to the record label b - unique records .
+asunción is part of gran asunción .
+christian burns plays guitar .
+gangsta rap is a sub genre of hip hop music .
+hip hop music has its origins in funk .
+indie rock has its origins in new wave music .
+manchester is a part of greater manchester .
+polydor records is located in london .
+rca records distribute through sony music entertainment .
+rock and roll has its stylistic origin in the blues .
+synthpop ' s stylistic origins come from pop music .
+the native people of the united kingdom are known as the british people .
+the celestial body known as ( 19255 ) 1994 vk8 has a density of 2 grams per cubic centimetres .
+carl a wirtanen discovered ( 29075 ) 1950 da .
+the absolute magnitude of ( 410777 ) 2009 fd is 22 . 1 .
+the apoapsis of ( 410777 ) 2009 fd is 259776702 . 47055 kilometers .
+the apoapsis for ( 66063 ) 1998 ro1 is 254989570 . 60815 kilometres .
+( 66063 ) 1998 ro1 has an epoch date of 2013 - 11 - 04 .
+the escape velocity of 1000 piazzia is 0 . 0252 km / sec .
+the former name of 1001 gaussia is " 1923 oaa907 xc " .
+the celestial body known as 1001 gaussia has a maximum temperature of 165 kelvins .
+101 helena has an apoapsis of 441092000 . 0 kilometres .
+101 helena has an epoch of 2006 - 12 - 31 .
+101 helena has a mass of 3 . 0 kilograms .
+1036 ganymed travels at an average speed of 16 . 86 kilometres per second .
+the celestial body known as 103 hera has an absolute magnitude of 7 . 66 .
+103 hera has a mass of 7 . 9 kilograms .
+the absolute magnitude of 107 camilla is 7 . 08 .
+a storrs discovered 107 camilla .
+1089 tama was formerly called " a894 va ; a904 vd ; " .
+
+the celestial body known as 1097 vicia has an average speed of 17 . 92 k . p . s .
+the epoch date of 1097 vicia is 2006 . 12 . 31 .
+1097 vicia has a rotation period of 95040 . 0 .
+109 felicitas was discovered by christian heinrich friedrich peters .
+the periapsis of 109 felicitas is 283326000000 . 0 .
+10 hygiea has an average speed of 16 . 76 kilometres per second .
+1101 clematis has a periapsis of 445895000000 . 0 .
+31 december 2006 is the epoch of 110 lydia .
+11264 claudiomaccone has a temperature of 173 . 0 kelvins .
+james craig watson ' s alma mater is the university of michigan .
+n . r . pogson was born in nottingham .
+aaron s daggett , fought in battles , most notably the battle of fredericksburg , he was awarded the purple heart .
+aaron s . daggett fought in the battle of gettysburg and was awarded the purple heart .
+abdul rahman ya ' kub , who succeeded abdul taib mahmud , has a deputy named stephen yong kuet tze .
+abdul taib mahmud was born in the kingdom of sarawak and his party is the parti pesaka bumiputera bersatu .
+abdulsalami abubakar was born in minna and he attended the technical institute kaduna .
+abdulsalami abubakar , who was born in niger state , was the chief of the defence staff in nigeria .
+abdulsalami abubakar was the chief of the defence staff in nigeria and he was succeeded by al - amin daggash .
+abdulsalami abubakar ended his career on 1999 - 05 - 29 and was succeeded by olusegun obasanjo .
+abdulsalami abubakar , who was succeeded by olusegun obasanjo . was in office while mike akhigbe was vice president .
+abner w . sibal fought in world war ii and the commander of russian during that war was joseph stalin .
+abner w . sibal served in the united states army , which fought in the korean war .
+adam holloway was born in kent and attended magdalene college in cambridge .
+adam holloway was born in kent and lives in gravesend .
+adam koc fought in wwi and he was awarded the virtuti militari award .
+adonis georgiadis was born in athens and worked as the deputy parliamentary spokesman for the popular orthodox rally .
+adonis georgiadis was born in athens , in greece .
+greek born adonis georgiadis he has worked as the deputy parliamentary spokesman of popular orthodox rally .
+agnes kant was born in hessisch oldendorf and was employed as a parliamentary group leader .
+airey neave received the military cross and served in the royal artillery .
+airey neave , began his career on march 4th 1974 , and fought in the battle of france .
+airey neave fought in the battle of france , the battle where hugo sperrle was the commander .
+born in kinightsbridge , airey neave fought in world war ii .
+franklin d roosevelt was a commander in world war ii , in which airey neave fought .
+joseph stalin was a commander in world war ii , the war airey neave was involved in .
+albert b white was born 1856 - 09 - 22 and died in 1941 .
+albert b white , born on 22nd september 1856 , profession was politician .
+born in new york city , albert jennings fountain , died in dona ana county , new mexico .
+albert jennings fountain , who died in the new mexico territory , was in office whilst edmund j . davis was vice president .
+albert jennings fountain was born in new york and is a member of the republican party .
+alberto teisaire worked as a provisional president of the argentine senate and was succeeded by isaac rojas .
+alfons gorbach was born in austria and austria - hungary .
+alfons gorbach was born in tyrol state in austria .
+alfred moore scales , was governor of north carolina , and was succeeded by the politician james w reid .
+daniel gould fowle , attended princeton university , and suceeded alfred moore scales .
+alfred n . phillips was born in connecticut and worked at the united states house of representatives .
+alfred n . phillip was a member of the us army that fought in the american civil war .
+allan shivers fought in world war ii where joseph stalin was also a commander .
+allan shivers who worked as a member of the texas state senate from district 4 ( port arthur ) , was born in lufkin , texas .
+allan shivers worked as a member of the texas state senate from district 4 ( port arthur ) he was succeed by ben ramsey .
+alvah sabin was born october 23 , 1793 . he worked as secretary of vermont .
+agnes kant is a resident of netherlands which uses the euro as its currency . .
+agnes kant is from the netherlands , the leader of which , is mark rutte .
+albert b white died at parkersburg , west virginia , in the united states .
+aaron boogaard was born in saskatchewan and plays for wichita thunder .
+abel hernandez has played for the club peñarol which is managed by jorge orosmán da silva .
+abel hernandez ' s club is us citta di palermo and penarol .
+az alkmaar player adam maher represented the netherlands national side at under 17 level .
+adam maher played for psv eindhoven and represented the netherlands under 17 football team .
+ahmad kadhim assad played for both steel azin f . c . and al shorta sc .
+akeem adams club is ferencvarosi tc , where the manager is thomas doll .
+akeem adams , who plays for the trinidad and tobago national football team formerly played for the t & amp ; tec sports club .
+akeem ayers draft pick is 39 ad his former team is the new england patriots .
+akeem ayers used to play for tennessee titans and he was number 39 in the draft pick .
+akeem dent date of birth is the 27th september 1987 .
+akeem priestley plays for the connecticut huskies , having previously played for sheikh russel kc .
+akeem priestley plays for sheikh russel kc and formerly for rops .
+alaa abdul - zahra has played for al - khor sports club , located in al - khor .
+alaa abdul zahra plays for al kharaitiyat sc managed by amar osim .
+alan martin plays football for hamilton academical f . c and leeds united f . c .
+hamilton academical fc ' s ground is new douglas park and is the club of alan martin .
+aleksander barkov jr . was born on the 2nd september 1995 and plays for the florida panthers .
+aleksander barkov jr was born in tampere finland and plays for the florida panthers .
+fc torpedo moscow , managed by valery petrakov , is a former club of aleksandr chumakov .
+former clubs of aleksandr prudnikov include fc spartak moscow and fc kuban krasnodar .
+aleksandr prudnikov plays for fc tom tomsk which plays in the russian football national league .
+aleksandre guruli ' s club is fc karpaty lviv and he also played for fc dinamo batumi .
+alex plante was born in manitoba in 1989 .
+born on january 8th 1988 , alex tyus plays for the club pallacanestro cantu .
+alex tyus has played in the turkish basketball super league and has also represented the club maccabi tel aviv bc .
+the conservative party of canada is the leader of brandon , manitoba , where alex plante was born .
+adam mcquaid came from canada whose anthem is o canada .
+the english language is spoken in canada which is the birthplace of adam mcquaid .
+aleksandre guruli plays for fc dinamo batumi managed by levan khomeriki .
+aleksandr prudnikov plays for fc spartak moscow at the otkrytiye arena .
+akeem priestley plays for the club rops in the veikkausliiga league .
+akeem adams played for united petrotrin fc , who were playing in palo seco velodrome .
+aaron deer plays the guitar and performs psychedelia music .
+aaron deer is from the united states , specifically indiana .
+aaron turner performs electroacoustic music and he played with the band twilight .
+aaron turner is an avant - garde metal music singer .
+abradab played with the band kaliber 44 and is associated with the rapper magik .
+abradab was born in katowice on 12th november 1978 .
+the birth place of abradab is poland , in katowice .
+the musical genre of ace wilder is hip hop music which has its origins in disco .
+ace wilder is a solo singer who uses the record label warner music group .
+paraguay born agustin barboza is signed to philips records .
+alan frew ' s genre is rock music of which bhangra is a fusion of rock .
+alan frews ' musical genre is rock music , which originated from country music .
+albennie jones plays jazz , which originated from blues music .
+with a background in solo singing , aleksandra kovač , belongs to the musical genre of pop .
+aleksandra kovac is an exponent of rhythm and blues , the music that originated from the blues .
+aleksandra kovač began her musical career in 1990 , she performs soul music .
+alex day performs synthpop music which has its stylistic origin in new wave music .
+alfred garth jones was born in england in 1872 .
+solo singer alfredo zitarrosa is a milonga stylist .
+alfredo zitarrosa started out as a solo singer and is an exponent of taquirari .
+born in uruguay , alfredo zitarrosa died in montevideo .
+
+alfredo zitarrosa has a background as a solo singer and performs zamba music .
+alison o ' donnell was with the bands bajik and plastik mak .
+alison o ' donnell ' s musical genre is folk rock and her recording label is floating world records .
+alison o ' donnell performs jazz music , she plays the bodhran , perscussion , and autoharp in addition to singing .
+allen forrest is a solo singer whose genre is hip hop music .
+the musician andrew white ' s genre is alternative rock which has the subgenre of christian alternative rock .
+anders osborne is associated with phil lesh and friends as well as tab benoit .
+anders osborne genre is rhythm and blues and his record label is rabadash records .
+anders osborne performs rhythm and blues music and is signed to shanachie records .
+andra is a pop singer who started in 2000 .
+andra performs rhythm and blues music , a style that originated from blues .
+andrew rayel is associated with christian burns and the musical artist jonathan mendelsohn .
+andrew rayel has worked musically with jonathan mendelsohn and mark sixma .
+andrew rayel is associated with the musician jwaydan moyine and the musical artist armin van buuren .
+new wave music is the origin of alternative rock , which is the genre of andrew white .
+al anderson of nrbq performs country music which is a genre of music which uses the banjo .
+andrew white is a musician signed to the record label polydor records which is located in london .
+( 19255 ) 1994 vk8 has an apoapsis of 6603633000 . 0 km and an escape velocity of 0 . 0925 km per sec .
+
+
+the escape velocity of ( 66063 ) 1998 r01 is 0 . 0999 km / sec and its epoch is on the 13th of january 2016 .
+( 66391 ) 1999 kw4 has an orbital period of 16244700 . 0 and an epoch date of 2004 - 07 . 14 .
+the epoch date for 66391 1999 kw4 is 2004 - 07 . 14 and it has a rotation period of 9953 . 28 .
+james craig watson who discovered 101 helena died of peritonitis .
+the apoapsis measurement of the celestial boy known as 1036 ganymed is 611961000 . 0 ( kilometres ) and it has an average speed of 16 . 86 km per sec .
+walter baade , who was born in the german empire , discovered 1036 ganymed .
+1036 ganymed was discovered by walter baade , a german national .
+103 hera was discovered by james craig watson , who later died from peritonitis .
+103 hera was discovered by the canadian james craig watson .
+born in nottingham , n . r . pogson , discovered 107 camilla .
+1089 tama , with the epoch date of november 26th 2005 , was formerly called " a919 ha ; 1927 wb ; " .
+the temperature of 1089 tama is 179 . 0 ( kelvins ) and its apoapsis is 373513000 . 0 ( kilometres ) .
+1097 vicia has a periapsis of 279142000000 and an epoch date of 31st december 2006 .
+the temperature of the asteroid called 109 felicitas is 170 . 0 kelvins and it has an apoapsis of 523329000 . 0 km .
+the epoch date of 109 felicitas is the 31st december 2006 , and it has a periapsis of 283326000000 . 0 .
+the celestial body known as 109 felicitas has a rotation period of 47487 . 6 and an epoch date of december 31st 2006 .
+10 hygiea has an apoapsis of 523951582 . 33968 ( kilometres ) and a temperature of 164 kelvins .
+10 hygiea has an epoch date of june 27th 2015 and was formerly named a900ga .
+110 lydia , with a mass of 6 . 7 kilograms , has the epoch date 31st december 2006 .
+the celestial body known as 110 lydia has an orbital period of 142603000 and an epoch date of 31 december 2006 .
+the a - rosa luna which is 125 . 8 metres long , is classed as a cruise ship .
+the a - rosa luna ship which is 125800 . 0 millimetres in length , was ordered on january 22nd 2004 .
+aida cruises is located in germany and is operated by aidastella .
+aida cruises , located in rostock , are the operator of the ship aidaluna .
+the aidaluna has a top speed of 40 . 744 and it 252 metres long .
+the aidastella was christened on the 16th of march , 2013 and is 253260 . 0 millimetres long .
+the diesel - electric transmission alco rs - 3 was built by the montreal locomotive works .
+the alv x - 1 rocket has 2 stages and a diameter of 1 . 524 metres .
+the amc matador is available in a 1974 model and was assembled in kenosha , wisconsin .
+richard a . teague is the chrysler employee who designed the amc matador .
+the ara veinticinco de mayo ( v - 2 ) which is derived from argentina has a length of 192000 millimetres .
+the alfa romeo 164 , assembled in milan , is a similar means of transport to the saab 9000 .
+the alfa romeo 164 was assembled in italy and is a similar means of transport to the , fiat croma .
+alfa romeo 164 is a related transport to lancia thema and is assembled in italy .
+the alvis speed 25 was made by coventry based alvis car and engineering company .
+the alvis speed 25 has an engine of 4387 cubic centimeters and a transmission system comprising a single plate clutch , separate 4 - speed gearbox all - silent and all - syncromesh , centre change lever , open tubular propellor shaft with metal joints and spiral bevel fully floating back axle .
+alvis speed 25 has a straight - six engine and has a transmission system comprising a single plate clutch , separate 4 - speed gearbox all - silent and all - syncromesh , centre change lever , open tubular propellor shaft with metal joints and spiral bevel fully floating back axle .
+the amc matador is made by american motors who were succeeded by eagle .
+the antares rocket had its maiden flight on january 9th 2014 and was launched from the mid - atlantic regional spaceport .
+the ara veinticinco de mayo ( v - 2 ) comes from argentina which is led by gabriela michetti .
+the ariane 5 which was launched at the ela - 3 , was manufactured by airbus defence and space .
+the airbus group is the parent company of airbus defence and space who manufactured the ariane 5 .
+aston martin v8 was made in the uk . the aston martin v8 is connected to the aston martin rham / 1 .
+the aston martin v8 was manufactured by aston martin and was succeeded by the aston martin virage .
+the aston martin v8 ( which was succeeded by the aston martin virage ) and the aston martin dbs are a related means of transport .
+aston martin virage succeeded the aston martin v8 and is manufactured by aston martin .
+the final flight of atlas ii , which has a diameter of 3 . 04m , was on 16 march 1998 .
+the atlas ii , manufactured by lockheed martin , was launched from cape canaveral air force station .
+audi which is the manufacturer of the audi a1 has a division called the audi e - tron .
+the audi a1 is made by audi who also own ducati .
+the quattro gmbh is a subsidiary of the audi who manufacture the audi a1 .
+the power type of the aidaluna is an engine manufactured by caterpillar inc where douglas r oberhelman is a key person .
+the rocket antares is comparable to the delta ii which was launched from the vandenberg air force base .
+the icebreaker , the aleksey chirikov , is built by finland , where the leader is juha sipila .
+general dynamics is the parent company of the general dynamics electric boat co which built the american submarine nr - 1 .
+the a - rosa luna is powered by the rolls - royce holdings owned , mtu friedrichshafen , made engines .
+aston martin v8 was assembled in the united kingdom which is ruled by queen elizabeth ii .
+born in maine , purple heart recipient , aaron s daggett has fought in battles , the most notable being the battle of fredericksburg .
+born in the netherlands , ab klink attended erasmus university rotterdam and belongs to the christian democratic appeal party .
+abdul taib mahmud ' s birthplace was kingdom of sarawak and he was succeeded by abdul rahman ya ' kub whose deputy was stephen yong kuet tze .
+abdul taib mahmud was born and lives in the kingdom of sarawak and is a member of the " barisan ra ' ayat jati sarawak " party .
+abdulsalami abubakar was born in niger state , graduated from the technical institute in kaduna and became the chief of the defence staff in nigeria .
+nigerian air force member abdulsalami akubar was succeeded by olusegun obasanjo who was in office whilst atiku akubakar was vice president .
+olusegun obasanjo , who was in office while atiku abubakar was vice president , succeeded nigerian army man abdulsalami abubakar .
+abel caballero , born in ponteareas , galicia , spain , worked as a member of the congress of deputies .
+abel caballero was born in galicia in spain and is a member of the spanish socialist workers ' party .
+abner w . sibal served in the united states army and fought in wwii . joseph stalin was a commander in that war .
+born in ridgewood , queens , abner w . sibal , was a member of both the connecticut senate from the 26th district , and the republican party of the united states .
+during the gulf war george h w bush was a commander and adam holloway was involved in the battles whilst serving in the grenadier guards .
+magdalene college cambridge , was the alma mater of adam holloway , who was born in faversham , and is a member of the tories .
+leon trotsky was a commander in the polish soviet war in which adam koc was also involved . koc was born in congress , poland .
+leon trotsky was a commander in the polish - soviet war , part of the russian civil war military conflict in which adam koc was involved .
+born in athens , greece , adonis georgiadis , worked as the deputy parliamentary spokesman of popular orthodox rally .
+adonis georgiadis , born in athens , greece , worked as the minister for health .
+adonis georgiadis was a member of the new democracy party in greece whose color is blue . mr . georgiadis was in office while antonis samaras was prime minister .
+agnes kant is a national of the netherlands and worked at the house of representatives , where the leader is mark rutte .
+agnes kant is a member of the socialist party in the netherlands whose leader is mark rutte .
+agnes kant was born in west germany . she was a member of the house of representatives and her alma mater was radboud university in nijmegen .
+airey neave participated in world war ii and his career lasted from 30 june 1953 to 30 march 1979 .
+airey neave , began his career on march 4th 1974 , fought in world war ii and ended his career on 30th march 1979 .
+born on 22nd september 1856 , albert b white , died on the 3rd july 1941 .
+william m . o . dawson succeeded albert b . white , whose spouse was agnes ward white , who was born in marietta , ohio .
+albert jennings fountain was born in staten island and he died in the u . s . african americans live in the united states .
+albert jennings fountain was born in staten island , new york city and died in new mexico territory .
+albert jennings fountain was born in staten island , new york and also died in the us .
+alberto teisaire died in buenos aires , the country which is governed by the buenos aires city legislature and the leader is , horacio rodríguez larreta .
+alberto teisaire was born in mendoza in argentina and was a rear admiral who was succeeded by isaac rojas .
+alfons gorbach was born in the county of tyrol in austria and later died in graz .
+alfred n . phillips was a member of the u . s . house of representatives from connecticut ' s 4th district who was born in connecticut and succeeded by albert e austin .
+born in darien connecticut , alfred n phillips , worked as member of the u . s . house of representatives from connecticut ' s 4th district and was succeeded by , albert e . austin .
+allan shivers served in the u . s . democratic party , was a member of the texas state senate district 4 for port arthur and was succeeded by wilfred r . cousins , jr .
+alvah sabin , who retired on 3rd march 1857 , represented vermont , where the largest city is burlington .
+alvah sabin , who was born on october 23rd , 1793 , was a member of the whig party of the united states which was led by henry clay .
+alvah sabin was born in georgia vermont and became a member of the whig party of the united states which is led by daniel webster .
+abraham lincoln was a commander in the american civil war , where us born albert jennings fountain fought .
+alfred moore scales was in the american civil war , battle of fredericksburg . jefferson davis was an american civil war commander .
+alfons gorbach , was born in the county of tyrol and died in austria , the leader of which , is doris bures .
+alfons gorbach was born in the state of tyrol and died in austria , where the leader is doris bures .
+doris bures is the leader of austria where alfons gorbach died in styria .
+robert e lee was a commander in the battle of salem church , which was one of the military conflicts in the american civil war . aaron s daggett fought in the same battle .
+born in stellendam , ab klink is a national of the netherlands where the euro is the currency .
+the polish language is used in poland , where adam koc was from . poland has an ethnic group called kashubians .
+19255 1994 vk8 has a mass of 5 . 6kg and an escape velocity of 0 . 0925 kilometres per second . its apoapsis is 6603633000 . 0 km .
+( 410777 ) 2009 fd , which was discovered by spacewatch , has an orbital period of 39447000 . 0 and a periapsis of 88234300000 . 0 .
+with an apoapsis of 254989570 . 60815 kilometres , ( 66063 ) 1998 ro1 , has a minimum temperature of - 71 . 0 degrees celsius and a maximum temperature of 500 . 0 kelvins .
+having a density of 2 . 0 gm per cu cm , ( 66391 ) 1999 kw4 , has an apoapsis of 162164091 . 8388 kilometres , an the average speed of 37 . 16 km per sec .
+
+1001 gaussia , which was formerly called " 1923 oaa907 xc " , has an epoch date of 31 july 2016 and a periapsis of 419113394 . 55312 kilometres .
+101 helena ; has a mass of 3 . 0 kgs , an escape velocity of 0 . 0348 kilometres per second , and an apoapsis of 441092000 . 0 kilometres .
+walter baade , a german national who graduated from the university of gottingen , discovered 1036 ganymed .
+james craig watson was the discoverer of 103 hera , the epoch of which is on the 31st of july 2016 . he died in madison , wisconsin .
+103 hera was discovered by james craig watson . he died in madison , wisconsin of peritonitis .
+103 hera has the epoch of 27 august 2011 . it has an orbital period of 1622 . 213 days and an apoapsis of 437170000 . 0 ( kilometres ) .
+the celestial body known as 103 hera has a temperature of 170 kelvins . it has has an escape velocity of 0 . 0482 kilometres per second and an apoapsis of 437170000 . 0 kilometres .
+nr pogson was an english national who was born in nottingham and discovered 107 camilla .
+the 1089 tama ( formally known as a894 va ; a904 vd ) has an orbital period of 1202 . 846 days and an epoch date of the 26th november 2005 .
+1089 tama , with the epoch date november 26th 2005 , has a periapsis of 288749000000 . 0 . and an apoapsis of 373513000 . 0 kilometres .
+
+weighing 7 . 5kgs , 109 felicitas , has an epoch date of december 31st 2006 , and its orbital period is , 139705000 . 0 .
+109 felicitas has an epoch date of december 31st 2006 . its orbital period is is 139705000 . 0 and its apoapsis is 523329000 . 0 ( kilometres ) .
+10 hygiea ; has an average speed of 16 . 76 kilometres per second , an apoapsis of 523951582 . 33968 kilometre and takes 5 . 57 days to orbit .
+the celestial body known as 10 hygiea , has a surface area of 837080 . 744 square km and an average speed of 16 . 76 km per secs . 10 hygiea has an apoapsis of 523951582 . 33968 kilometres .
+the celestial body known as 10 hygiea has a surface area of 837080 . 744 square km . it has an apoapsis of 523951582 . 33968 kilometres and a temperature of 164 kelvins .
+110 lydia has a mass of 6 . 7 kg , a periapsis of 377016000000 . 0 , and has an epoch date of december 31st , 2006 .
+110 lydia , with the epoch date december 31st 2006 , has an apoapsis of 440756000 . 0 km and a periapsis measurement of 377016000000 . 0 .
+aaron bertram plays for the suburban legends pop music band . he is an artist with the band kids imagine nation .
+from indiana ( united states ) , aaron deer ' s musical genre is , indie rock .
+american , aaron deer , whose genre is psychedelia , is from indiana .
+aaron turner ' s music genre is black metal and he played with the twilight band . he is also associated with the greymachine band .
+aaron turner ; played with the band twilight , is part of the drone music genre and is associated with the group greymachine .
+aaron turner ; performs ambient music , played with the band twilight and performs for mamiffer .
+death metal is a musical fusion of black metal , the music played by electric guitarist , aaron turner .
+aaron turner is a singer and black metal musician . death metal is a musical fusion of black metal .
+born on 12th november , 1978 , abradab , played with the band kaliber 44 and is associated with the rapper , magik .
+abradab comes from katowice and plays for the kaliber 44 band . he plays with rapper , magik .
+the musical genre of ace wilder is hip hop music . hip hop music originates from funk and has its stylistic origins in disco .
+agustín barboza was born in asunción , paraguay . the leader of paraguay is juan afara .
+al anderson is a singer who plays with the band nrbq . his genre is rock music .
+alan frew is a performer of rock music which originated from country music . a musical fusion of rock music is bhangra music .
+albennie jones is a jazz musician . jazz comes from blues music and the afrobeat is a fusion genre of that music .
+albennie jones was born in errata mississippi and his musical genre is rhythm and blues which is where disco derives .
+aleksandra kovač is associated with the musical artist bebi dol , is part of the band k2 ( kovac sisters duo ) , and musical genre is pop .
+aleksandra kovač , a performer of pop music , is associated with the musical artists bebi dol and kornelije kovač .
+rhythm and blues artist aleksandra kovač is a member of sister duo , k2 , with musician kristina kovač .
+the musical genre of alex day is synthpop , a form of pop music which originated from disco .
+born in manchester , england , alfred garth jones , died in sidcup .
+alfred garth jones , born in england in the u . k . , died in london .
+alfred garth jones , was born in manchester , in the united kingdom and died in london .
+alfred garth jones was born in manchester and died in sidcup . the majority in manchester is the labour party .
+alfred garth jones died in sidcup , london . boris johnson is a leader in the city .
+irish folk musician alison o ' donnell is part of the flibbertigibbet band and formerly of mellow candle .
+folk music is the genre of alison o ' donnell , who was in the bands mellow candle and the flibbertigibbet band .
+alison o ' donnell is a jazz ( funk is a derivative of jazz ) performer who sings , plays percussion , autoharp and bodhan .
+funk is a derivative of jazz , the music alison o ' donnell performs . alison o ' donnell recorded on the record label , static caravan recordings .
+allen forrest ( dothan , alabama ) is a solo singer and an exponent of pop music .
+allen forrest , born in dothan , alabama , performs rhythm and blues . he was originally a solo singer .
+musician andrew white ' s genre is alternative rock which originated from new wave music . nu metal is a music fusion genre of alternative rock .
+anders osborne is associated with the musical artists billy iuso and kirk joseph and also associated with tab benoit .
+anders osborne ’ s musical genre is rock music and record label is rabadash records . the music bhangra is part of the fusion genre , partly coming from rock music .
+andra is a singer and her music genre is dance - pop . she is associated with the band crbl and with the singer puya .
+rhythm and blues singer andra is associated with musicians marius moga and andreea balan .
+andra began her career as a solo singer and is a rhythm and blues singer . disco derives from rhythm and blues .
+the musical genre of andrew rayel is trance music . he is associated with the musical artists jonathan mendelsohn and christian burns .
+andrew rayel , of the music genre trance music , is associated with the musical artists jonathan mendelsohn and bobina .
+musicians andrew rayel and christian burns are associates and while the latter plays house music , the former is associated with musician jwaydan moyine .
+andrew white was once a member of kaiser chiefs and is associated with marry banilow . his record label is the now defunct universal records .
+aaron bertram plays for the suburban legends band and performs ska punk music , which has its origins in ska .
+albennie jones was born in errata , mississippi , united states , where african americans are one of the ethnic groups .
+the 1955 dodge , also named the dodge coronet , has a 3 - speed automatic transmission and a v8 engine .
+a - rosa - luna , a cruise ship 125800 . 0 millimetres in length , was ordered on january 22 , 2004 .
+a - rosa luna has a ship displacement of 1850 tonnes and a top speed of 24 km / h . its length is 125 . 8 metres .
+the aidastella is owned by cost crociere and it ' s operator is german based aida cruises .
+the aidastella was christened on the 16th of march , 2013 , put in service on march 17 , 2013 , and is 253260 . 0 millimetres in length .
+the alco rs - 3 has a four - stroke engine , a length of 17068 . 8 millimetres and was built by the american locomotive company .
+the alco rs - 3 was built by the american locomotive company . it is 17068 . 8mm long and has a v12 engine .
+the american locomotive company , founded in schenectady , new york , were the builders of the alco rs - 3 , which has a length of 17068 . 8 mm .
+alvx - 1 comes from the us where americans live and african americans are an ethnic group .
+the alv x - 1 originated in the united states , a country whose capital is washington dc and has native americans as an ethnic group .
+the alv x - 1 rocket which has a diameter of 1 . 524 meters and has 2 stages was launched one .
+the abarth 1000 gt coupé , with its straight four engine , completed production in 1958 .
+the abarth 1000 gt coupe is a 2 door coupe which is 1 . 55m wide with a wheelbase of 2160mm .
+the icebreaker aleksey chirikov which has a ship beam of 21 . 2 , was built at the arctech helsinki shipyard , in helsinki .
+alfa romeo 164 , asembled in italy ( capital : rome ) , is a related mode of transportation as the fiat croma .
+the lancia thema and the alfa romeo 164 are related . the latter is built in italy where the capital is rome .
+the arese assembled , alfa romeo 164 and the fiat croma as well as the lancia thema , are related types of transportation .
+the alfa romeo 164 , made in milan , along with the fiat croma and the saab 9000 are related cars .
+the alhambra has a ship beam of 8 . 3m , is 63800 . 0 millimetres long , and was launched on 1855 - 05 - 31 .
+the alhambra , which was wrecked , had a ship beam of 8 . 3 metres and was launched on 31 may 1855 .
+alvis car and engineering company was founded in coventry and made the alvis speed 25 . alvis speed 25 has a petrol engine .
+the amc matador is made by american motors who has a key person called roy d chapin . the amc was succeeded by the eagle co .
+the antares rocket , manufactured at the yuzhnoye design office , is relative to the united states based , delta ii .
+the antares rocket function is a medium expendable launch system manufactured at the yuzhnoye design office and launched at the mid - atlantic regional spaceport launch pad 0 .
+arianespace is the manufacturer of ariane 5 which was launched from ela - 3 at the guiana space centre .
+the aston martin v8 assembly took place in newport pagnell , buckinghamshire , england , united kingdom . the aston martin v8 ( has a engine volume of 5 . 3 litres ) and the aston martin dbs are related means of transport .
+the aston martin v8 and the aston martin dbs are related means of transport . the v8 model is assembled in the united kingdom with a 5 . 3 litre engine .
+the us atlas ii was launched from vandenberg air force base and cape canaveral .
+the atlas ii originated from the united states , where native americans are an ethnic group . the leader of the united states has the title president of the united states .
+originating from the u . s , the atlas ii was launched from the spaceport florida launch complex 36 , from the cape canaveral air force station .
+the audi a1 , a hatchback , has a 1 . 2 liter engine and is assembled by audi brussels .
+audi ' s a1 is simiilar to the seat ibiza and the vw polo .
+caterpillar inc . , founded in california and located in peoria , illinois , powers the aidaluna .
+caterpillar inc . is found in illinois and they powered the aidaluna . aidacruises owns the aidaluna .
+the ship aidastella is operated by aida cruises which is owned by costa crociere is in genoa .
+the rocket antares is comparable to the american , delta ii . the launch site of the delta ii was at the vandenberg afb space launch complex 2 .
+the ariane 5 was launched at ela - 3 at the guiana space centre . the guiana space centre has its headquarters in french guiana .
+the launch site of the ariane was ela - 3 at the guiana space centre at kourou , french guiana .
+the builder of the a - rosa is neptun werft , which headquartered in rostock , germany .
+the atlas ii originated from the u . s , where americans live and one of the ethnic groups is african americans .
+aaron hunt represented the club goslarer sc 08 at youth level and has since played for both sv werder bremen and vfl wolfsburg .
+aaron hunt plays for the club sv werder bremen ii and also vfl wolfsburg which is managed by dieter hecking .
+abel hernandez is a member of the central espanol youth team and he plays for hull city afc but his club is us citta di palermo .
+abel hernández played football at youth level for central español . at senior level he has played for us citta di palermo and penarol .
+adam maher was born in the netherlands and his clubs are psv eindhoven and az alkmaar .
+akeem adams played for w connection f . c . and is a member of the united petrotrin f . c . club . which play in palo seco .
+akeem ayers , whose former team was the los angeles rams , was in draft round 2 and his draft pick number was 39 .
+akeem ayers , who formerly played for st louis rams , was number 39 in the draft pick and in draft round 2 .
+akeem dent , who was born on 27 september 1987 in atlanta , georgia , made his debut with the atlanta falcons .
+iraqi born , alaa abdul - zahra , whose club is shabab al - ordon club , plays for the iraq national under 20 football team .
+alaa abdul - zahra ' s clubs are shabab al - ordon and also al kharaitiyat sc whose ground is al khor .
+born on 1 january 1989 , alan martin currently plays for hamilton academical fc , having previously played with clyde fc .
+alan martin ' s football club is motherwell fc and he has also played for the accrington based club accrington stanley .
+born september 2 , 1995 , aleksander barkov jr of tampere , finland , played for the florida panthers .
+aleksander barkov jr was born in tampere , finland on sept . 2 , 1995 and his draft team is the florida panthers .
+aleksandr chumakov was born in the soviet union and died there in russia . the leader of russia is vladimir putin .
+born on 24th february 1989 , aleksandr prudnikov , plays for both , fc alania vladikavkaz and fc kuban krasnodar club .
+aleksandr prudnikov , whose club is fc tom tomsk , was born on 24th february 1989 and has played for the russia national football b team .
+azal pfk player , aleksandre guruli , played for the olympique lyonnais club , the home ground of which , is the parc olympique lyonnais stadium .
+aleksandre guruli , whose club is us lesquin , played for the olympique lyonnais club who have their home ground at parc olympique lyonnais stadium .
+footballer alessio romagnoli , who represented italy at under 16 level , plays for c milan , where the manager is siniša mihajlović .
+alessio romagnoli , who is connected to uc sampdoria , plays for a . c . milan which , is managed by , siniša mihajlović .
+alessio romagnoli plays for a . s . roma and he use to play for the italian national under 16 football team , which is coached by daniele zoratto .
+alessio romagnoli played for the club u . c . sampdoria , and is a member of club italy national under 17 ' s . he was born in italy .
+alex plante was born in brandon , manitoba and is 1 . 9304 m tall . he plays for the anyang halla club .
+born in canada , alex plante is 1 . 9304 metres tall and has played for the club anyang halla .
+alex tyus plays for maccabi ashdod b . c . in the euroleague . the coach of the ashdod team is zvi sherf .
+alex tyus plays for maccabi ashdod b . c who are coached by zvi sherf and are part of the turkish basketball super league .
+aleksandr prudnikov plays for fc tom tomsk and his club is fc spartak moscow , who have their home ground at the otkrytiye arena .
+otkrytiye arena is the home ground of fc spartak moscow , where aleksandr prudnikov played youth football . he later represented fc anzhi makhachkala .
+aleksandr chumakov plays for fc torpedo moscow who are managed by valery petrakov and played in the 2014 - 15 russian premier league .
+abel hernández plays for the uruguay olympic football team and his club is hull city a . f . c . which is managed by steve bruce .
+aleksandr chumakov was born in moscow and died in russia . sergey sobyanin is moscow ' s leader .
+abner plays football for the brazilian national under 20 football team and also for real madrid castilla who are managed by luis miguel ramis .
+footballer , abner plays for the club , real madrid castilla and belongs to c . d . fas club . luis miguel ramis manages the real madrid castilla .
+alex tyus was born in st louis , ( part of greater st . louis ) , where francis g . slay is the leader .
+akeem ayers , whose former team is the new england patriots , made his debut with the american football team tennessee titans based in the city of nashville .
+akeem adams , who plays for the trinidad and tobago national under - 20 football team previously played for united petrotin fc whose ground is at palo seco .
+alexander nouri is the manager of sv werder bremen , which aaron hunt plays for . he also plays for , sv werder bremen ii which is in the league 3 liga .
+abel hernandez , who played for penarol , was a member of the central espanol youth team . abel hernández ' s club is hull city a . f . c . which is managed by , steve bruce .
+abel hernández was a member of youth club peñarol , managed by , jorge orosmán da silva . abel hernandezalso played for the central espanol club and now his club is us citta di palermo .
+when he was younger , abel hernández played for peñarol . he now plays for us citta di palermo in the serie a . league and managed by giuseppe iachini .
+adam mcquaid was born october 12th 1986 on prince edward island . he weighs 94 . 8024 kilograms .
+don sweeney is general manager for the boston bruins , the team adam mcquaid played for . mcquaid was drafted to the columbus blue jackets , from columbus , ohio .
+akeem ayers ; was born on 10th july 1989 , made his debut for the tennessee titans and used to play for the st . louis rams .
+akeem dent was born in atlanta , georgia on 27th september 1987 and played for the houston texans .
+akeem dent , born september 27 , 1987 in atlanta , georgia , on the atlanta falcons . he also played for the houston texans formerly .
+alaa abdul zahra , whose club is al - zawra ' a sc , is also a member of the club , al kharaitiyat sc amar osim is the manager of al kharaitiyat sc . which is located in al khor .
+alaa abdul zahra plays for al kharaitiyat sc , in al khor , and for the iraq national under 23 football team . al kharaitiyat sc is managed by amar osim .
+alaa abdul - zahra , whose club is shabab al - ordon club , also plays for al kharaitiyat sc . which is located in al khor . the manager of al kharaitiyat sc is amar osim .
+footballer , alan martin , was born on the 1st january 1989 . he is 185 . 42 cm tall and plays for both the hamilton academical fc and crewe alexandra fc .
+alan martin , was born on the 1st january 1989 . he is 185 . 42 cm tall , a footballer for the crewe alexandra fc and plays in the scottish national under 21 football team .
+born on feb . 24 , 1989 and measuring 185 cm tall , aleksandr prudnikov plays for the fc kuban krasnodar and is part of the dynamo moscow fc .
+aleksandr prudnikov was born on 24 - 02 - 1989 , he is now 185cm tall . his club is fc spartak moscow but he currently plays for fc rubin kazan .
+aleksandre guruli was born in batumi and he is 1 . 78m tall . he has played for fc karpaty lviv and fc zestafoni .
+alex plante , who played for anyang halla , was born on 1989 - 05 - 09 , in canada .
+1 . 9304m tall alex plante , whose club is anyang halla , was born in canada , in 1989 .
+aaron boogaard ' s birthplace is canada . the country , where one of the languages spoken is inuktitut . it is also where o canada is the national anthem and the leader is elizabeth ii .
+the anthem of canada is o canada , the leader is elizabeth ii , one of the ethic groups in canada are the asian canadians and it is the birthplace of aaron boogaard .
+elizabeth ii is canada ' s leader and the national anthem is " o canada " . it is home to aaron boogaard and the slavey language is spoken .
+aleksandr prudnikov , who plays for fc kuban krasnodar , also plays for fc terek grozny . rashid rakhimov is the manager of fc terek grozny , the ground of which , is located in grozny .
+fc torpedo moscow who are managed by aleksandr chumakov and whose chairman is aleksandr tukmanov , played the 2014 – 15 season in the russian premier league . aleksandr chumakov has played for the club .
+akeem dent ' s first team were the atlanta falcons and his former team are the houston texans , which are based in the city of houston and play in texas .
+abel hernández was a member of youth club peñarol , that play in the uruguayan primera división league . his current club is hull city a . f . c . which is managed by , steve bruce .
+
+( 66063 ) 1998 ro1 had its epoch date on 2013 - 11 - 04 and has an orbital period of 360 . 29 days . it has an escape velocity of 0 . 0999 km / s and its apoapsis is 254989570 . 60815 kilometres .
+the mean temperature of ( 66063 ) 1998 ro1 is 265 . 0 kelvins and its apoapsis is 254989570 . 60815 kilometres . it has an epoch date of 4 november 2013 and an orbital period of 360 . 29 days .
+the epoch of 1000 piazzia is 2015 - 06 - 27 . it has an escape velocity of 0 . 0252 km / sec , a periapsis of 352497000000 . 0 and an orbital period of 488160 . 0 .
+1923 oaa907 xc is the original name of 1001 gaussia , which was discovered by sergey belyavsky and has an epoch date of june 27th 2015 . its periapsis measures 419113394 . 55312 kilometres .
+1036 ganymed was discovered by walter baade whose alma mater was the university of gottingen . he had a doctoral student named allan sandage . mr . baade was born in germany .
+1036 ganymed was discovered by walter baade . baade was born in preußisch oldendorf and attended the university of gottingen where one of his doctoral students was halton arp .
+walter baade , who had a doctoral student named halton arp , discovered 1036 ganymed . he had graduated from the university of gottingen and later died in west germany .
+james craig watson was the discoverer of 103 hera . his alma mater is the university of michigan and he died in madison , wisconsin of peritonitis .
+canadian james craig watson , who dies in madison , wisconsin , was the discoverer of 103 hera , which has an apoapsis of 437170000 . 0 ( kilometres ) .
+james craig watson of canada passed in madison , wisconsin from peritonitis . he was the discoverer of 103 hera .
+n . r . pogson discovered 107 camilla which has a periapsis of 479 , 343 , 000 kilometres . pogson was born in nottingham and died in chennai .
+107 camilla was discovered by n . r . pogson , who was born in nottingham and died in chennai . it was discovered on 1 march 2001 .
+1089 tama ( previously called a894 va ; a904 vd ) ; has an orbital period of 1202 . 846 days , a periapsis of 288749000000 . 0 , and the epoch date , 2005 - 11 - 26 .
+1089 tama , with the epoch date november 26th 2011 , has an escape velocity of 0 . 0068 kmps . it orbital period is 1202 . 846 days and it has an apoapsis of 373513000 . 0 ( kilometres ) .
+1097 vicia , with the epoch date december 31st 2006 , has a mass of 98 kgs , an apoapsis of 511592000 . 0 km and an orbital period of 135589000 . 0 .
+109 felicitas has an orbital period of 139705000 . 0 and a periapsis of 283326000000 . 0 . its epoch date is 31 december 2006 , and it has an escape velocity of 0 . 0473 kilometres per second .
+10 hygiea was formerly known as a900 ga and has an epoch date of 27 june 2015 . the orbital period is 5 . 57 days and the periapsis measurement is 416136000000 . 0 .
+the celestial body known as 1101 clematis has the epoch date of 31 july 2016 and an apoapsis of 520906000 . 0 ( kilometres ) . it has an orbital period of 183309000 . 0 and an escape velocity of 0 . 02 kmps .
+1101 clematis , formerly known as " 1928 sj " , has an orbital period of 183309000 . 0 and a periapsis of 445895000000 . its epoch date is december 31st 2006 .
+1101 clematis ' s escape velocity is 0 . 02 km / s , prbital period of 183309000 , periapsis of 445895000000 , and an epoch on the 31st of december .
+the 1955 dodge is manufactured by dodge and it has a v8 engine . it has a wheelbase of 120 inches and has a 3 speed automatic transmission .
+the 1955 dodge is related to the chrysler newport and the desoto custom which was made by desoto and succeeded by the desoto firedome .
+located at rostock , aida cruises operate aidastella ship which was built by meyer werft and owned by costa crociere .
+aidastella is 253260 . 0 millimetres long and was built by meyer werft . it is owned by costa crociere and operated by aida cruises .
+the alco rs - 3 , built by the american locomotive company , has a diesel - electric , v12 engine and was produced from may 1950 to august 1956 .
+the alco rs - 3 has a v12 engine and a length of 17068 . 8 millimetres . it was produced between may 1950 and august 1956 by the american locomotive company .
+the alco rs - 3 was made in the u . s . in schenectady , n . y . by the american locomotive co . the alco rs - 3 is 17068 . 8 millimetres long .
+the alco rs - 3 was built by the montreal locomotive works and produced between may 1950 and august 1956 . it has a v12 engine and a diesel - electric transmission .
+the alco rs - 3 was built by the montreal locomotive works and produced between may 1950 and august 1956 . it has 12 cylinders and a four - stroke engine .
+the amc matador which is assembled in mexico city is also known as the american motors matador . it is in the style of a station wagon and has an amc v8 engine .
+the amc matador ( alternative name , vam classic ) was assembled in kenosha , wisconsin . it is classed as a mid - size car and it has an amc straight - 6 engine .
+the acura tlx is classed as a mid - size car , with a honda k engine and front - wheel and all - wheel drive . it is assembled in marysville , ohio .
+the acura tlx is a luxury vehicle with a v6 front engine design . it is assembled at the marysville auto plant .
+the finnish built aleksey chirikov is an icebreaker and currently in service . it was built by the archtech helsinki shipyard and has a ship beam of 21 . 2m .
+the icebreaker aleksey chirikov was built in helsinki , finland . finland is led by juha sipila and the demonym is finns .
+the icebreaker aleksey chirikov was built in helsinki by the arctech helsinki shipyard it has a 21 . 2 m long shipbeam and is in service .
+the alfa romeo 164 is related to the lancia thema and the to the saab 9000 and in that they are both cars . the alfa romeo 164 has a straight four engine and was assembled in italy .
+the fiat croma , saab 9000 and alfa romeo 164 are all cars and therefore are related forms of transportation . the alfa romeo 164 , has a v6 engine and its assembly line is in italy .
+the alhambra has a ship beam of 8 . 3m and is 63800 . 0 millimetres long . it was launched on 1855 - 05 - 31 and had wrecked .
+the alvis speed 25 , which has a petrol engine , was manufactured by the alvis car and engineering company . the company was founded in coventry and succeeded by the rover co . .
+the alvis speed 25 , with its straight - six engine , was made by coventry area , alvis car and engineering company , which was succeeded by the rover company .
+american motors was succeeded by eagle and acquired by chrysler , it includes figure roy d . chapin jr . the amc matador is made by american motors .
+general dynamics electric boat is the builder of the american submarine nr - 1 and it was launched on january 25th 1969 . it ' s top speed is 8 . 334 and it has a ship beam of 3 . 8 m .
+the american submarine nr - 1 , which was launched on the 25th of january 1969 , has a top speed of 9 . 334 km / hr , a ship beam of 3 . 8m and a length of 45000 . 0 mms .
+the antares rocket was made by the yuzhnoye design office and launched from the mid - atlantic regional spaceport launch pad 0 . it ' s maiden flight was on 21 april 2013 and the final flight on 28 october 2014 .
+
+aston martin v8 was made by aston martin in the uk whose capital is london . the martin was succeeded by the aston martin virage .
+the aston martin rham / 1 , aston martin v8 and aston martin dbs are a related means of transport . it is assembled in the united kingdom and has a 5 . 3 litre engine .
+the aston martin v8 , manufactured by aston martin , has a 5 . 3 litre engine and was succeeded by the aston martin virage . the aston martin v8 and aston martin dbs are a related means of transport .
+the atlas ii , which is 3 . 04m in diameter , has been launched from cape canaveral air force station and vandenberg air force base . its final flight was december 5 , 2002 .
+audi a1 belongs to the supermini class and is assembled at audi brussels . it has a 1 . 2 litre engine and a front engine , front - wheel drive layout .
+august horch founded audi , which makes the audi a1 . audi e - tron is a division of audi and the company ducati is owned by them .
+caterpillar inc was founded in california and is located in illinois . it powers the aidaluna which is owned by aida cruises .
+the aidastella was built by meyer werft and is operated by aida cruise line . the aidastella is owned by costa crociere , who are located in genoa .
+the delta ii originated in the united states and launched from the cape canaveral air force station . it is similar to the antares rocket which launched from the mid - atlantic regional spaceport launch pad 0 .
+launched at cape canaveral air force station and the vandenberg afb space launch complex 2 was the delta ii us rocket . the antares rocket is similar to the delta .
+the alfa romeo 164 is a sedan that is assembled in italy . it is a similar means of transport to the fiat croma and also related to the opel vectra .
+the alfa romeo 164 , opel vectra and fiat croma are similar means of transport . the alfa romeo 164 is a sedan which was assembled in milan .
+general dynamics is the parent company of the general dynamics electric boat co . out of groton , ct . the gd electric boat co built the american sub called nr - 1 which has a 3 . 8 m beam .
+neptun werft built the a - rosa luna at rostock germany where stanislaw tillich is leader .
+the atlas ii is from the united states , where african americans are among the ethnic groups . washington d . c . is the capital city of the united states and english is spoken there .
+americans live in the u . s . whose capital is washington , d . c . and an ethnic group there is known as african americans . the atlas ii comes from the u . s .
+aaron bertram plays for the kids imagine nation band and his musical genre is ska punk . he also plays for the suburban legends band in which brian robertson plays the trombone .
+coming from indianapolis , indiana , aaron deer , has a background as a solo singer and performs psychedelia music .
+aaron turner , a singer who performs electroacoustic music , is with the band isis and has performed with the group sumac .
+aaron turner played with twilight and old man gloom bands . he started performing post metal in 1995 .
+aaron turner plays electric guitar and his genre is black metal music in which death metal is a fusion . he performed with the band sumac .
+ace wilder was born on july 23 , 1982 in stockholm . he is a solo singer .
+singer ace wilder was born july 23 , 1982 in sweden .
+solo singer ace wilder was born in stockholm in 1982 . he is also a songwriter .
+born in 1982 in sweden , ace wilder is a solo singer and songwriter .
+ahmet ertegun originates from washington d . c , united states . he started out as a non performing personnel in the rhythm and blues .
+ahmet ertegun is from the united states , where african americans are an ethnic group . his genre is rock and roll , which has its stylistic origin in the blues .
+ending his career in 1950 , albennie jones was a performer of rhythm and blues . this genre originated from the blues and has disco as a derivative .
+albennie jones performs jazz music which originated its style from blues music . albennie jones was born in the u . s . a , where on of the ethnic groups , is african americans .
+pop musician and solo singer aleksandra kovač was born 1972 , in belgrade .
+born in the socialist republic of serbia ( 1972 ) , aleksandra kovac , a solo singer , is an exponent of rhythm and blues .
+acoustic musician alex day began in 2006 and is associated with the chameleon circuit and charlie mcdonnell .
+alex day performs electronic music and plays with the band chameleon circuit . his active musical years started in 2006 and he is associated with the musical artist , charlie mcdonnell .
+alfred garth jones was born in 1872 in manchester , england and died in london .
+alfredo zitarrosa died in montevideo , uruguay . the city ' s leader is daniel martinez and the country ' s inhabitants are known as uruguayans .
+with a background as a solo singer , uruguay born alfredo zitarrosa was signed to the rca records label and performed in the musical genre of candombe .
+folk musician , alison o ' donnell ; started performing in 1963 , was with the band bajik and was a member of the flibbertigibbet band .
+alison o ' donnell began performing folk music in 1963 . she ' s been associated with the bands head south by weaving and mellow candle .
+alison o ' donnell is a jazz musician whose record label is the london - based deram records . she is signed to the record label " floating world records . " .
+previously signed to the record label fruits de mer records , jazz musician , alison o ' donnell is signed with the london based , record label , deram records .
+fort campbell is the birth place of allen forrest , who was born in the year 1981 . he is a solo singer who plays acoustic music .
+allen forrest was born in 1981 in fort campbell , ky and raised in dothan , al . he was originally a solo singer and performs hip hop music .
+andrew white is associated with the musical artist marry banilow and he plays alternative rock . that type of music originated from punk rock . nu metal music is a fusion of alternative rock music .
+anders osborne is associated with the musical artists billy iuso and tab benoit . he is an exponent of rock music and worked with the galactic band .
+alligator records is based in chicago and the main genre they deal with is blues . anders osborne ' s record labels are alligator records and shanachie records .
+anders is a professional dance - pop music singer . she is a solo singer and was born in romania .
+andra is a rhythm and blues singer . originating from blues music , rhythm and blues has funk and disco as derivatives .
+in 2009 andrew rayel started his music career . he played trance music . mr . rayel is associated with christian burns and jonathan mendelsohn .
+musicians jwaydan moyine and christian burns are associated with andrew rayel , whose musical genre is trance music , which has its origins in house music .
+andrew white started his musical career in 2003 and is associated with the musical artist , marry banilow . he plays for the band kaiser chiefs and his genre is alternative rock .
+andrew white , who began his musical career in 2003 and was associated with marry banilow , was signed to the now defunct record label universal records . he was a member of the band the kaiser chiefs .
+agustin barboza was born in paraguay which is led by juan afra . he died in asuncion which is part of gran asuncion .
+al anderson ( nrbq band ) performs country music and also was a member of the wildweeds . banjo is used for country music .
+allen forrest performs hip hop music , which has its stylistic origins in disco and funk . drum and bass is a derivative of hip hop .
+the birthplace of alfred garth jones is manchester , ( part of greater manchester ) , england . in manchester the labour party is in the majority .
+aaron turner played post - metal music with the twilight band . he also played with the house of low culture . cello is a post - metal instrument .
+aaron turner plays electric guitar and played with the band twilight . twilight performs black metal music which when part of a musical fusion is called death metal .
+rhythm and blues artist albennie jones was born in the united states . r and b originated from the blues and among the ethnic groups in the u . s . are african americans .
+maine born aaron s daggett fought in the american civil war , was awarded the purple heart and died in west roxbury .
+born in maine , aaron s . daggett fought in the battle of the wilderness , awarded the purple heart , and died in west roxbury .
+ab klink worked at the ministry of health , welfare and sport in netherlands , the country where he was born . he was a student of erasmus university in rotterdam which is affiliated with the association of mbas .
+mirir , malaysia born abdul taib mahmud , who lives in kuching , represented the asajaya region and was a member of the parti pesaka bumiputera bersatu .
+abdul taib mahmud was born and resided in the kingdom of sarawak . he was in the parti pesaka bumiputera bersatu and represented the asajaya region .
+japanese occupied , british borneo , was the birthplace of adenan satem , who succeeded abdul taib mahmud . abdul taid mahmud is a member of barisan ra ' ayat jati sarawak party and resides in sarawak .
+abdul taib mahmud , who lives in sarawak , belongs to the parti pesaka bumiputera bersatu . he was succeeded by adenan satem , who was born in the japanese occupation of british borneo .
+abdulsalami abubakar served in the nigerian army and was in office while mike akhigbe was vice president . oladipo diya was the predecessor of mike akhigbe and atiku abubakar was his successor .
+abdulsalami abubakar was a member of the nigerian air force . he was in office while mike akhigbe was vice president . oladipo diya was the predecessor of mike akhigbe and al - amin daggash was the successor of abdulsalami abubakar .
+abel caballero , born in galicia , spain , served office during prime minister felipe gonzalez ' leadership and juan carlos i of spain ' s monarchy . francisco franco preceded juan carlos i .
+abel caballero was born in galicia in spain , is a member of the spanish socialist workers ' party and worked as minister of transport .
+abraham a ribicoff , married to casey ribicoff , was born in new britain , connecticut which is in the united states , where native americans are an ethnic group .
+adam holloway was born in kent and his alma mater was magdalene college , cambridge . his career began on 5 may 2005 and he fought in the gulf war .
+adam koc , a polish nationalist , fought in the polish - soviet war . joseph stalin was a commander in that war . the polish language is used in poland .
+
+adonis georgiadis , who was born in athens , greece , served as the vice president of new democracy and was later succeeded by makis voridis .
+adonis georgiadis , who was born in athens greece worked for the ministry of economy , development and tourism and his successor was makis voridis .
+adonis georgiadis was born in athens in greece and before being succeeded by makis voridis worked as a member of the hellenic parliament .
+emile roemer is a leader of the socialist party in netherlands of which agnes kant is also a member . the country uses the euro as its currency .
+agnes kant is a national of the netherlands where mark rutte is a leader . kant is also a member of the socialist party and worked at the house of representatives in the netherlands .
+agnes kant is from the netherlands , where the leader is mark rutte . emile roemer is a member of ( and leader of ) the socialist party in the netherlands .
+agnes kant , a netherland national , is a member of the socialist party of the netherlands which is led by emile roemer and uses the colour of red .
+airey neave was born in knightsbridge in london and started his career on the 30th june 1953 . he fought in the battle of france and ended his career on the 30th march 1979 .
+airey neave , who was born in knightsbridge , london , fought in the battle of france . his career lasted only five years beginning march 4th , 1974 and ending on the 30th of the same month in 1979 .
+airey neave served in the royal artillery unit which has a garrison in hohne . he also participated in world war ii where chiang kai - shek was a commander .
+albert b . white , who was born in cleveland an died at parkersburg , west virginia was succeeded by william m . o . dawson who was born in bloomington maryland .
+albert b . white was born in cleveland and his successor was william m . o . dawson . he started his career on march 4 , 1901 and finished it on march 4th 1905 .
+born in new york city ( where french is one of the languages spoken ) , albert jennings fountain battled in the american civil war . the same conflict in which abraham lincoln was a commander .
+new york city was the birthplace of albert jennings and he passed away in dona ana county , new mexico . he fought in the american civil war and one commander in that war was jefferson davis .
+albert jennings fountain was born in new york on staten island and died in new mexico territory .
+alberto teisaire belongs to the justicialist party and was in office while juan peron was president . teisaire died in buenos aires , where the leader is horacio rodríguez larreta .
+alberto teisaire was born in mendoza in agentina and he was a rear admiral . he worked as a provisional president of the argentine senate and his successor was isaac rojas .
+alfred moore scales was born in reidsville , north carolina , is a member of the democratic party in the united states and served as governor of north carolina . he was succeeded by daniel gould fowle .
+connecticut born alfred n phillips served in the us army and fought in the whiskey rebellion battle . he was later a member of the u . s . house of representatives from connecticut ' s 4th district .
+alfred n . phillips , born in connecticut was a member of the united states democratic party and worked as a member of the u . s . house of representatives from the connecticut ' s 4th district . his successor was albert e . austin .
+darien , connecticut is the birthplace of alfred n . phillips and he was a member of the united states democratic party . he was also the mayor of stamford connecticut and his successor was albert e . austin .
+u . s . democratic party member and texas governor , allan shivers , was born in lufkin , texas . he was succeeded by price daniel .
+allan shivers was born in lufkin , texas , and served in the democratic party of the us . he worked as the governor of texas and was eventually succeeded by wilfred r cousins jr .
+alvah sabin is from the state of vermont , which has the largest city of burlington . sabin worked as the secretary of state of vermont and represented vermont ' s 3rd congressional district .
+alvah sabin was a member of the whig party of the united states and he represented vermont , whose biggest city is burlington . daniel webster was a leader of the whig party in the united states .
+the battle of gettysburg took place during the american civil war when robert e lee was a commander . aaron s daggett fought at the battle of gettysburg and was awarded the purple heart .
+argentinian , alberto teisaire was in office while juan peron was president . perón was a member of the labour party in argentina where the dominant language is spanish .
+juan peron was a member of the labour party of argentina and during his presidency alberto teisaire was in office . teisaire was born in mendoza in argentina and was eventually succeeded by isaac rojas .
+carnival corporation & amp ; plc is the parent company of costa crociere which is the owner of the aidastella . the aidastella was built by meyer werft and is operated by aida cruises which is based in germany .
+the aidastella was built by meyer werft and operated by the aida cruise line . it is 253260 . 0 millimetres long with a beam of 32 . 2 metres and a top speed of 38 . 892 km / h .
+the alco rs - 3 was built by the american locomotive company and was produced between may 1950 and august 1956 . it has a cylinder count of 12 , is 17068 . 8 ( millimetres ) in length , and has a four - stroke engine .
+the alco rs - 3 , built by the american locomotive company , has a v12 cylinder engine and is 17068 . 8mm long . it was produced from may 1950 to august 1956 .
+the alv x - 1 originated in the united states where the inhabitants are known as americans and include the ethnic group of native americans . the capital city is washington dc and the national anthem is the star spangled banner .
+the amc matador , also known as american motors matador , was assembled in thames , new zealand . the amc matador is a mid - size station wagon with a v8 engine type .
+a transport london company called p & amp ; o owns the alhambra ship which contains a humphrys , tennant and dykes power type and has a ship beam of 8 . 3 m . the ship was built by the samuda brothers .
+the amc matador is manufactured by american motors , whose subsidiary is the wheel horse and successor is eagle . american motors was acquired by chrysler and roy d chapin jr is a key person there .
+the american submarine nr - 1 which was launched on january 25th 1969 has a top speed of 8 . 334 km / h . it has a 3 . 8m ship beam , a draft of 4 . 6m and measures 45000 mms in length .
+the antares rocket is comparable to the delta ii , which originates from the united states . the launch site of the antares was the mid atlantic regional spaceport launch pad 0 , which is also associated with the rocket minotaur iv .
+the antares rocket ' s maiden flight was on the 28th october 2014 and its last flight on 2014 - 07 - 13 . its launch site was the mid - atlantic regional spaceport launch pad 0 . it is manufactured at the yuzhnoye design office and is 3 . 9 m in diameter .
+the antares rocket , manufactured by the yuzhnoye design office , was launched from the mid - atlantic regional spaceport launch pad 0 . at 3 . 9m in diameter , the antares rocket had its maiden flight on the 28th october , 2014 and final flight on the 18th of september , 2013 .
+the airbus defence and space manufactured the ariane 5 which has a diameter of 5 . 4 metres . it was launched from the guiana space centre , making its maiden flight on 11 august 2005 and the final flight on 18 december 2009 .
+the guiana space centre ' s headquarters are located in french guiana , it is the location of the ela - 3 launchpad where the ariane 5 was launched . ela - 3 is operated by arianespace , which is located in courcouronnes .
+the aston martin dbs ( later succeeded by the am vantage ) and the aston martin v8 are related means of transport . the latter is assembled at newport pagnell by aston martin and has a 5 . 3 litre engine volume .
+the aston martin rham / 1 , and the aston martin dbs are related means of transport to the aston martin v8 . the latter vehicle is a coupe with a 5 . 3 litre engine and is assembled at newport pagnell .
+the aston martin v8 , suceeded by the the aston martin virage and made n the united kingdom , led by elizabeth ii . the vs , the virage ( made by aston martin ) and the aston martin dbs , are related modes of transportation .
+the audi a1 is a hatchback belonging to the supermini class . it has a 1 . 2 litre engine , a front - engine with front - wheel - drive and is assembled in brussels , belgium .
+made by audi , whose founder is august horch , is the audi a1 . subsidiaries of audi are the ducati , audi e - tron and lamborghini .
+the power type of the aidaluna , owned by aida cruises , is the caterpillar inc . engine . caterpillar , inc . was founded in california in the u . s . and is located in peoria , illinois .
+douglas r . oberhelman is the key person at caterpillar inc which was founded in the united states . the company powers the aidaluna which is owned by aida cruises located in rostock .
+douglas r . oberhelman is a key person at caterpillar inc . who provide the power type for the aidaluna owned by aida cruises . the company was founded in the united states and located in peoria , illinois .
+the aidastella , which was built by meyer werft , is operated by aida cruises . it ' s owner are costa crociere who are located in genoa and a subsidiary of carnival corporation & amp ; plc .
+finland is led by juha sipila and is home to the finns . sami languages are spoken there and the icebreaker ship , aleksey chirikov , was built there in the arctech helsinki shipyard .
+the builder of the a - rosa is neptun werft whose hq is in rostock , germany . berlin is the capital in that country and joachim gauck is the name of one of its leaders .
+the a rosa luna was built on the neptun werft which is found in rostock , germany . berlin is its capital and andreas vosskuhle is one leader there .
+the united states , has a capital city of washington d . c . , it ' s inhabitants are known as americans and an ethnic group that lives there are native americans . the language of the us is english and it is the creator of the atlas ii .
+abel hernandez is a member of penarol ' s youth club and the club is managed by jorge orosmán da silva . us citta di palermo and the central espanol are also mr . hernandez ' s clubs . the latter club is part of the uruguayan segunda división league .
+former soviet union international footballer aleksandr chumakov died in russia , where the leader is valentina matviyenko . fc torpedo moscow , managed by valery petrakov , once signed aleksandr chumakov .
+aleksandre guruli played for the olympique lyonnais club who play their home games at the parc olympique lyonnais and have the chairman , jean - michel aulas . his current club is fc karpaty lviv managed by oleh luzhny .
+defender alessio romagnoli , whose former clubs include uc sampdoria , has played for the serie a side ac milan , which is managed by siniša mihajlović .
+alessio romagnoli is a member of the italian national under 17 football team and has represented the club u . c . sampdoria . he is presently with the ac milan that is managed by siniša mihajlović and whose chairman is silvio berlusconi .
+central español , where abel hernandez played youth football , are part of the uruguayan segunda división league . hernández has represented uruguay at international level and also played for the club u . s . città di palermo , where the manager is giuseppe iachini .
+aleksandr prudnikov plays for fc spartak moscow who have their home ground at otkrytiye arena and are chaired by sergey rodionov . he also plays for fc amkar perm under the management of gadzhi gadzhiyev .
+aleksandr prydnikov belongs to fc terek grozny , which is managed by rashid rakhimov , and has its grounds at grozny . prudnikov plays for fc spartak moscow , which includes chairman sergey rodionov .
+aleksandr prudnikov once played for fc spartak moscow ' s youth team but now plays for the fc dynamo moscow and the fc terek grozny out of grozny . the fc terek grozny sees a manager in rashid rakhimov .
+aleksandr chumakov was born in the soviet union and was a member of the soviet union national football team . he has also played for fc torpedo moscow who are managed by valery petrakov and participated in the 2014 - 15 russian premier league .
+akeem adams is a member of the united petrotrin f . c . club and also ferencvarosi tc . the latter club , whose ground is palo seco , is chaired by gabor kubatov and managed by thomas doll .
+akeem adams belongs to ferencvárosi tc , which is managed by thomas doll and includes chairman gábor kubatov . he has played for united petrotrin f . c . , who play in palo seco velodrome .
+the epoch of 19255 1994 vk8 , which has a mass of 5 . 6 kilograms is december 31st , 2006 . its orbital period is 8 , 788 , 850 , 000 kilometres , with a periapsis of 6 , 155 , 910 , 000 , 000 kilometres and an apoapsis of 6 , 603 , 633 , 000 kilometres .
+101 helena was discovered by the canadian james craig watson on august 15th 1868 . mr watson , who studied at the university of michigan , died in madison , wisconsin .
+101 helena was discovered by james craig watson who originated from canada and graduated from the university of michigan . he later died of peritonitis in madison , wisconsin .
+walter baade , who had a doctoral student named allan sandage , was born in the german empire and graduated from the university of gottingen . he discovered 1036 ganymed and later died in gottingen .
+walter baade , born in the german empire and graduate of the university of gottingen , discovered 1036 ganymed . halton arp and allan sandage were doctoral students of walter baade .
+
+james craig watson , a canadian who attended the university of michigan , discovered 103 hera on sept . 7 , 1868 . he died in madison , wisconsin .
+103 hera was discovered by james craig watson , a canadian who studied at the university of michigan and died in madison , wisconsin . its periapsis is 371240000 . 0km .
+b . zellner was the discoverer of 107 camilla that has an orbital period of 2368 . 05 days . it ' s epoch is dec . 31 , 2006 . the celestial body has a periapsis of 479343000 . 0 kilometres and an apoapsis of 560937000 . 0 km .
+107 camilla , epoch date 31 december 2006 , was discovered by c woods and has an orbital period of 2368 . 05 days . the apoapsis and periapsis measurements are 560937000 . 0 km and 479343000 . 0 km respectively .
+107 camilla , which has an epoch date of december 31st 2006 , was discovered by f . vilas . its orbital period is 2 , 368 . 05 days , its periapsis is 479 , 343 , 000 kilometres and has an apoapsis of 560 , 937 , 000 kilometres .
+n . r . pogson was born in nottingham in the u . k . and died in chennai . he discovered 107 camilla which has an absolute magnitude of 7 . 08 .
+1089 tama was formerly known as a919 ha ; 1927 wb , has an epoch of november 26th , 2005 and an orbit of 1 , 202 . 846 days . its escape velocity is . 0068 kilometres a second and it has an apoapsis of 373 , 513 , 000 kilometres .
+the epoch of 1101 clematis is on the 31st of july 2016 and it has a mass of 5 . 7 kilos . the orbital period for 1101 clematis is 183309000 . 0 , has an apoapsis of 520906000 . 0 kilometres , and an escape velocity of 0 . 02 kilometres per second .
+11264 claudiomaccone has the epoch date of 26 november 2005 , its temperature is 173 . 0 kelvins and has an orbital period of 1513 . 722 days . it has a periapsis of 296521000 . 0 kilometres and its apoapsis is 475426000 kms .
+abdul taib mahmud was born in miri , malaysia , on may 21st 1936 and lives in kuching . he represented asajaya and was a member of the parti pesaka bumiputera bersatu .
+abdul taib mahmud was born in the kingdom of sarawak and lives in demak jaya , jalan bako , kuching , sarawak . he is a member of the parti pesaka bumiputera bersatu and was succeeded by the university of adelaide educated adenan satem .
+abdulsalami abubakar ended his career on 1999 - 05 - 29 , having been in office while mike akhigbe was the vice president . oladipo diya was predecessor to mike akhigbe , who belonged to the nigerian navy branch of the military and his successor was atiku abubakar .
+abdulsalami abubakar , who served in the nigerian army , ended his career on may 29th , 1999 and served in office while mike akhigbe was the vice president . akhigbe succeeded oladipo diya while olusegun obasanjo took over from abubaka when he left office .
+abraham a ribicoff was an american national born in connecticut . he was a member of the united states democratic party and held the office of governor of connecticut before he died in the us .
+abraham a . ribicoff who was born in connecticut , united states , worked as the united states secretary of health , education , and welfare and he was a member of the democratic party in the united states . he died in new york city .
+abraham a . ribicoff was born in connecticut . he was married to casey ribicoff . he was also a national to the united states and he died in new york . the native americans are an ethnic group in the u . s .
+gravesham parliament member and magdalene college cambridge alum adam holloway , was born in kent . a grenadier guard , he began his career 05 / 05 / 2005 .
+englishman adam holloway , born in faversham , kent and having attended magdalene college in cambridge , then joined the grenadier guards . he is a member of the uk conservative party and began his political career on 5th may 2005 .
+adonis georgiadis , was born in athens , greece and was succeeded by makis voridis . adonis georgiadis , was in office while antonis samaras was prime minister . antonis samaras was in office while konstantinos mitsotakis was prime minister .
+agnes kant is a national of the netherlands , where the leader is , mark rutte . agnes kant worked at the house of representatives in the netherlands . emile roemer is leader and member of the socialist party in the netherlands .
+agnes kant is a national of the netherlands which is led by mark rutte . she was a resident of doesburg and worked at the house of representatives which is led by khadija arib .
+agnes kant of netherlands lives in doesburg . mark rutte is leader of the country and one of its political parties is the socialist party which is led by emile roemer .
+born on the 22nd of september , 1856 , albert b white died at parkersburg , west virginia on 1941 - 07 - 03 .
+cleveland born albert b white , whose wife was agnes ward white , died in parkersburg , west virginia . he was succeeded by william m o dawson , who was born in bloomington , maryland .
+albert b white was born in cleveland and was married to agnes ward white . he worked as the governor of west virginia and finished his career on 4 march 1905 being succeeded by william m o dawson .
+succeeded by william m . o . dawson , albert b . white was born in cleveland and was a member of the republican party in the united states . albert b . white started his career on march 4 , 1901 and finished his career on march 4th 1905 .
+alberto teisaire was in office while labour party member juan peron , who was married to eva peron , was president of argentina . teisaire died in buenos aires whose leader is horacio rodríguez larreta .
+born on 1891 - 05 - 20 , born in mendoza , argentina , alberto teisaire , was a rear admiral by profession . he worked as the provisional president of the argentine senate and his successor was isaac rojas .
+alfons gorbach ' s place of birth was the state , tyrol , in austria . he was a politician from the austrian people ' s party , who died in graz , in styria .
+alfons gorbach was born in imst in tyrol and died in graz in styria . he was a politician from the austrian people ' s party .
+alvah sabin represented vermont ' s 3rd congressional district and his career ended on march 3rd 1857 . he was from vermont , where the largest city is burlington and he died in sycamore , illinois .
+burlington is the largest city in vermont , where alvah sabin was born . he represented vermont ' s 3rd congressional district and died in sycamore , illinois .
+native americans are the ethnic group in the united states . alfred moore scales lived in the united states and involved in was the battle of gettysburg . the battle of gettysburg was part of the american civil war conflict , during which , one of the commanders was jefferson davis .
+native americans are one of the ethnic groups in the united states , alfred moore scales ' s country . alfred moore scales took part in the siege of petersburg , which occurred during the american civil war . jefferson davis was a commander in the american civil war .
+argentina ' s labour party president juan peron was married to eva peron . argentina is spanish speaking and home to alberto teisaire ( in office during peron ' s leadership ) .
+aaron bertram plays for the kids imagine nation and the suburban legends bands , where he performs ska punk music , a form of punk rock . brian robertson , a trombonist , is a band member of suburban legends .
+aaron deer comes from indiana , having been born in the united states . he is a solo singer / performer of the musical genre indie rock , and is an artist for the wee giant band .
+aaron turner came from the u . s . he is a black metal musician who started performing in 1995 . he plays in the lotus eaters band having previously performed with old man gloom .
+aaron turner is from massachusetts . he is a musician who loves sludge metal and played with the band twilight as well as the lotus eater ' s band , in 1995 .
+abradab was born in katowice , poland on 12 november 1978 . he is associated with the rapper magik and played with the kaliber 44 band .
+solo singer ace wilder was born on july 23 , 1982 in the country of sweden .
+ace wilder was born in stockholm on july 23 , 1982 . he is a songwriter with a background as a solo singer .
+ace wilder is a hip hop musician . hip hop originates from funk and disco . gangsta rap is a sub genre of hip hop and drum and bass is a derivative of it .
+hip hop musician ace wilder was born in sweden . hip hop has its origins in funk and disco while being an influence on drum and bass .
+musician al anderson was born in windsor connecticut and began his career in 1966 . he was a member of the band the wildweeds and is now part of the rock group nrbq .
+al anderson is a guitarist and rock musician with the band nrbq . rock originates from country music and is an influence on the fusion style of bhangra .
+alan frew is from coatbridge , newmarket , ontario , canada and he is a musician and solo singer .
+pop music solo singer aleksandra kovač was born 1972 , in the socialist republic of serbia . disco is a fusion of pop music .
+rhythm and blues singer aleksandra kovač , began her career circa 1990 and is a member of the duo k2 , with kornelije kovač .
+alfred garth jones was born in manchester , england in the united kingdom in 1872 . he died in london .
+alfred garth jones was sidcup was born in manchester and died , in boris johnson and european parliament led , sidcup , london .
+alfred garth jones was born in manchester and passed away in sidcup , london . the labour party is the leader of manchester . the european parliament is the leader of london .
+ireland folk musician alison o ' donnell is signed to floating world records and became active in 1963 . she is associated with the flibbertigibbet band and mellow candle .
+funk is derived from jazz music as performed by alison o donnell . she is signed with the record label stanyan records and also deram records which is based in london .
+alison o ' donnell , who plays the autoharp , is a performer of jazz , which has its origins on folk music . jazz has a derivative called funk and a fusion genre named afrobeat .
+jazz singer alison o ' donnell plays the bodhran , percussion and autoharp . jazz derives from funk and blues while being an influence on funk and afrobeat fusion .
+allen forrest was born in fort campbell , dothan , alabama in 1981 . he plays acoustic music and has a background as a solo singer .
+anders osborne , a rock musician , started performing in 1989 and has worked with galactic and voice of the wetlands all - stars band . mr . osborne is associated with billy iuso .
+anders osborne began his blues musical career in 1989 and has worked with galactic , tab benoit and billy iuso .
+andra is a dance - pop singer who was born in campia , turzii in 1986 . she began her career as a solo singer and makes her living as a singer and reality television judge .
+the singer andra was born in romania in 1986 and performs rhythm and blues as a solo artist .
+andrew rayel is associated with a number of musical artists , these include : armin van buuren , bobina , mark sixma , jonathan mendelsohn , christian burns , jwaydan , alexander popov , jano , alexandre bergheau , jonny rose , sylvia tosun , lira yin , and alexandra badoi . his musical genre is trance music which has its stylistic origins in pop .
+andrew rayel was born in chisinau moldova . he ' s an associate of armin van buuren and christian burns . mr rayel ' s musical genre is trance which he started in 2009 .
+andrew rayel was born in chisinau , moldova and began his trance music career in 2009 . he is associated with jwaydan moyine and bobina .
+string instrumentalist andrew rayel , who performs trance music , is associated with christian burns and jwaydan moyine , the latter of which has worked with the musical artist john digweed .
+b - unique records and polydor records artist andrew white began in 2003 and is associated with the kaiser chiefs and artist marry banilow .
+allen forrest was born in fort campbell and is a hip hop musician . hip hop originates from funk and disco and was derived into drum and bass music .
+allen forrest was born in 1981 and plays hip hop music . hip hop originated from disco and funk musics . drum and bass gets its sounds from hip hop .
+alfred garth jones was born in manchester , where the labour party is in the majority and died in sidcup , london . parliament of the united kingdom is the leader of london .
+agustin barboza was born in asuncion , paraguay where the people speak spanish . juan afara leads the country and an ethnic group in paraguay are the mestizo people .
+musician andrew white , is signed to the record label b - unique records and is signed to the london based , record label , polydor records . his genre is alternative rock , the fusion genre of which , is nu metal .
+andrew white is an alternative rock musician with polydor records and was once with universal records . polydor records is in london . nu metal is a fusion of alternative rock sounds .
+al anderson plays the guitar for rock band nrbq . rock comes from country music which originates from blues . bhangra music is a musical fusion of rock music .
+the banjo is a staple of country music , the origin of rock , which is also inspired by the blues . rock lends itself to bhangra and is the style of al anderson and nrbq .
+aaron turner plays electric guitar and played with the black metal twilight band and the old man gloom band . a fusion of black metal is called death metal .
+alfredo zitarrosa died in montevideo , the leader of which , is daniel martinez . montevideo is in uruguay , where spanish is the language and where raúl fernando sendic rodríguez is the leader .
+blue spice is a coffee shop in city centre .
+at the riverside , there is a coffee shop called the blue spice .
+the blue spice coffee shop , near crowne plaza hotel , has a customer rating of 5 out of 5 .
+the blue spice coffee shop near burger king has good customer ratings with excellent food and service , with a lovely atmosphere .
+
+blue spice is a pub in city centre .
+at the riverside , there is a pub called the blue spice .
+near the rainbow vegetarian café , by the riverside is a pub called the blue spice . it is not suitable for families .
+blue spice is a child - friendly pub near rainbow vegetarian café in the riverside area .
+the blue spice pub , near crowne plaza hotel , has a customer rating of 5 out of 5 .
+the blue spice pub near burger king has good customer ratings with excellent food and service , with a lovely atmosphere .
+
+
+there is a pub blue spice located in the centre of the city that provides chinese food . it is not family friendly and is located near rainbow vegetarian café .
+in the city centre near the rainbow vegetarian café there is a family friendly pub called blue spice . they serve chinese food .
+a pub named blue spice is located in the city centre . it is for adults and is close to rainbow vegetarian café . they offer chinese food .
+blue spice , a pub located riverside near the rainbow vegetarian café , serves chines food . it is not family friendly .
+blue spice , a kid - friendly pub near the rainbow vegetarian café in the riverside area , is a place where one can order chinese food .
+blue spice is a pub providing chinese food it is located in the riverside . it is near rainbow vegetarian café .
+blue spice is a pub that serves english food . it is located near rainbow vegetarian café is the city centre area . it is also a pub . it is not family - friendly .
+near the rainbow vegetarian café in the city centre , you will find the family - friendly pub blue spice , serving an english food menu .
+there is a riverside pub near the rainbow vegetarian café called blue spice . it serves english food but is not family - friendly .
+near the rainbow vegetarian café , area riverside , the blue spice pub , serves english food and has a family friendly atmosphere
+
+blue spice has a no children policy , it is a pub sat next to the river that provides english breakfast not far from rainbow vegetarian café .
+
+near the rainbow vegetarian café , by the riverside is a restaurant called the blue spice . it is not suitable for families .
+blue spice is a child - friendly restaurant near rainbow vegetarian café in the riverside area .
+
+there is a restaurant blue spice located in the centre of the city that provides chinese food . it is not family friendly and is located near rainbow vegetarian café .
+in the city centre near the rainbow vegetarian café there is a family friendly restaurant called blue spice . they serve chinese food .
+a restaurant named blue spice is located in the city centre . it is for adults and is close to rainbow vegetarian café . they offer chinese food .
+blue spice , a restaurant located riverside near the rainbow vegetarian café , serves chines food . it is not family friendly .
+blue spice , a kid - friendly restaurant near the rainbow vegetarian café in the riverside area , is a place where one can order chinese food .
+blue spice is a restaurant providing chinese food it is located in the riverside . it is near rainbow vegetarian café .
+blue spice is a restaurant that serves english food . it is located near rainbow vegetarian café is the city centre area . it is also a restaurant . it is not family - friendly .
+near the rainbow vegetarian café in the city centre , you will find the family - friendly restaurant blue spice , serving an english food menu .
+there is a riverside restaurant near the rainbow vegetarian café called blue spice . it serves english food but is not family - friendly .
+near the rainbow vegetarian café , area riverside , the blue spice restaurant , serves english food and has a family friendly atmosphere
+
+blue spice has a no children policy , it is a restaurant sat next to the river that provides english breakfast not far from rainbow vegetarian café .
+
+near all bar one there is a coffee shop named clowns and it is rated 3 out of 5 .
+the coffee shop clowns is near crowne plaza hotel and has a customer rating of 5 out of 5 .
+
+
+
+near all bar one there is a pub named clowns and it is rated 3 out of 5 .
+the pub clowns is near crowne plaza hotel and has a customer rating of 5 out of 5 .
+
+
+
+there is a coffee shop named cocum located near burger king . this coffee shop has a high customer rating .
+near café sicilia is a high rated coffee shop called cocum
+
+cocum coffee shop near express by holiday inn received a low customer rating .
+
+for a coffee shop near the rice boat , try cocum .
+
+
+there is a pub named cocum located near burger king . this pub has a high customer rating .
+near café sicilia is a high rated pub called cocum
+
+cocum pub near express by holiday inn received a low customer rating .
+
+for a pub near the rice boat , try cocum .
+
+
+a coffee shop called cotto is situated near the bakers .
+a pub called cotto is situated near the bakers .
+for french food and coffee , you can go to giraffe . in the city centre , near raja indian cuisine . please note it is not family - friendly .
+giraffe is a coffee shop found near the bakers .
+near to the rice boat there is a coffee shop called giraffe .
+
+
+giraffe is a pub , located near the rainbow vegetarian café on the river . it is not family friendly .
+even if it ' s not family - friendly , if you are searching for a pub near the riverside and raja indian cuisine , giraffe is a great place to go to .
+giraffe is a children - friendly pub that provides fast - food in the riverside area near the rainbow vegetarian café .
+
+giraffe is a non - family friendly pub located near rainbow vegetarian café .
+giraffe is a pub that is children friendly and provides english food . it is located on the riverside near rainbow vegetarian café .
+giraffe is a pub and fast food place that is not family - friendly near the rainbow vegetarian café in the city centre .
+in city centre near rainbow vegetarian café there is a fast food pub named giraffe , which is family - friendly .
+
+giraffe is a no family - friendly pub providing fast food . it is located near rainbow vegetarian café in the riverside .
+located near the rainbow vegetarian café , a fast food pub is family friendly , and situated riverside called giraffe .
+giraffe is a pub near raja indian cuisine in riverside . it is considered to be fast food and children are welcome .
+if your kids want fast food , try giraffe pub near the rainbow vegetarian café in riverside .
+
+
+giraffe provides french food and is not family - friendly . located in the city centre near the raja indian cuisine it provides a pub atmosphere .
+the giraffe is a pub - family - friendly serving french food in the city centre , near the raja indian cuisine
+if you ' re looking for somewhere that isn ' t family - friendly , riverside has giraffe , a french pub near the raja indian cuisine .
+giraffe is a pub that has french food and is children friendly . it is located near raja indian cuisine on the riverside .
+the giraffe is a pub serving french food . it ' s near the raja indian cuisine in riverside . just don ' t bring the kids
+
+giraffe is a whole foods pub located near raja indian cuisine . it is not intended for the whole family .
+giraffe is a pub found near the bakers .
+near to the rice boat there is a pub called giraffe .
+
+
+giraffe is a restaurant , located near the rainbow vegetarian café on the river . it is not family friendly .
+even if it ' s not family - friendly , if you are searching for a restaurant near the riverside and raja indian cuisine , giraffe is a great place to go to .
+giraffe is a children - friendly restaurant that provides fast - food in the riverside area near the rainbow vegetarian café .
+
+giraffe is a non - family friendly restaurant located near rainbow vegetarian café .
+giraffe is a restaurant that is children friendly and provides english food . it is located on the riverside near rainbow vegetarian café .
+giraffe is a restaurant and fast food place that is not family - friendly near the rainbow vegetarian café in the city centre .
+in city centre near rainbow vegetarian café there is a fast food restaurant named giraffe , which is family - friendly .
+
+giraffe is a no family - friendly restaurant providing fast food . it is located near rainbow vegetarian café in the riverside .
+located near the rainbow vegetarian café , a fast food restaurant is family friendly , and situated riverside called giraffe .
+giraffe is a restaurant near raja indian cuisine in riverside . it is considered to be fast food and children are welcome .
+if your kids want fast food , try giraffe restaurant near the rainbow vegetarian café in riverside .
+
+
+giraffe provides french food and is not family - friendly . located in the city centre near the raja indian cuisine it provides a restaurant atmosphere .
+the giraffe is a restaurant - family - friendly serving french food in the city centre , near the raja indian cuisine
+if you ' re looking for somewhere that isn ' t family - friendly , riverside has giraffe , a french restaurant near the raja indian cuisine .
+giraffe is a restaurant that has french food and is children friendly . it is located near raja indian cuisine on the riverside .
+the giraffe is a restaurant serving french food . it ' s near the raja indian cuisine in riverside . just don ' t bring the kids
+
+giraffe is a whole foods restaurant located near raja indian cuisine . it is not intended for the whole family .
+the riverside has many lovely pubs , none more so than the giraffe , near to the rainbow vegetarian café is a great to enjoy english food in a family friendly setting .
+if you are near the express by holiday inn in riverside , bring the kids to green man for some coffee .
+the green man coffee shop received a rating of 1 out of 5 . it is located near all bar one .
+a coffee shop called green man is near all bar one , their customer rating is 3 out of 5 .
+
+the green man is a sushi and coffee place near the express by holiday inn and does not permit families .
+
+
+
+
+the green man pub received a rating of 1 out of 5 . it is located near all bar one .
+a pub called green man is near all bar one , their customer rating is 3 out of 5 .
+the green man is a pub located next to express by holiday inn . the green man is a non family friendly pub .
+
+italian food is available in a children friendly pub green man near express by holiday inn in riverside
+green man is a pub that is family friendly serving italian food near the raja indian cuisine along the riverside .
+
+
+the green man is a pub near express by holiday inn in the city centre which serves japanese food . it is not family - friendly .
+near the express by holiday inn in the city centre is green man . it is a japanese pub that is family - friendly .
+located by the riverside near the express by holiday inn is a pub named green man offering japanese food in a non - family - friendly environment .
+green man is a children friendly pub that serves japanese food . it is by the riverside near express by holiday inn .
+featuring japanese cuisine and a pub atmosphere , the green man is situated on the riverside , near the express by holiday inn .
+there is a child friendly japanese pub named green man that is located near the express by holiday inn .
+a pub with japanese food is green man and is next to express by holiday inn .
+
+
+
+
+
+the green man is a restaurant located next to express by holiday inn . the green man is a non family friendly restaurant .
+
+italian food is available in a children friendly restaurant green man near express by holiday inn in riverside
+green man is a restaurant that is family friendly serving italian food near the raja indian cuisine along the riverside .
+
+
+the green man is a restaurant near express by holiday inn in the city centre which serves japanese food . it is not family - friendly .
+near the express by holiday inn in the city centre is green man . it is a japanese restaurant that is family - friendly .
+located by the riverside near the express by holiday inn is a restaurant named green man offering japanese food in a non - family - friendly environment .
+green man is a children friendly restaurant that serves japanese food . it is by the riverside near express by holiday inn .
+featuring japanese cuisine and a restaurant atmosphere , the green man is situated on the riverside , near the express by holiday inn .
+there is a child friendly japanese restaurant named green man that is located near the express by holiday inn .
+a restaurant with japanese food is green man and is next to express by holiday inn .
+if you ' re looking for kid friendly italian food in the riverside area - then the green man is for you . it is near the express by holiday inn .
+
+the loch fyne is a coffee shop in the riverside area of the city .
+
+the loch fyne is a pub in the riverside area of the city .
+the customer rated 1 out of 5 , strada is near rainbow vegetarian café .
+the strada is a city centre area coffee shop .
+near all bar one is the strada coffee shop with a customer rating of 1 out of 5 .
+near rainbow vegetarian café , there is a coffee shop called strada with customer rating 1 out of 5 .
+strada coffee shop has a low customer rating and is located near express by holiday inn .
+
+the strada is a city centre area pub .
+near all bar one is the strada pub with a customer rating of 1 out of 5 .
+near rainbow vegetarian café , there is a pub called strada with customer rating 1 out of 5 .
+strada pub has a low customer rating and is located near express by holiday inn .
+
+the cricketers located near a ranch is child friendly and has a low customer rating
+near the avalon is the cricketers which is a children friendly coffee shop with a 1 out of 5 customer rating
+
+the cricketers is a coffee shop located near avalon . it is children friendly and has a 3 out of 5 customer rating .
+given 3 out of 5 , the cricketers is a kid friendly coffee shop near crowne plaza hotel .
+the cricketers , a coffee shop near crowne plaza hotel , is highly rated but not family - friendly .
+
+the cricketers coffee shop near crowne plaza hotel is family - friendly and has a customer rating of 5 out of 5 .
+
+close to café sicilia you ' ll find the cricketers , an average rated coffee shop not so child friendly
+
+the cricketers coffee shop has an average customer rating and is family - friendly . they are located near the café sicilia .
+the cricketers is a child friendly coffee shop with a high customer rating . it is located near the café sicilia .
+the cricketers , near express by holiday inn , is a children friendly coffee shop with a high customer rating .
+
+the cricketers is a coffee shop near express by holiday inn . it is not family - friendly and has a low customer rating .
+the cricketers is a coffee shop with a low customer rating , located near ranch . it is not family - friendly .
+the cricketers is a family - friendly coffee shop near the ranch , but it has a low customer rating .
+
+
+
+
+
+child friendly a coffee shop called the cricketers is located near avalon .
+the cricketers is a family friendly coffee shop located near café sicilia .
+the cricketers is a children friendly coffee shop . it is located near a crowne plaza hotel and has perfect ratings .
+a popular child friendly coffee shop is the cricketers located near express by holiday inn .
+
+
+
+
+
+
+
+
+
+
+the cricketers coffee shop near express by holiday inn is a high end experience for the entire family .
+
+the cricketers restaurant is family - friendly , mid price range , and is located on the river near all bar one .
+
+
+near the avalon is the cricketers which is a children friendly restaurant with a 1 out of 5 customer rating
+
+the cricketers is a restaurant located near avalon . it is children friendly and has a 3 out of 5 customer rating .
+given 3 out of 5 , the cricketers is a kid friendly restaurant near crowne plaza hotel .
+the cricketers , a restaurant near crowne plaza hotel , is highly rated but not family - friendly .
+
+the cricketers restaurant near crowne plaza hotel is family - friendly and has a customer rating of 5 out of 5 .
+
+close to café sicilia you ' ll find the cricketers , an average rated restaurant not so child friendly
+
+the cricketers restaurant has an average customer rating and is family - friendly . they are located near the café sicilia .
+
+the cricketers is a child friendly restaurant with a high customer rating . it is located near the café sicilia .
+the cricketers , near express by holiday inn , is a children friendly restaurant with a high customer rating .
+
+the cricketers is a restaurant near express by holiday inn . it is not family - friendly and has a low customer rating .
+the cricketers is a restaurant with a low customer rating , located near ranch . it is not family - friendly .
+the cricketers is a family - friendly restaurant near the ranch , but it has a low customer rating .
+
+the cricketers is a family friendly restaurant located next to all bar one .
+child friendly a restaurant called the cricketers is located near avalon .
+the cricketers is a family friendly restaurant located near café sicilia .
+the cricketers is a children friendly restaurant . it is located near a crowne plaza hotel and has perfect ratings .
+a popular child friendly restaurant is the cricketers located near express by holiday inn .
+
+
+
+
+
+1 out of 5 customer rated , mid priced family friendly chinese restaurant called the cricketers is in the city center . , near all bar one .
+the cricketers is a highly priced adult only restaurant that offers chinese food . it has a 1 out of 5 customer rating and is located by all bar one in the riverside area .
+the cricketers a restaurant that serves chinese food that is located in the riverside area near all bar one was rated a 1 out of 5 by their customers . the cricketers is a kid friendly establishment and the pricing is moderate .
+
+there is a restaurant near the all bar one in the city centre called the cricketers . it has a 3 out of 5 customer rating , no kids allowed and they serve chinese .
+
+
+
+
+the cricketers is a highly rated restaurant located in the city centre near all bar one . it provides chinese food in the £ 20 - £ 25 price range and is not kid friendly .
+
+the cricketers is a restaurant which also does chinese food . it has a high customer rating and you can expect to spend £ 20 - £ 25 . it is child friendly and gets a high customer rating . you can find it on the riverside near all bar one .
+if you ' re looking for a family friendly restaurant , the cricketers just may be your spot . for less than twenty dollars , you get chinese food . the customer rating is low , but it is family friendly . the cricketers is located in the city centre near all bar one .
+
+
+
+
+
+the cricketers is a cheap restaurant serving chinese food with okay reviews . it is located in the city centre near all bar one and is family friendly .
+restaurant the cricketers in city centre near all bar one provides low price chinese food with customer rating 5 out of 5 . it is not family friendly .
+the cricketers is a restaurant that serves chinese food with a cheap price range , a 5 out 5 star customer rating , and is also kid friendly located near all bar one in the city centre .
+
+the cricketers can be found in the riverside area near all bar one . it has excellent customer reviews despite the fact that it is not family friendly . it serves cheap chinese food in a restaurant setting .
+the cricketers is a chinese food restaurant with inexpensive food . although they do not allow children , they do have a high customer rating . they are near the riverside by all bar one .
+
+
+
+the cricketers is a restaurant providing chinese food in the cheap price range . it is located in the city centre . it is near all bar one . its customer rating is average .
+the cricketers is not a family friendly restaurant that serves chinese food in the riverside area near the all bar one that offers cheap food with an average customer rating .
+the cricketers is a restaurant serving chinese food in the riverside area near to all bar one . it ' s cheap and family friendly with an average customer rating .
+the cricketers is a restaurant providing chinese food in the cheap price range . it is located in the riverside . it is near all bar one . its customer rating is average .
+
+
+
+
+
+a restaurant called the cricketers sells chinese food in is location in the city centre near all bar one . this place isn ' t child friendly and it has with a high price with and a 1 out of 5 rating .
+the cricketers is a restaurant service chinese food in the high price range with a customer rating of 1 out of 5 , but is child friendly , near all bar one in city centre .
+
+the cricketers is a restaurant offering chinese food . it is in the high price range and has a customer rating of 1 out of 5 . it is located by the riverside , near a all bar one . it is not children friendly .
+a child friendly chinese restaurant called the cricketers , has a rating of 1 out of 5 , with a high price range and is located riverside , near all bar one .
+
+in the city centre near all bar one , there is a restaurant called the cricketers . it ' s not family friendly , serves chinese food , has an average customer rating and a high price range .
+the cricketers is a chinese restaurant in the city centre area nearby all bar one . they have an average customer rating , a high price range , and are not child - friendly .
+
+the cricketers is a restaurant providing chinese food in the high price range . it is located in the city centre . it is near all bar one . its customer rating is average .
+there is an expensive restaurant the cricketers , offering chinese food and is located at riverside near all bar one . it is not child friendly and has an average rating .
+the cricketers is a high priced , average rated , kid friendly chinese restaurant near all bar one in riverside .
+the cricketers is a chinese restaurant near all bar one in riverside . it is high priced with an average rating .
+
+the cricketers restaurant serves chinese food in the high price range with an average customer rating in the city centre near all bar one and is children friendly
+
+
+
+
+
+the cricketers is in the center . of the city near all bar one , and is family friendly with a low customer rating . it is a restaurant which serves chinese food with a price range of less than £ 20 .
+the cricketers is a restaurant providing chinese food in the less than £ 20 price range . it is located in the city centre . it is near all bar one . its customer rating is low .
+the cricketers is a restaurant providing chinese food in a price range less than 20 pounds . it is located at the riverside , near all bar one . the customer rating is low and it is not family friendly .
+the cricketers is a restaurant serving chinese food for less than 20 pounds . they have a low customer rating . the cricketers can be found along the riverside near all bar one and it is family friendly .
+
+
+
+the cricketers is a restaurant with chinese food in the city centre near all bar one . it is not family friendly , has a moderate price range and a customer rating of 1 out of 5 .
+there is a chinese restaurant in the city center . called the cricketers , it is situated near a all bar one and is moderately priced and child friendly with a low customer rating .
+
+at the riverside near all bar one is a restaurant called the cricketers . it serves moderate priced chinese food and is customer rated 1 out of 5 . it is not kid friendly .
+the cricketers is a restaurant providing chinese food in the moderate price range . it is located in the riverside . it is near all bar one . its customer rating is 1 out of 5 .
+the cricketers located in the city centre near all bar one is not kid friendly , but has a customer rating of 3 out of 5 a restaurant serving chinese cuisine with a moderate price range .
+the cricketers is located in the city centre near all bar one . it is a moderately - priced , kid friendly restaurant which also offers chinese food . it has a customer rating at 3 out of 5 .
+
+the cricketers restaurant and chinese near all bar one in the riverside area offers moderate prices with a 3 out of 5 rating , but is not kid friendly .
+located in the riverside area , the cricketers is a restaurant that also sells chinese food . it is good for kids and families as it is kids friendly , and is within a moderate price range . this restaurant has an overall customer rating of 3 out of 5 . it can be found near all bar one in the riverside area .
+
+
+the chinese cricketers restaurant which is in the center . of town , does cost more than 30 pounds . the cricketers does have a high customer rating even though not child friendly . there is a all bar one nearby .
+located near all bar one , the cricketers is a restaurant styled joint that sells chinese food . this shop is known in the city centre for its high prices , family friendly atmosphere , and high ratings .
+
+a chinese restaurant , the cricketers , is located in riverside near all bar one . it is in the high price range , is rated high by customers , and is not child - friendly .
+
+
+the cricketers is a chinese restaurant . it is expensive and has a high customer rating . it isn ' t kid friendly and near all bar one .
+
+
+
+
+the cricketers restaurant serves chinese food , with high customer rating and price range £ 20 - 25 , it ' s no children friendly and is located in riverside near all bar one .
+the cricketers , restaurant and chinese , is near all bar one in riverside . children not allowed . high customer rating and price range £ 20 - 25 .
+
+
+
+
+
+the cricketers is a highly priced english restaurant that has earned an average rating from its customers . although not kid friendly it is located in the riverside area near café rouge .
+the cricketers is a kid friendly restaurant . it ' s located in the centre of the city , near all bar one . it serves english food and has a high customer rating .
+
+
+
+the cricketers is an english food and restaurant . it is located in the city centre near café rouge and has been rated by customers as a kid - friendly , average place with a cheap price range .
+there ' s a cheap place by the river called the cricketers . it ' s a very popular restaurant . it ' s a family friendly place that serves english food . it ' s by the café rouge .
+
+the cricketers is a cheap , non - family - friendly restaurant with a 5 out of 5 customer rating . this restaurant , which features english food is located in the centre of the city near a café rouge .
+restaurant called the cricketers is family - friendly , sells english food and is cheap with a customer rating 5 out of 5 in the city centre near café rouge
+near café rouge in the city center you will find a 5 star cheap restaurant suited for couples named the cricketers that serves english food .
+
+on the riverside area near café rouge you can visit cheap family friendly restaurant called the cricketers that serves english food . customer rated 5 out of 5 .
+the cricketers is a cheap , 5 out of 5 rated restaurant that is located in riverside near café rouge . it offers english food .
+not for families , the cricketers is a restaurant in the city centre near café rouge where you can enjoy cheap english food with an average rating .
+the restaurant the cricketers located in the city centre near café rouge serves average quality english food very cheap but is family - friendly .
+
+the cricketers is a cheap restaurant on the riverside . it serves english food and has an average customer rating . it is child friendly and can be found close to café rouge .
+
+
+
+there is an english family friendly restaurant called the cricketers on the riverside . it is near café rouge . it has a cheap price range and average customer rating .
+
+a high priced english restaurant , the cricketers near the city centre ' s café rouge had achieved a poor rating from its customers and isn ' t child friendly .
+a restaurant located in the city centre near café rouge is the cricketers . english food and children friendly it has a high prices and customers have rated it 1 out of 5 .
+a restaurant called the cricketers has a high price range . located in riverside near café rouge , the restaurant offers english food with a customer rating of 1 out of 5 . it is not child friendly .
+the cricketers is an english restaurant which is child friendly , has a high price range but has a customer rating of 1 out of 5 . it is located by the riverside near a café rouge .
+
+there is an english restaurant near café rouge called the cricketers with a high price range and 1 out of 5 customer rating .
+
+for a high priced english restaurant with an average rating that is based in the city centre near to café rouge that isn ' t children - friendly then the cricketers is the place to go
+a restaurant with english food is the cricketers which is in the city centre near café rouge . it is children - friendly , with an average customer rating , and is in the high price range .
+the cricketers is near café rouge in riverside . it serves expensive english food in a restaurant setting . it ' s not child friendly , but has average ratings .
+
+
+
+
+the cricketers is an english restaurant near all bar one in the city centre with a price range £ 20 - 25 and is not kid friendly .
+
+if you are looking for an english restaurant , i recommend the cricketers located in the city centre near the all bar one . its customer rating is very high and has a price range of about 20 to 25 pounds . it is not kid friendly .
+in the city centre near all bar one , there is a kids friendly restaurant serving english food called the cricketers . it has a high customer rating and a price range of £ 20 - 25 .
+
+near all bar one in the riverside area is an english restaurant called the cricketers . they are not conducive for kids , but the prices are between £ 20 - 25 and they highly rated .
+
+
+
+
+the cricketers restaurant near express by holiday inn is a high end experience for the entire family .
+
+
+
+with a low price range and an average customer rating , the cricketers is a family friendly restaurant near café rouge by the riverside in the city centre .
+the cricketers is a high priced family restaurant located near café rouge and the river .
+
+
+
+the cricketers comes customer approved , they are located near café sicilia and offer family friendly dining .
+the cricketers is a family - friendly 5 out 5 rating store near the crowne plaza hotel
+
+
+
+the cricketers serves low cost english style food . it can be found on the riverside near café rouge . while they are not family - friendly it has received 5 out of 5 in customer reviews .
+welcome to the the cricketers . we are not children friendly . our food is english , and we are located on the city centre near café rouge . our price range is cheap .
+
+
+
+
+
+
+
+
+
+leave the kids at home , while you quickly feed your needs at the mill . this 1 out of 5 establishment is near café sicilia in riverside and is also very expensive coffee .
+the mill is an upscale pub offering tasty fried fare , and is located several blocks from the city center . it is family friendly , although on the pricey side . it is located near the café sicilia .
+
+
+the mill is a pub , located in the area of riverside , near the café sicilia .
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+the mill pub has a good offer on soft drinks , potato fries and burgers . the quality is all right for the money and it is a family friendly local , nearby café sicilia .
+
+the mill is a family friendly pub with prices less that £ 20 . this english pub is located by riverside near raja indian cuisine .
+
+you can enjoy british cuisine at the mill , a family pub in the mid - price range by a river and near raja indian cuisine .
+the mill is a pub near raja indian cuisine and offers english food and is child friendly . it is in riverside and is expensive .
+
+
+there is a family - friendly pub called the mill in the city centre near raja indian cuisine . it serves english food in low price range .
+
+there is a adults only cheap pub the mill serving english food located in the riverside area near raja indian cuisine
+the mill pub offers a family friendly environment with a price range of less than £ 20 . we offer english food near raja indian cuisine in the riverside area .
+the mill , is a pub and is family - friendly , cheap and reasonable priced is very good for the family , we provide full english food . located near raja indian cuisine in the city centre .
+the mill is a non kids friendly pub , that has moderate price ranged english food . it is located near raja indian cuisine in the city center .
+the mill is a pub with moderate price featuring english food and is kid friendly and is located near raja indian cuisine in the city centre .
+the mill is a pub located in riverside near raja indian cuisine . it offers english food with a moderate price range . it is not a kid friendly establishment .
+the mill is a pub that serves english style food . it is moderately priced and kid friendly . it is located on the riverside near raja indian cuisine .
+
+
+the mill is a pub near raja indian cuisine . it is on the riverside and is child friendly . the food is english and over £ 30 .
+
+the mill is an average non family - friendly pub that has fast food near café sicilia in the city centre .
+the mill is a fast food pub located in city centre , near café sicilia .
+try the mill , an average , child friendly pub with fast food riverside near café sicilia
+the mill is a fast food pub that ' s kid friendly where you can eat for under £ 25 and is located near raja indian cuisine in riverside
+the mill is a fast food pub in the riverside area near café sicilia .
+
+the mill is a fast food pub . it is located in riverside , near café sicilia . it has low customer rating since it is not kid friendly .
+the mill is a high cost fast food child friendly pub near café sicilia in the riverside area with low customer rating
+in the center of the city near café sicilia , the fast food , is a kid friendly pub named the mill . customers rate it a 3 out of 5 , with moderate pricing .
+
+
+
+
+
+
+
+the mill is a low - cost , fast food , 5 - star , pub located near the café sicilia by the river .
+
+
+the mill is a pub that also offers reasonably priced fast food around e20 - e25 . they are located in the city center near café rouge . last year , they received high customer ratings and have been found very kid friendly .
+
+
+
+
+near the café sicilia in the city centre , there is a cheap , non - family - friendly fast food and pub named the mill .
+the mill , cheap and family - friendly , is a pub that serves fast food . near café sicilia it is in the city centre .
+near café sicilia in riverside you will find the mill . it is your average pub with inexpensive fast food options and a family friendly environment .
+
+there is a pub style food called the mill it ' s fast food on riverside near café sicilia it is cheap and for the family .
+the mill is a cheap pub that also serves fast food . it is located in the city centre near a café sicilia . customers rate it a 5 out of 5 . it is not family - friendly .
+in the city centre near café sicilia there ' s a cheap fast food pub named the mill . it is family - friendly with a customer rating of 5 out of 5 .
+the mill is a pub that provides fast food . it is located at riverside near café sicilia . it is not family - friendly , in the cheap price range and has a customer rating 5 out of 5 .
+a cheap family friendly pub near café sicilia serving fast food in riverside would be the mill with cheap prices and a perfect rating of 5 out of 5 .
+
+
+
+the fast food pub called the mill located in riverside near café sicilia is not family - friendly but is cheap and has a average customer rating .
+the mill is located near café sicilia in the riverside area . the mill is a very delegate pub that is family friendly and offers fast food , the customer rating is average and the prices are cheap .
+
+
+
+
+the mill is a family - friendly pub that offers fast food . it has a low customer rating , is located in city centre , near café sicilia , and is expensive .
+
+
+the mill is a one star family friendly pub offering fast food . it is in the high price range and near to café sicilia .
+
+
+
+
+near café sicilia , the mill , is a fast food pub - not child friendly , with a high price range and average customer rating in the riverside area ,
+
+the mill is a pub selling fast food . it is not family - friendly , low price range with a low customer rating . it is located in the city centre near café sicilia .
+the mill is a family - friendly pub offering fast food for less than £ 20 . it is in the city centre near café sicilia and has a low rating .
+
+the mill is a pub in the low price range serving fast food located near café sicilia on the riverside . it is not family - friendly and has a low customer rating .
+the mill is a low priced fast food pub near café sicilia by the river . it is family friendly and has a low rating .
+
+
+the mill pub has fast food , is kid friendly , and has a moderate price range . they are located near café sicilia on the riverside .
+the mill is a moderately priced pub that serves fast food . it is located in the city centre near café sicilia and is not kid friendly with a customer rating of 1 out of 5 .
+the mill is a moderate priced , kid friendly pub . located in the city centre near café sicilia , this fast food pub has a customer rating of 1 out of 5 .
+
+
+
+the mill is a pub that serves fast food . it is located near café sicilia in the center of the city . it is not kid friendly . the price range is moderate and the customer rating is 3 out of 5 .
+the mill pub is located in the city centre near café sicilia . it is a kid friendly moderately price establishment which offers fast food . customers rate it 3 out of 5 .
+near café sicilia , in the riverside area , there is a pub called the mill . it is rated 3 out of 5 and serves fast food . it is moderately priced an not kid friendly .
+the mill is an average rated pub for adults that serves an array of moderately priced fast food . it is located near café sicilia in riverside .
+
+
+
+the mill is a riverside pub offering fast food at average prices . located near café sicilia , it has a low customer rating and does not welcome children .
+the mill is a poorly rated , moderately expensive family pub near café sicilia . it serves fast food .
+with average prices and fast food , the mill pub can be found in city centre near café rouge . this is not a kid friendly establishment .
+the mill is a pub located near raja indian cuisine at riverside providing fast food . its price range is £ 20 - 25 and it is kids friendly .
+the mill is a fast food pub near café rouge with a price range between £ 20 - 25 . it has a high customer rating and is near the city centre , but it is not kid friendly .
+
+
+
+
+
+
+
+
+
+
+
+the mill is a fast - food pub located in the center of the city near café sicilia . while the prices are cheap , the pub is not family - friendly , although it does hold an average customer rating .
+
+the mill is a cheap highly rated non - kids friendly pub , located in the riverside , near café rouge .
+
+
+
+the mill is a family friendly pub near café sicilia by a riverside in the city centre , with a high price range and low customer rating .
+the mill is a city centre pub near café sicilia . it doesn ' t have that much going for it with a score of 1 out of 5 from customers , a high price range , and no , it ' s not friendly to children .
+
+the mill pub is rated 1 out of 5 by its customers . the mill is high priced . the mill is situated near café sicilia in the riverside area . children friendly - yes .
+the mill is a fast service pub in riverside . it is child friendly and is in the high price range . it is located near café sicilia and has an average rating .
+
+
+the mill is a family friendly pub located near raja indian cuisine in the city centre which offers cheap food .
+
+near the café sicilia in the city centre is a low priced , low rated pub named the mill that isn ' t family friendly
+the mill pub is near café sicilia in the city centre . it has a price range of less than £ 20 and has a low customer rating .
+
+
+visit the mill , a low priced family friendly breakfast and pub located near raja indian cuisine .
+located next to raja indian cuisine , is a non family low priced pub called the mill .
+there is a pub named the mill in the city centre . it is near raja indian cuisine , moderately priced and caters to an adult crowd .
+
+in the riverside area near raja indian cuisine there ' s a kid friendly , moderately priced pub named the mill .
+
+
+
+the mill is a pub , located next to café sicilia and is a moderately priced and family friendly .
+
+
+
+
+
+
+a family friendly restaurant called the mill is located near café rouge . it has a low customer rating .
+the riverside area near café rouge has a restaurant that is kids - friendly . it has a price range in the mill . i give the food a 3 out of 5 .
+the mill is a low cost adult only restaurant . it is by café rouge and receives poor reviews .
+
+
+
+
+the mill if a restaurant for traditional british food . we ' re near café rouge at city centre . join us .
+
+the mill is a family friendly restaurant with prices less that £ 20 . this english restaurant is located by riverside near raja indian cuisine .
+by café rouge in city centre is the mill british restaurant , family - friendly rated 1 out of 5 .
+
+
+if you are searching for an english restaurant near the city centre and café rouge , the mill is a high customer rating place to go . it is not children friendly place and it has a £ 30 and over menu , but you might want to check it out .
+
+
+
+
+near the café rouge is a restaurant called , the mill , that serves traditional english food . it is higher priced and suitable for families .
+you can enjoy british cuisine at the mill , a family restaurant in the mid - price range by a river and near raja indian cuisine .
+
+the mill is a restaurant near raja indian cuisine and offers english food and is child friendly . it is in riverside and is expensive .
+the mill is a child friendly restaurant with english food . it has an average customer rating and a high price range . it is near café rouge in riverside .
+the mill is a restaurant along the riverside near café rouge . it is child friendly and has an average customer rating . it serves english food in the high price range
+the mill is a high priced restaurant offering british food . it is family friendly and rated three stars . it can be found just below the river near café rouge .
+
+
+there is a family - friendly restaurant called the mill in the city centre near raja indian cuisine . it serves english food in low price range .
+
+there is a adults only cheap restaurant the mill serving english food located in the riverside area near raja indian cuisine
+the mill restaurant offers a family friendly environment with a price range of less than £ 20 . we offer english food near raja indian cuisine in the riverside area .
+
+
+the mill is a restaurant which serves english food and is located in the city centre near café rouge . it is family - friendly , has meals less than 20 pounds , but has a low customer rating .
+located in city centre near café rouge , the mill is a restaurant that serves english food at a great price but received a low customer rating .
+
+the mill , a family friendly restaurant located by the riverside near café rouge serves english food for less than £ 20 , it has been low - rated .
+the mill is a restaurant which serves english food for less than £ 20 but has a low customer rating . it is located near café rouge in riverside
+
+the mill , is a restaurant and is family - friendly , cheap and reasonable priced is very good for the family , we provide full english food . located near raja indian cuisine in the city centre .
+the mill is a non kids friendly restaurant , that has moderate price ranged english food . it is located near raja indian cuisine in the city center .
+the mill is a restaurant with moderate price featuring english food and is kid friendly and is located near raja indian cuisine in the city centre .
+
+the mill is a restaurant located in riverside near raja indian cuisine . it offers english food with a moderate price range . it is not a kid friendly establishment .
+the mill is a restaurant that serves english style food . it is moderately priced and kid friendly . it is located on the riverside near raja indian cuisine .
+
+the mill is a moderately priced restaurant with a low customer rating . it serves english food and is located close to café rouge in the city centre . it is not suitable for families with children .
+the mill is a restaurant also do english food . a moderate price range , none kids friendly place with a poor 1 out of 5 customer rating . you can find this place in the city centre near café rouge .
+
+located in riverside near café rouge the mill restaurant , in the moderate price range , they serve english food . they are not kid friendly they have 1 out of 5 customer rating .
+the mill is a one - star restaurant that offers english breakfast . it is family - friendly , moderately priced and is located near the café rouge by the river .
+
+
+the mill is a restaurant that isn ' t kids - friendly . located near café rouge , at the city centre , it serves english food . the price range is moderate and the customer rating is 3 out of 5 .
+the mill is a moderately priced family - friendly restaurant serving english food . located at the city centre near the café rouge , the mill boasts a 3 out of 5 customer satisfaction rating .
+
+the mill , located riverside near the café rouge , is a moderately priced english restaurant with 3 of 5 customer ratings and not a kid friendly environment .
+the mill is a riverside restaurant that is kid friendly , has a moderate price range , serves english food , and has a 3 out of 5 rating . it is near the café rouge .
+the mill restaurant is located near café rouge in riverside area . it providing english food , moderate price range and 3 out of 5 costumer rating
+
+the mill is a low rated adult only restaurant with average prices for english grub in the city centre near café rouge .
+the mill is a restaurant selling english food with an average price range . it is family - friendly and located near café rouge in the city centre , has a low customer rating .
+
+the mill is a restaurant near raja indian cuisine . it is on the riverside and is child friendly . the food is english and over £ 30 .
+the mill is an english restaurant that costs more than £ 30 . it is not children friendly , but it has a high customer rating . it is in the city centre , near the café rouge .
+the mill is a highly rated , child - friendly english restaurant located in the city centre , near café rouge . its price range is more than £ 30 .
+located on the riverside close to café rouge , is the mill ; a highly rated yet high priced restaurant serving english food , which is not considered child friendly .
+the mill is a children friendly high rated english restaurant located near café rouge in riverside with a price range of more than £ 30 .
+
+
+the mill is an expensive family restaurant that serves british food . it is located near a café rouge .
+the mill is a fast food restaurant that ' s kid friendly where you can eat for under £ 25 and is located near raja indian cuisine in riverside
+
+
+
+the mill is a restaurant located near raja indian cuisine at riverside providing fast food . its price range is £ 20 - 25 and it is kids friendly .
+the mill offers japanese food and restaurant with cheap price near café rouge in riverside .
+
+
+
+
+
+the mill is a family friendly restaurant in the low price range . it is located close to the city centre , near to café rouge
+the mill is a family friendly restaurant located near raja indian cuisine in the city centre which offers cheap food .
+
+there is a children friendly restaurant called the mill located near the café rouge in the riverside area , it receives high customer ratings and is moderately priced at around £ 30 .
+there is a one star , low - priced restaurant called the mill located near café rouge that is family friendly .
+
+visit the mill , a low priced family friendly breakfast and restaurant located near raja indian cuisine .
+the mill restaurant is located near café rouge next to the river . the shop serves breakfast food at low prices .
+located next to raja indian cuisine , is a non family low priced restaurant called the mill .
+
+there is a restaurant named the mill in the city centre . it is near raja indian cuisine , moderately priced and caters to an adult crowd .
+in the riverside area near raja indian cuisine there ' s a kid friendly , moderately priced restaurant named the mill .
+
+
+near café rouge by the riverside there is a restaurant called the mill yes with a moderate price range and rating of 1 out of 5
+
+
+the mill , near raja indian cuisine in riverside , serves english food . it is moderately priced and kid friendly .
+
+
+
+
+
+
+the mill has moderately priced fast food . it ' s not kind friendly . it rates 1 out of 5 and is located neat café sicilia at riverside .
+there is a pub called the phoenix located near raja indian cuisine in the city centre that provides coffee and tea .
+
+the phoenix is a highly rated pub in the city centre near crowne plaza hotel . it is aimed at older upper class people serving fantastic coffee and delicious french food .
+
+
+there is a restaurant called the phoenix located near raja indian cuisine in the city centre that provides coffee and tea .
+
+in riverside , near raja indian cuisine is a child friendly , high priced , fast food coffee ship called the phoenix .
+the phoenix fast food café is located in city centre near raja indian cuisine with a moderate price range and is kids friendly .
+
+
+
+the phoenix is a family friendly pub located near crowne plaza hotel in the city centre which offers good food at a premium price .
+there is a mid - priced , family friendly pub , the phoenix pub , that offers take - out or deliveries . it is located in city centre just east of raja indian cuisine .
+
+the phoenix is a family friendly pub located next to crowne plaza hotel on the river .
+the phoenix is a low cost family friendly pub near the river and raja indian cuisine .
+
+the phoenix is a family style pub with a rating of one out of five stars in city center . near crowne plaza hotel
+along the riverside near crowne plaza hotel , is a family friendly pub called the phoenix . they serve wine and hors d ' oeuvre in the medium price range and have a one - star rating .
+
+
+a better option than crowne plaza hotel is the phoenix , a 3 - star pub . families can gather here for wine and cheese while spending more money than they would have at crowne plaza hotel .
+
+
+the phoenix is highly rated pub located in the city centre , near to café sicilia . it is priced in the more than £ 30 range and is not children friendly .
+the phoenix is a five star pub that is family friendly and serves american food . it is located in city centre next to café sicilia .
+
+
+
+
+
+located near raja indian cuisine , lies a french restaurant called the phoenix , known for being a cheap family friendly pub in riverside
+
+
+
+the french restaurant named the phoenix is a pub in the city centre , near café sicilia is a place for kids with price range from 20 - 25 with a customer rating of 3 out of 5 .
+
+
+
+
+
+families are welcome at the phoenix pub - great for those on a budget . find us near the crowne plaza hotel .
+the phoenix is located near raja indian cuisine and is a low cost family friendly pub .
+located inside city center . , next to the crowne plaza hotel , is the high - priced pub the phoenix . this well - reviewed pub , 5 out of 5 stars , is a family - friendly establishment that serves british style food and alcohol .
+welcome to the phoenix , we are a pub . we ' re family - friendly we serve fast food we are located in the city centre near the raja indian cuisine .
+the phoenix is a charming pub featuring fast food service and lower prices to £ 20 are located near raja indian cuisine in the city center area
+
+the phoenix is a children friendly fast food pub and pub . it is located in the riverside area near raja indian cuisine
+
+
+the phoenix is a high rated pub located on the riverside near café sicilia offering fast food . it has a mid - level price range and is not children friendly .
+the phoenix is a family friendly , high rated , pub with fast food . it ' s on the riverside by café sicilia with a price range of about 30 euros .
+the phoenix is a cheap and family friendly pub in the riverside area . the phoenix serves fast food and is located near raja indian cuisine .
+
+
+the phoenix is a pub near raja indian cuisine in the city centre . they serve fast food , no children menus or services , in a high price range .
+the child friendly fast food pub named the phoenix pub is near the raja indian cuisine and the city center in the high price range .
+the phoenix , a fast food pub is not kid friendly . with a high price range , it is near raja indian cuisine and in the riverside area .
+the phoenix is a high priced , child friendly , fast food pub in riverside , near raja indian cuisine .
+
+the phoenix offers fast food and pub with expensive price near raja indian cuisine .
+the phoenix is a moderately priced pub in the city centre near raja indian cuisine . it is not family - friendly but they serve fast food .
+the phoenix is a family - friendly fast food and pub near raja indian cuisine in the city centre where you can eat for less than £ 20
+at the riverside near raja indian cuisine is the phoenix pub that has fast food less than £ 20 and is not family - friendly .
+the phoenix , a pub with fast food , near raja indian cuisine , on the riverside is family friendly and less than 20 euros
+
+there is a pub by the name of the phoenix . their price range is moderate and they serve fast food . they are not kid friendly and they are at the city centre near raja indian cuisine .
+the phoenix is a pub serving fast food near raja indian cuisine in the city center . the phoenix is kid friendly and moderately priced .
+
+there is a fast food pub located near raja indian cuisine in riverside called the phoenix . it has a moderate price range and is not kid friendly .
+the phoenix is a moderately priced pub offering fast food and is kid friendly . it is located near raja indian cuisine in riverside .
+the phoenix serves moderately priced fast food in a kids friendly pub . it is rated 3 out of 5 and is found near café sicilia in the riverside area .
+
+the phoenix is a fast food pub near raja indian cuisine in the riverside area . it is children friendly with a price range more than £ 30 per head .
+the phoenix a family fast food pub in the more than £ 30 range is located in riverside near café sicilia .
+if you ' re looking for a children - free pub , check out the phoenix . located near the café sicilia at the city centre . the phoenix offers fast food ranging more than £ 30 . rated high by customers .
+the phoenix , a pub that serves fast food near café sicilia in riverside has a high customer rating , and is not kid friendly . their price range is more than £ 30 .
+
+the phoenix pub is located near crowne plaza hotel in the city centre and serves french food in the £ 20 - £ 25 price range but is not child friendly
+the phoenix is a family - friendly pub serving french cuisine for a budget price . it is located in the city centre near to the crowne plaza hotel
+
+
+
+the phoenix is a reasonably priced pub offering a more adult experience by the riverside . it ' s location near a crowne plaza hotel and misguided french bistro styling take to much from the experience to warrant a second visit .
+
+the phoenix is not kid friendly . it is located near crowne plaza hotel in city centre . it is a french pub that has a 1 out of 5 rating .
+
+near café sicilia in the city centre you can find a quite pricey pub which does not welcome children called the phoenix . it has a pretty good customer rating and tends to serve french food .
+
+
+located near café sicilia in riverside , the phoenix is an adult only pub with a 3 out of 5 rating serving french food for under £ 25
+
+
+
+if you are in the riverside area , try the phoenix , a high - end pub , located near crowne plaza hotel . at £ 30 and above , its menu is a bit pricey , but its 5 out of 5 customer rating proves that its delectable , children - friendly french food is well worth every penny .
+
+the phoenix is a french pub near crowne plaza hotel , and beside the river , costing roughly £ 20 , it ' s a bit cheaper , however it ' s not family - friendly , and its customer rating is average .
+
+
+
+
+
+the phoenix is a pub . this pub is family friend and prices range less then 20 dollars . they offer different types of french food . the phoenix is located in riverside near the crowne plaza hotel . our customer rating is low .
+
+
+
+there is a cheap french pub named the phoenix that is family friendly in riverside by raja indian cuisine .
+if you are looking for a cheap french pub with a 5 out of 5 rating that is not family - friendly , visit the phoenix in the city centre near crowne plaza hotel .
+there ' s a family - friendly pub called the phoenix selling french food . it ' s rated 5 out of 5 and it ' s cheap as well , you can find it by crowne plaza hotel in the city centre .
+for a cheap pub offering french food , try the phoenix . it is located in the city centre , near crowne plaza hotel , and has a customer rating of 5 out of 5 .
+the phoenix is a riverside pub serving cheap french food , near crowne plaza hotel . it may be a no families environment , but with a customer rating of 5 out of 5 , you can ' t complain .
+near crowne plaza hotel there is a family friendly , french pub the phoenix . it is a cheap place in riverside with a 5 out of 5 customer rating .
+the phoenix is a family - friendly high priced pub in the city centre near crowne plaza hotel offering french food
+the phoenix is a pub near raja indian cuisine in riverside that serves expensive french food . it is children friendly .
+the phoenix pub is in the city centre near crowne plaza hotel . it serves french food of high prices . not being child friendly customers rate it 3 out of 5 .
+the phoenix is a children friendly french pub near crowne plaza hotel in the city centre with a customer rating of 3 out of 5 and a high price range .
+the phoenix is a french pub which is near crowne plaza hotel by riverside . it is in the high price range and has a customer rating of 3 out of 5 . the phoenix is not child friendly .
+the phoenix is a pub serving high priced french food that is located near crowne plaza hotel on the riverside . it is child friendly and has customer rating of 3 out of 5 .
+
+pub called the phoenix is located in city centre , near crowne plaza hotel . it serves average french food with price range less than £ 20 . it is not family - friendly place .
+the phoenix , a french pub , serves dishes less than £ 20 near crowne plaza hotel in the city centre
+
+
+located in the city centre near crowne plaza hotel , the phoenix is a family - friendly pub with french cuisine . prices are less than £ 20 . customers give it an average rating .
+the phoenix is a french pub average rated located in the city center near crowne plaza hotel . you pay less than £ 20 in a non family environment .
+in the riverside is a family friendly french pub named the phoenix with a price range of less than £ 20 near crowne plaza hotel has an average customer rating .
+
+the phoenix is located near crowne plaza hotel in the center of the city . it is a pub that serves french food . it is not family - friendly . the customer rating is low and the price range is less than £ 20 .
+in the city centre close to crowne plaza hotel is a french pub called the phoenix , it is family - friendly with a low rating and prices at approximately under £ 20 per person
+the phoenix is a pub that serves french food and is situated near crowne plaza hotel at riverside . low customer ratings and not suitable for families yet low price range of around £ 20 .
+the phoenix is a cheap , low rated pub in the riverside area . it serves french food , not recommended for families and is close to crowne plaza hotel .
+
+the phoenix is in the city centre , near crowne plaza hotel . it ' s a french pub that isn ' t kids friendly . it has a moderate price range and a customer rating of 1 out of 5 .
+the phoenix is a pub . it has a moderate price range and it sells french food . it is kids friendly and has a 1 out of 5 rating . it is in the city centre near crowne plaza hotel .
+located in riverside , near crowne plaza hotel , the phoenix is a moderately priced , kid friendly pub . it serves french food and has a customer rating of 1 out of 5 .
+the phoenix is a quaint pub serving french food at a moderate price point , specifically friendly to kids . however it has a 1 out of 5 customer rating , but is located near crowne plaza hotel by the riverside
+the phoenix is moderate price pub serving french food located in city center near crowne plaza hotel with a customer rating of 5 out of 5 but not children - friendly
+
+
+
+
+
+
+
+
+the phoenix is a french pub that is located in the city centre near crowne plaza hotel . it is family - friendly , the price range is high , but it has a 5 out of 5 customer rating .
+the phoenix is pub with french food . its customer rating is 5 out of 5 and has a price range of over £ 30 . it is not child friendly . it is located near crowne plaza hotel in the riverside area .
+
+the phoenix pub serves french food for more than £ 30 in the city centre near crowne plaza hotel . it is children friendly but has a low customer rating .
+
+costing more than £ 30 and located in riverside near crowne plaza hotel , the phoenix is a french pub . it is not kid friendly and has a low customer rating .
+the phoenix is a pub near crowne plaza hotel by riverside area that provides french food . its price is more than £ 30 with a low customer rating and is children friendly
+
+
+
+there is a riverside pub called the phoenix that has french food at an average price range . it is child friendly , located near crowne plaza hotel , and has a 3 customer rating .
+the phoenix is a kid - friendly pub located near raja indian cuisine in the riverside area . they serve french food in the £ 20 - 25 range .
+
+
+located in the city centre , near café sicilia , the phoenix is an average priced , family - friendly pub serving french food with a customer rating of 3 out of 5 .
+the phoenix is a french pub located in riverside near the café sicilia . it has an average price range of £ 20 - 25 and a 3 out of 5 customer rating , however it is not kid friendly .
+a french pub near café sicilia and riverside is the phoenix . it has a customer rating of 3 out of 5 , an average price range and is kid friendly .
+the phoenix is a french pub near to riverside and crowne plaza hotel . it is kid friendly , has an average price range and a customer rating of 3 out of 5 .
+the phoenix is a french pub located near the crowne plaza hotel in the city centre . they have a high customer rating and their prices range between £ 20 - 25 but they are not children friendly .
+in the city center near crowne plaza hotel , there is a french pub called ' the phoenix ' . it has a child - friendly environment with reasonable prices and excellent customer reviews .
+the phoenix , which is a pub that is not kid friendly , is near crowne plaza hotel and serves french food in the price range of £ 20 - 25 in the riverside area . it has a high customer rating .
+located in riverside , the phoenix , a pub serving french cuisine , has a high rating among customers . the food ranges from £ 20 - 25 and is child - friendly . it is located near crowne plaza hotel .
+
+highly rated french pub near crowne plaza hotel is the phoenix . it is not kids friendly . the price ranges from £ 20 - 25 .
+
+
+
+
+
+
+
+
+the phoenix is a pub that offers wine tasting that is very good and fairly inexpensive located near the crowne plaza hotel .
+
+
+
+there ' s a pub named the phoenix by raja indian cuisine . it ' s a dine in at a high price .
+
+
+
+there is a cheaply - priced pub named the phoenix near crowne plaza hotel in riverside . children are not allowed .
+the phoenix is a low priced pub on the river located near raja indian cuisine
+
+the phoenix is a cheap pub near crowne plaza hotel in the city centre . it is family - friendly and has a customer rating of three out of five .
+
+there is a family friendly pub near crowne plaza hotel called the phoenix . it has a one - star rating and is inexpensive .
+the phoenix is a family friendly pub in a cheap price range near raja indian cuisine
+
+located in the city centre , near raja indian cuisine , the phoenix is a moderately priced adult oriented pub .
+there is a moderately priced , kid friendly pub in the city centre area near crowne plaza hotel that has a customer rating of 1 out of 5 named the phoenix .
+
+
+
+
+
+
+
+
+
+there is a high priced pub called the phoenix it ' s a family friendly pub located near crowne plaza hotel .
+the phoenix is a pub and is expensive price ranged . it is located close to crowne plaza hotel .
+there is a mid - priced , family friendly restaurant , the phoenix restaurant , that offers take - out or deliveries . it is located in city centre just east of raja indian cuisine .
+
+
+the phoenix is a low cost family friendly restaurant near the river and raja indian cuisine .
+
+the phoenix is located near raja indian cuisine and is a low cost family friendly restaurant .
+welcome to the phoenix , we are a restaurant . we ' re family - friendly we serve fast food we are located in the city centre near the raja indian cuisine .
+café sicilia and the phoenix shop are a fast food restaurant located north of the city center .
+the phoenix is a charming restaurant featuring fast food service and lower prices to £ 20 are located near raja indian cuisine in the city center area
+the phoenix is a children friendly fast food restaurant and restaurant . it is located in the riverside area near raja indian cuisine
+
+the phoenix is a cheap and family friendly restaurant in the riverside area . the phoenix serves fast food and is located near raja indian cuisine .
+
+
+the phoenix is a restaurant near raja indian cuisine in the city centre . they serve fast food , no children menus or services , in a high price range .
+the child friendly fast food restaurant named the phoenix restaurant is near the raja indian cuisine and the city center in the high price range .
+the phoenix , a fast food restaurant is not kid friendly . with a high price range , it is near raja indian cuisine and in the riverside area .
+the phoenix is a high priced , child friendly , fast food restaurant in riverside , near raja indian cuisine .
+
+the phoenix offers fast food and restaurant with expensive price near raja indian cuisine .
+the phoenix is a moderately priced restaurant in the city centre near raja indian cuisine . it is not family - friendly but they serve fast food .
+the phoenix is a family - friendly fast food and restaurant near raja indian cuisine in the city centre where you can eat for less than £ 20
+at the riverside near raja indian cuisine is the phoenix restaurant that has fast food less than £ 20 and is not family - friendly .
+the phoenix , a restaurant with fast food , near raja indian cuisine , on the riverside is family friendly and less than 20 euros
+
+there is a restaurant by the name of the phoenix . their price range is moderate and they serve fast food . they are not kid friendly and they are at the city centre near raja indian cuisine .
+the phoenix is a restaurant serving fast food near raja indian cuisine in the city center . the phoenix is kid friendly and moderately priced .
+
+there is a fast food restaurant located near raja indian cuisine in riverside called the phoenix . it has a moderate price range and is not kid friendly .
+the phoenix is a moderately priced restaurant offering fast food and is kid friendly . it is located near raja indian cuisine in riverside .
+the phoenix is a fast food restaurant near raja indian cuisine in the riverside area . it is children friendly with a price range more than £ 30 per head .
+
+
+
+
+
+the phoenix restaurant is now serving french food at low prices in a family friendly atmosphere , located in the riverside area by raja indian cuisine
+the phoenix is a restaurant near raja indian cuisine in riverside that serves expensive french food . it is children friendly .
+the phoenix is a kid - friendly restaurant located near raja indian cuisine in the riverside area . they serve french food in the £ 20 - 25 range .
+
+
+
+an indian restaurant named the phoenix is not child friendly , has a high customer rating , with prices ranging from £ 20 to £ 25 , and is located in the city centre near crowne plaza hotel .
+the phoenix is a restaurant serving indian food in the mid - price range . it is in the city centre near crowne plaza hotel , is kid friendly and has a high customer rating .
+
+the phoenix , located in the city centre , is a small and authentic indian restaurant . the phoenix is mediocre shop but it offers fast , cheap food . it is across from express by holiday inn and is not family friendly .
+
+the phoenix , located riverside near crowne plaza hotel is an adult friendly restaurant . it serves great , cheap indian food .
+
+the phoenix is and indian style restaurant with highly rated food at a low price . it can be found in the city centre by the crowne plaza hotel and is not family friendly .
+there is a cheap - priced restaurant the phoenix located in the city centre near crowne plaza hotel providing 5 out of 5 indian food and is family friendly .
+the phoenix is a indian restaurant that is not for the whole family . it has low prices , but high customer ratings . it is located in the city center near crowne plaza hotel .
+a restaurant called the phoenix sells cheap indian food that is rated 5 out of 5 and is even better with its family friendly location near a riverside and the local express by holiday inn .
+the phoenix is a restaurant providing indian food in the cheap price range . it is located in the riverside . it is near express by holiday inn . its customer rating is 5 out of 5 .
+
+
+
+
+
+
+
+
+in the city centre near crowne plaza hotel is a kid - friendly restaurant called the phoenix , which serves indian food at a moderate price . the phoenix has high customer ratings .
+the phoenix is a restaurant providing indian food in the £ 20 - 25 price range . it is located in the city centre . it is near crowne plaza hotel . its customer rating is high .
+highly rated indian restaurant the phoenix is located on the riverside near crowne plaza hotel . not kid friendly but average price .
+there is a restaurant called the phoenix . its is located near crowne plaza hotel in the riverside area . it is child friendly and serves indian food at a £ 20 - 25 price range . it has a high customer rating .
+
+
+
+
+
+
+
+the phoenix is a low - priced restaurant in near crowne plaza hotel that delivers take - away .
+
+
+there ' s a restaurant named the phoenix by raja indian cuisine . it ' s a dine in at a high price .
+
+
+
+the phoenix is a low priced restaurant on the river located near raja indian cuisine
+the phoenix is a family friendly restaurant in a cheap price range near raja indian cuisine
+
+located in the city centre , near raja indian cuisine , the phoenix is a moderately priced adult oriented restaurant .
+located in the centre of the city near raja indian cuisine , moderately priced the phoenix offers an adult , non kid friendly fast food experience .
+
+
+
+
+
+
+the phoenix is located by café sicilia . it has fair prices and had burgers , drinks , and fries
+
+
+the phoenix is located near raja indian cuisine that has expensive , family friendly take out .
+
+
+the plough is a pub serving chinese food in the mid - price range . it is family - friendly and near raja indian cuisine in the city center .
+
+
+the plough is a cheap chinese pub located riverside by raja indian cuisine . it is a family friendly establishment .
+the plough is a pub providing chinese food in the cheap price range . it is located in the riverside . it is near raja indian cuisine .
+
+the chinese pub , the plough , is located in the city centre near raja indian cuisine . the price range is high and isn ' t children friendly .
+
+the plough is a pub providing chinese food in the high price range . it is located in the city centre . it is near raja indian cuisine .
+the plough is a pub that has expensive chinese food , not child friendly , and is located riverside near raja indian cuisine .
+there is a riverside pub near raja indian cuisine called the plough , that serves chinese food in the high price range . this venue is not suited for families with children .
+the plough is a pub providing chinese food in the high price range . it is located in the riverside . it is near raja indian cuisine .
+serving chinese food , the non - family friendly pub , the plough , is a pub in the less than £ 20 price range . it is in city centre near raja indian cuisine .
+with below average prices , the plough , a non - family friendly pub in the city centre , offers chinese food and is located near the raja indian cuisine .
+the plough is a pub offering chinese food with a price range of 20 - 25 pounds . this pub is located in riverside near the raja indian cuisine pub . it is kids friendly .
+
+
+
+
+the plough is a restaurant serving chinese food in the mid - price range . it is family - friendly and near raja indian cuisine in the city center .
+
+
+the plough is a cheap chinese restaurant located riverside by raja indian cuisine . it is a family friendly establishment .
+the plough is a restaurant providing chinese food in the cheap price range . it is located in the riverside . it is near raja indian cuisine .
+
+the chinese restaurant , the plough , is located in the city centre near raja indian cuisine . the price range is high and isn ' t children friendly .
+
+the plough is a restaurant providing chinese food in the high price range . it is located in the city centre . it is near raja indian cuisine .
+the plough is a restaurant that has expensive chinese food , not child friendly , and is located riverside near raja indian cuisine .
+there is a riverside restaurant near raja indian cuisine called the plough , that serves chinese food in the high price range . this venue is not suited for families with children .
+the plough is a restaurant providing chinese food in the high price range . it is located in the riverside . it is near raja indian cuisine .
+serving chinese food , the non - family friendly restaurant , the plough , is a restaurant in the less than £ 20 price range . it is in city centre near raja indian cuisine .
+with below average prices , the plough , a non - family friendly restaurant in the city centre , offers chinese food and is located near the raja indian cuisine .
+the plough is a restaurant offering chinese food with a price range of 20 - 25 pounds . this restaurant is located in riverside near the raja indian cuisine restaurant . it is kids friendly .
+
+
+the plough is near the riverside and raja indian cuisine . it serves indian food and allows children . it has an average rating .
+
+
+
+
+
+the punter is children friendly and serves english food . it is near raja indian cuisine in the city centre . it ' s a coffee house with a high price range .
+
+
+
+
+
+
+
+the punter is a pub which serves chinese food with a price range of less than £ 20 . it is located in the center of the city near the raja indian cuisine and is family friendly .
+the punter is a pub providing chinese food in the less than £ 20 price range . it is located in the city centre . it is near raja indian cuisine .
+the punter pub and chinese is along the riverside near raja indian cuisine . it ' s generally less than £ 20 but isn ' t family friendly .
+located on the riverside , near raja indian cuisine , is the punter . it is a family - friendly , low - priced pub which also serves chinese food .
+the punter , a pub with chinese food is near raja indian cuisine riverside . their prices are less than £ 20 .
+the punter is a moderately priced pub in the city centre , near raja indian cuisine . it serves chinese food and does not welcome children .
+the punter is a moderately priced pub providing chinese food . it ' s in the city centre near to raja indian cuisine and is kid friendly
+the punter is a pub serving chinese food with a moderate price . it is located near raja indian cuisine along the riverside and is not kids friendly .
+for chinese food in riverside there is a moderately priced pub that is kid friendly named the punter near raja indian cuisine .
+the punter is a pub providing chinese food in the moderate price range . it is located in the riverside . it is near raja indian cuisine .
+the punter is a chinese pub near raja indian cuisine in the river side . price is moderate , no kids friendly .
+
+
+the punter pub has chinese food and is kids friendly . it is located in the riverside area near raja indian cuisine with a high price range .
+
+
+catering a traditional english menu , the punter pub sits on the riverside , and offers a highly priced alternative to the nearby raja indian cuisine . the punter is not considered child friendly .
+the punter is a kids friendly pub that serves english food for £ 20 - £ 25 . it is along the riverside near raja indian cuisine .
+
+come visit riverside and eat some english food at the punter family friendly pub for a cheap price . found near raja indian cuisine .
+the punter is an english pub that is located in the city centre . it is near raja indian cuisine . it has a high price range , and it is not family - friendly .
+the punter is a pub type pub located in the city centre with a high price , with a bad kids friendly atmosphere . it offers english food and is located near raja indian cuisine .
+
+there is an english pub near raja indian cuisine in the riverside area called the punter . it has a high price range and is not child - friendly .
+
+
+
+the punter is a kid friendly english pub located in riverside near raja indian cuisine that is moderately priced .
+
+the punter is a high priced , average rated , adult only italian pub located near rainbow vegetarian café in the city centre
+
+
+
+
+the punter is a restaurant located in the city center , near the rainbow vegetarian café .
+
+
+
+
+
+
+
+a five star restaurant called the punter is situated next to express by holiday inn . it is great for families and offers medium prices .
+
+
+
+
+the punter is a restaurant which serves chinese food with a price range of less than £ 20 . it is located in the center of the city near the raja indian cuisine and is family friendly .
+the punter is a restaurant providing chinese food in the less than £ 20 price range . it is located in the city centre . it is near raja indian cuisine .
+the punter restaurant and chinese is along the riverside near raja indian cuisine . it ' s generally less than £ 20 but isn ' t family friendly .
+located on the riverside , near raja indian cuisine , is the punter . it is a family - friendly , low - priced restaurant which also serves chinese food .
+the punter , a restaurant with chinese food is near raja indian cuisine riverside . their prices are less than £ 20 .
+the punter is a moderately priced restaurant in the city centre , near raja indian cuisine . it serves chinese food and does not welcome children .
+the punter is a moderately priced restaurant providing chinese food . it ' s in the city centre near to raja indian cuisine and is kid friendly
+the punter is a restaurant serving chinese food with a moderate price . it is located near raja indian cuisine along the riverside and is not kids friendly .
+for chinese food in riverside there is a moderately priced restaurant that is kid friendly named the punter near raja indian cuisine .
+the punter is a restaurant providing chinese food in the moderate price range . it is located in the riverside . it is near raja indian cuisine .
+the punter is a chinese restaurant near raja indian cuisine in the river side . price is moderate , no kids friendly .
+
+
+the punter restaurant has chinese food and is kids friendly . it is located in the riverside area near raja indian cuisine with a high price range .
+
+
+catering a traditional english menu , the punter restaurant sits on the riverside , and offers a highly priced alternative to the nearby raja indian cuisine . the punter is not considered child friendly .
+the punter is a kids friendly restaurant that serves english food for £ 20 - £ 25 . it is along the riverside near raja indian cuisine .
+
+come visit riverside and eat some english food at the punter family friendly restaurant for a cheap price . found near raja indian cuisine .
+the punter is an english restaurant that is located in the city centre . it is near raja indian cuisine . it has a high price range , and it is not family - friendly .
+the punter is a restaurant type restaurant located in the city centre with a high price , with a bad kids friendly atmosphere . it offers english food and is located near raja indian cuisine .
+
+there is an english restaurant near raja indian cuisine in the riverside area called the punter . it has a high price range and is not child - friendly .
+
+
+
+the punter is a kid friendly english restaurant located in riverside near raja indian cuisine that is moderately priced .
+
+
+the punter is a restaurant with indian food . it is near express by holiday inn in riverside .
+
+
+
+
+in the city centre . the restaurant the punter has an average customer rating for its indian food and it is not children friendly . it is located near to express by holiday inn .
+
+
+
+
+
+
+
+
+for a cheap indian restaurant check out the average family friendly the punter , located in the riverside area near express by holiday inn .
+for cheap indian food with an average satisfaction rating try the punter , they are a family friendly restaurant . they are near express by holiday inn in the city center .
+the punter restaurant offers cheap indian cuisine . has an average customer rating . located by the riverside near express by holiday inn . it is not family friendly .
+the punter is a cheap indian restaurant in a riverside location . it has an average customer rating , is family friendly and is located near express by holiday inn .
+the punter is a restaurant providing indian food in the cheap price range . it is located in the riverside . it is near express by holiday inn . its customer rating is average .
+the punter located by the express by holiday inn , is a restaurant that offers indian food at a cheap price range .
+the punter is a restaurant serving indian food in the cheap price range with average customer ratings in the riverside area near express by holiday inn and is family friendly .
+near express by holiday inn is an expensive indian restaurant called the punter . it is not child friendly and is in the city centre .
+city centre restaurant the punter serves indian food , not far from express by holiday inn , adults only , customer rating 1 out of 5 , price range high .
+the punter is a 1 out of 5 stars indian restaurant near express by holiday inn in the city centre . it is in the high price range , but is children friendly .
+the punter is a restaurant providing indian food in the high price range . it is located in the city centre . it is near express by holiday inn . its customer rating is 1 out of 5 .
+the punter is a restaurant providing indian food in the high price range . it is located at the riverside , near express by holiday inn . the customer rating is 1 out of 5 and it is not children friendly .
+the restaurant called the punter , near express by holiday inn in the riverside area , is a children friendly restaurant that serves indian food and has 1 out of 5 stars , it has a high price range .
+the punter is an indian restaurant situated near express by holiday inn by the riverside . it is ideal for couples and has a fairly high price range and in general it has a 1 out of 5 customer rating .
+by a riverside near express by holiday inn , the punter is a restaurant serving indian food it is not a child friendly , with a low customer rating and a high price range .
+
+the punter is a restaurant that serves indian food for a high price range . it has an average customer rating and is located near express by holiday inn in the city centre , it is not children friendly .
+near express by holiday inn in city center there is an indian restaurant called the punter . it has a price range is high , is kid friendly , and has an average customer rating .
+the punter is a restaurant serving indian food at a high price . they are located near express by holiday inn in riverside . with an average rating and are not child friendly .
+the punter is a restaurant serving indian food in the high price range that is children friendly with an average customer rating in the riverside area near express by holiday inn
+
+the punter is an indian restaurant in the city centre area near express by holiday inn . it is not child friendly and has a high price range with the average customer rating being a 1 out of 5 .
+
+
+there is a cheap restaurant in riverside near express by holiday inn that serves indian food called the punter .
+the punter , a low - rated restaurant , serves indian food in the low price range . customers say it is not family friendly and it can be found near the city centre and express by holiday inn .
+looking for a restaurant serving indian food in the price range of less than £ 20 , with low customer ratings in the city centre area near express by holiday inn and is family friendly , then visit the punter .
+
+the punter is a restaurant with indian food in the price range of less than £ 20 , with a low customer rating and not family friendly , in the riverside area near express by holiday inn .
+the punter is a restaurant that provides indian food with prices less than £ 20 . it has a low customer rating and is located on the riverside near express by holiday inn . it is family friendly .
+the punter is a restaurant providing indian food in the less than £ 20 price range . it is located in the riverside . it is near express by holiday inn . its customer rating is low .
+the punter located in the city centre near express by holiday inn is a child friendly restaurant offering moderately priced , average indian foods .
+
+near express by holiday inn in the centre of the city , the punter is a restaurant that offers moderately priced indian food . the shop has a 1 out of 5 rating and is not kid friendly .
+city centre located the punter serves moderately priced indian food in a restaurant environment . just near express by holiday inn , it ' s rated 1 out of 5 and serves adult parties only .
+there is a restaurant in riverside near express by holiday inn that is an indian restaurant called the punter . it is moderate price range with a one out of 5 customer rating that is not kid friendly .
+
+the punter is a restaurant providing indian food in the moderate price range . it is located in the riverside . it is near express by holiday inn . its customer rating is 1 out of 5 .
+
+for a moderate price the punter restaurant offers indian cuisine in the city centre . while the restaurant is not kid friendly there is a express by holiday inn nearby and it has a customer rating of 3 out of 5 .
+the punter is a kid friendly restaurant in the city centre area near express by holiday inn . they serve indian food at a moderate price range with a customer rating of 3 out of 5 .
+the punter is a restaurant providing indian food in the moderate price range . it is located in the city centre . it is near express by holiday inn . its customer rating is 3 out of 5 .
+there is a moderate priced restaurant in riverside near express by holiday inn called the punter . it is an indian restaurant witch is not kid friendly and has an average rating .
+the punter is a restaurant , which also provides indian cuisine at moderate prices . customers have rated the food 3 out of 5 . the punter is situated near the riverside and express by holiday inn . children are welcome .
+the punter is an indian restaurant , it is pretty bad moderate prices and 3 out of 5 customer ratings , the punter is on the riverside near the express by holiday inn , yes mothers it can accommodate kids .
+the punter is a kid friendly restaurant that offers indian food . the price is more than 30 euro ' s and is located near express by holiday inn in the riverside area .
+
+the punter is a high rated restaurant found in the city centre near express by holiday inn , that sells indian food , with a price range of over £ 30 , not child friendly .
+the punter is a restaurant that offers indian food . its prices are more than £ 30 but it has a high customer rating . it is located in the city centre near express by holiday inn and it is children friendly
+the punter is a restaurant providing indian food in the more than £ 30 price range . it is located in the city centre . it is near express by holiday inn . its customer rating is high .
+the punter is an indian restaurant near express by holiday inn that is rated high by customers . it is located in riverside , is not children friendly and has a price range of more than 30 pounds .
+the punter is a highly rated child friendly restaurant offering indian food for more than £ 30 . they are located on the riverside near express by holiday inn
+the punter is a restaurant providing indian food in the more than £ 30 price range . it is located in the riverside . it is near express by holiday inn . its customer rating is high .
+
+
+
+
+
+
+the punter is a five star family friendly italian restaurant which is located next to rainbow vegetarian café .
+the punter restaurant near the express by holiday inn in the city centre offers highly rated , mid - priced italian food and a kid friendly environment .
+
+the punter italian restaurant near express by holiday inn in the riverside area is kid friendly and has a high customer rating .
+there is a restaurant called the punter , it is medium priced , five star rated , family friendly and sells italian . it is located next to express by holiday inn .
+
+an average , cheap , italian restaurant , near rainbow vegetarian café in the city center , is called the punter . they are not family - friendly .
+
+
+
+the punter is a cheap italian restaurant near rainbow vegetarian café in the city center , we are no a family - friendly restaurant with a great customer rating of 5 out of 5 .
+with a customer rating of 5 out of 5 there is a restaurant serving italian food called the punter near rainbow vegetarian café in the city centre . it is family - friendly and cheap .
+a restaurant named the punter sells italian food is not family - friendly and the price range is cheap with a customer rating 5 out of 5 located in riverside near rainbow vegetarian café
+located near rainbow vegetarian café in the riverside area , visit the the punter restaurant for a cheap family friendly environment with italian food and a 5 out of 5 customer rating .
+the punter is a cheap , non family - friendly , restaurant located in the city centre near rainbow vegetarian café . they serve italian and have an average customer rating .
+the punter is a italian restaurant near rainbow vegetarian café . this family - friendly location in the city center area has a average rating with cheap prices .
+hello and welcome to the punter , we serve the finest italian food around and have an average customer rating this is very good for a restaurant we are near rainbow vegetarian café and our area is the riverside our price range is very cheap for such good food at the moment we are not family - friendly .
+the punter is a cheap , family - friendly , italian restaurant near rainbow vegetarian café , in riverside . it has an average customer rating .
+a restaurant serving italian food for adults can be found on the riverside near rainbow vegetarian café . the punter has average ratings , and cheap prices
+there is a cheap family friendly restaurant located near the rainbow vegetarian café called the punter . they offer good italian food .
+
+
+the punter is a children friendly restaurant with high price range providing italian food . it is located in the city centre near rainbow vegetarian café and it has customer rating of 1 put of 5 .
+
+the punter , located near rainbow vegetarian café in the city centre , is a non kid friendly italian restaurant with a high price range and a customer rating of 1 out of 5 .
+the punter , a family - friendly italian restaurant in the city centre near rainbow vegetarian café , is high priced and but has a lower customer service rating of 1 out of 5 .
+the punter is a high price range restaurant in riverside near rainbow vegetarian café . it has low customer ratings and it is not kids friendly but they serve italian food .
+the punter is a children friendly italian restaurant located in riverside near rainbow vegetarian café . the prices are on the high end with a 1 out of 5 customer rating .
+
+
+located near express by holiday inn in the city centre is a highly rated restaurant called the punter . the punter is not conducive for kids . they serve italian food with a price range of £ 20 - 25 .
+the punter is an italian restaurant in the riverside area near express by holiday inn . the price range is 20 - 25 and has a high customer rating . it is not kid friendly .
+this italian food restaurant in riverside , names the punter , located near express by holiday inn . prices ranging from £ 20 - 25 has a high rating and is kids friendly .
+as a restaurant that has italian food , the punter ' s price range is £ 20 - 25 and has a high customer rating . this non family - friendly place is located near express by holiday inn .
+
+
+
+
+
+the punter restaurant is low priced , rated three stars and is for the whole family . it is in the city center close to rainbow vegetarian café . it serves fine food .
+
+
+
+
+the punter is an expensive family friendly restaurant , by the side of the river and just down the road from rainbow vegetarian café .
+
+
+
+
+
+
 
 
 
-
-The Vaults , located near Raja Indian Cuisine , is a high end French bistro and Café in Riverside and it is kid friendly .
-Priced at more than £ 30 , and located by the riverside , The Vaults , near Raja Indian Cuisine , is a child friendly coffee house that serves French cuisine
-The Vaults serves Indian food and coffee for £ 20 - 25 . It ' s by the river , near Raja Indian Cuisine , and welcomes kids .
-
+
+the vaults , located near raja indian cuisine , is a high end french bistro and café in riverside and it is kid friendly .
+priced at more than £ 30 , and located by the riverside , the vaults , near raja indian cuisine , is a child friendly coffee house that serves french cuisine
+the vaults serves indian food and coffee for £ 20 - 25 . it ' s by the river , near raja indian cuisine , and welcomes kids .
+
 
 
 
 
 
-The Vaults is a low cost , family friendly pub located riverside near Rainbow Vegetarian Café .
-The Vaults is a family friendly pub that deals in modern delicacies . They cater to those with checkbooks of moderate size , and can be found in the Park on the River , just east of Raja Indian Cuisine .
-The Vaults is a pub It provides fast foods at a reduced price and is located near the river , there Rainbow Vegetarian Café
-A family friendly pub called The Vaults is next to Rainbow Vegetarian Café . It is one star rated and is in the medium price range .
-
-
-
-
-
+the vaults is a low cost , family friendly pub located riverside near rainbow vegetarian café .
+the vaults is a family friendly pub that deals in modern delicacies . they cater to those with checkbooks of moderate size , and can be found in the park on the river , just east of raja indian cuisine .
+the vaults is a pub it provides fast foods at a reduced price and is located near the river , there rainbow vegetarian café
+a family friendly pub called the vaults is next to rainbow vegetarian café . it is one star rated and is in the medium price range .
+
+
+
+
+
 
-
-
-
-
-The Vaults is a pub restaurant with Italian food with moderate price range . It is not kid - friendly with a customer rating 1 out of 5 . It is located in the city centre near Rainbow Vegetarian Café .
-The Vaults is a pub type Italian restaurant in the moderate price range with kids friendly atmosphere . It is located in the city centre near Rainbow Vegetarian Café with a customer rating 1 out of 5 .
-
+
+
+
+
+the vaults is a pub restaurant with italian food with moderate price range . it is not kid - friendly with a customer rating 1 out of 5 . it is located in the city centre near rainbow vegetarian café .
+the vaults is a pub type italian restaurant in the moderate price range with kids friendly atmosphere . it is located in the city centre near rainbow vegetarian café with a customer rating 1 out of 5 .
+
 
-
-The Vaults near Rainbow Vegetarian Café in Riverside is a Japanese kid friendly restaurant with a pub with a price range of 20 to 25 pounds with a customer rating of 3 out of 5 .
+
+the vaults near rainbow vegetarian café in riverside is a japanese kid friendly restaurant with a pub with a price range of 20 to 25 pounds with a customer rating of 3 out of 5 .
 
 
 
 
 
-The Vaults pub near Raja Indian Cuisine has the best sushi and is family friendly .
-The Vaults pub serves Chinese cuisine at reasonable prices . Children welcome . Near Rainbow Vegetarian Café .
+the vaults pub near raja indian cuisine has the best sushi and is family friendly .
+the vaults pub serves chinese cuisine at reasonable prices . children welcome . near rainbow vegetarian café .
 
 
 
-A pub near Raja Indian Cuisine in the city centre called The Vaults sells French food moderate pricing and not child - friendly .
-The Vaults is an up market French cuisine pub located in the City Centre near to the Raja Indian Cuisine pub
-A French pub with prices above £ 30 in the riverside area near Raja Indian Cuisine which isn ' t child friendly is called The Vaults .
-For less than £ 20 , The Vaults is a family friendly riverside French pub near Raja Indian Cuisine .
-The Vaults pub has French cuisine and is located at the riverside close to the Raja Indian Cuisine pub
-The Vaults serves French food in a family friendly pub and is situated near Raja Indian Cuisine
+a pub near raja indian cuisine in the city centre called the vaults sells french food moderate pricing and not child - friendly .
+the vaults is an up market french cuisine pub located in the city centre near to the raja indian cuisine pub
+a french pub with prices above £ 30 in the riverside area near raja indian cuisine which isn ' t child friendly is called the vaults .
+for less than £ 20 , the vaults is a family friendly riverside french pub near raja indian cuisine .
+the vaults pub has french cuisine and is located at the riverside close to the raja indian cuisine pub
+the vaults serves french food in a family friendly pub and is situated near raja indian cuisine
 
 
-The Vaults is a pub near Raja Indian Cuisine in Riverside that serves expensive French food . It is children friendly .
-The Vaults is a pub that serves French food . It is located near Raja Indian Cuisine in the center of the city . It is not family - friendly . It has a price range of less than £ 20 .
+the vaults is a pub near raja indian cuisine in riverside that serves expensive french food . it is children friendly .
+the vaults is a pub that serves french food . it is located near raja indian cuisine in the center of the city . it is not family - friendly . it has a price range of less than £ 20 .
 
-The Vaults is a cheap French pub . It can be found in the city centre , close to Raja Indian Cuisine , not recommended for families .
-There is a no family - friendly pub The Vaults located near Raja Indian Cuisine in the riverside that provides French food in the cheap price range .
-The Vaults is a pub near Raja Indian Cuisine at riverside for French food good for family . The food cost less than £ 20 .
-You can find French food for less than 20 GBP at The Vaults . A family friendly pub located near Raja Indian Cuisine .
-The Vaults pub offers French food in moderate price range . It is located in the city centre near Raja Indian Cuisine . Children are not welcome .
-The Vaults is a moderately priced pub . It is kids friendly and serves French food , it is located in the city centre near Raja Indian Cuisine .
-The Vaults pub serves French food in the City Centre near Raja Indian Cuisine and is moderately priced
-The Vaults is a French pub in the area of riverside near Raja Indian Cuisine with a moderate price range and is not kid friendly .
-The Vaults is a nicely made French pub that is kids friendly and located near Raja Indian Cuisine in the riverside area . The price range is moderate .
+the vaults is a cheap french pub . it can be found in the city centre , close to raja indian cuisine , not recommended for families .
+there is a no family - friendly pub the vaults located near raja indian cuisine in the riverside that provides french food in the cheap price range .
+the vaults is a pub near raja indian cuisine at riverside for french food good for family . the food cost less than £ 20 .
+you can find french food for less than 20 gbp at the vaults . a family friendly pub located near raja indian cuisine .
+the vaults pub offers french food in moderate price range . it is located in the city centre near raja indian cuisine . children are not welcome .
+the vaults is a moderately priced pub . it is kids friendly and serves french food , it is located in the city centre near raja indian cuisine .
+the vaults pub serves french food in the city centre near raja indian cuisine and is moderately priced
+the vaults is a french pub in the area of riverside near raja indian cuisine with a moderate price range and is not kid friendly .
+the vaults is a nicely made french pub that is kids friendly and located near raja indian cuisine in the riverside area . the price range is moderate .
 
-The pub ' The Vaults ' is a French pub who are not children friendly with a price range of over £ 30 . They are located in the city centre , near ' Raja Indian Cuisine ' .
-Children friendly French pub The Vaults is located near Raja Indian Cuisine in city centre . It is a high priced pub more than £ 30 .
+the pub ' the vaults ' is a french pub who are not children friendly with a price range of over £ 30 . they are located in the city centre , near ' raja indian cuisine ' .
+children friendly french pub the vaults is located near raja indian cuisine in city centre . it is a high priced pub more than £ 30 .
 
-The Vaults is high price pub serving French food Located in riverside near Raja Indian Cuisine but not children - friendly
-The Vaults is a children Friendly pub in the riverside area , near Raja Indian Cuisine . It serves French food and is in the more than £ 30 price range .
+the vaults is high price pub serving french food located in riverside near raja indian cuisine but not children - friendly
+the vaults is a children friendly pub in the riverside area , near raja indian cuisine . it serves french food and is in the more than £ 30 price range .
 
 
 
-In the riverside is an Indian pub near Raja Indian Cuisine called The Vaults . It has a cheap price range and is family friendly .
-The Vaults pub has Indian food at cheap prices . It is located in Riverside near Raja Indian Cuisine .
-This non kid friendly pub called The Vaults , can be found near Raja Indian Cuisine in the city centre which offers Indian food at a high price range .
-If you are near Raja Indian Cuisine in city centre , check out The Vaults . It is a high price pub that sells Indian food . The Vaults is also children friendly .
+in the riverside is an indian pub near raja indian cuisine called the vaults . it has a cheap price range and is family friendly .
+the vaults pub has indian food at cheap prices . it is located in riverside near raja indian cuisine .
+this non kid friendly pub called the vaults , can be found near raja indian cuisine in the city centre which offers indian food at a high price range .
+if you are near raja indian cuisine in city centre , check out the vaults . it is a high price pub that sells indian food . the vaults is also children friendly .
 
-The Vaults is a kids friendly pub that provides Indian food with prices that range around £ 20 - 25 . Located in the riverside near Raja Indian Cuisine .
-The Vaults is a adult friendly Italian pub located in the city centre near Rainbow Vegetarian Café . Their prices and customer ratings are moderate .
-The Vaults is an Italian pub near Rainbow Vegetarian Café in riverside with a customer rating of 1 out of 5
+the vaults is a kids friendly pub that provides indian food with prices that range around £ 20 - 25 . located in the riverside near raja indian cuisine .
+the vaults is a adult friendly italian pub located in the city centre near rainbow vegetarian café . their prices and customer ratings are moderate .
+the vaults is an italian pub near rainbow vegetarian café in riverside with a customer rating of 1 out of 5
 
-The Vaults , an Italian pub , is rated 3 out of 5 by customers and is kid friendly . It is located neat Rainbow Vegetarian Café in the city centre .
+the vaults , an italian pub , is rated 3 out of 5 by customers and is kid friendly . it is located neat rainbow vegetarian café in the city centre .
 
-The Vaults is a pricey , family friendly Italian pub in the City centre , near Rainbow Vegetarian Café . It ' s rated 3 out of 5 .
-The Vaults is an Italian style pub with high customer ratings near Rainbow Vegetarian Café in the city centre . It is not child friendly and the price range is more the 30 pounds .
-The Vaults is an Italian pub in City Centre , near Rainbow Vegetarian Café , that is family friendly , pricey and highly rated .
-The Vaults is a slightly pricey Italian pub located near Rainbow Vegetarian Café in riverside which is highly rated but is not child friendly .
-Welcome to The Vaults . We a non family - friendly pub our food is Italian we are near the Rainbow Vegetarian Café we are at the riverside and our customer rating is low .
+the vaults is a pricey , family friendly italian pub in the city centre , near rainbow vegetarian café . it ' s rated 3 out of 5 .
+the vaults is an italian style pub with high customer ratings near rainbow vegetarian café in the city centre . it is not child friendly and the price range is more the 30 pounds .
+the vaults is an italian pub in city centre , near rainbow vegetarian café , that is family friendly , pricey and highly rated .
+the vaults is a slightly pricey italian pub located near rainbow vegetarian café in riverside which is highly rated but is not child friendly .
+welcome to the vaults . we a non family - friendly pub our food is italian we are near the rainbow vegetarian café we are at the riverside and our customer rating is low .
 
 
 
 
 
-The Vaults has a high price range , serves Italian food , is a pub , has an average customer rating , is near the city centre and Rainbow Vegetarian Café and is children friendly .
-pub in riverside that also serves Italian food : The Vaults has got high prices , is not child - friendly and has an average rating . It is near Rainbow Vegetarian Café in riverside .
-The Vaults is a kid friendly Italian pub in riverside . It ' s near Rainbow Vegetarian Café . It ' s expensive and gets average customer ratings .
+the vaults has a high price range , serves italian food , is a pub , has an average customer rating , is near the city centre and rainbow vegetarian café and is children friendly .
+pub in riverside that also serves italian food : the vaults has got high prices , is not child - friendly and has an average rating . it is near rainbow vegetarian café in riverside .
+the vaults is a kid friendly italian pub in riverside . it ' s near rainbow vegetarian café . it ' s expensive and gets average customer ratings .
 
 
 
 
-The Vaults is an Italian pub near Rainbow Vegetarian Café in the city centre . It is not family - friendly and has a low customer rating and a price range of less than £ 20 .
-The Vaults is a family - friendly pub serving cheap Italian food in the city centre near Rainbow Vegetarian Café . It has a low customer rating .
-The Vaults is an adult oriented pub serving Italian food , located in the city centre near Rainbow Vegetarian Café , with a low customer rating and a low price range .
-The Vaults is an Italian pub . It is located in riverside , near Rainbow Vegetarian Café . It has low customer rating since it is not family - friendly , but offer dishes for less than £ 20 .
-The Vaults is a family friendly pub that serves Italian food at less than £ 20 in Riverside , near Rainbow Vegetarian Café ; though it has a low customer rating
-The Vaults is a low rated pub , but friendly with the families that serves Italian food at less than 20 £ . It is close to the riverside and Rainbow Vegetarian Café
+the vaults is an italian pub near rainbow vegetarian café in the city centre . it is not family - friendly and has a low customer rating and a price range of less than £ 20 .
+the vaults is a family - friendly pub serving cheap italian food in the city centre near rainbow vegetarian café . it has a low customer rating .
+the vaults is an adult oriented pub serving italian food , located in the city centre near rainbow vegetarian café , with a low customer rating and a low price range .
+the vaults is an italian pub . it is located in riverside , near rainbow vegetarian café . it has low customer rating since it is not family - friendly , but offer dishes for less than £ 20 .
+the vaults is a family friendly pub that serves italian food at less than £ 20 in riverside , near rainbow vegetarian café ; though it has a low customer rating
+the vaults is a low rated pub , but friendly with the families that serves italian food at less than 20 £ . it is close to the riverside and rainbow vegetarian café
 
 
 
-A pub named The Vaults with moderate prices selling Italian food , not for kids , with a rating of 1 out of 5 . It is near Rainbow Vegetarian Café in the center of the city .
-The Vaults pub , located in the City centre , offers moderately priced Italian cuisine suitable for kids as well as adults . With a customer rating of 1 out of 5 , it is an alternative to the Rainbow Vegetarian Café located nearby .
-A moderate priced pub , The Vaults serves Italian cuisine in an adult only establishment . Rated 1 out of 5 , it is located in the riverside area near Rainbow Vegetarian Café .
-The Vaults is a pub that serves moderately priced Italian food . It is kid friendly , located on the riverside near Rainbow Vegetarian Café . It received a 1 out of 5 customer rating .
-The Vaults serves Italian food in the city centre near Rainbow Vegetarian Café . This adults only pub has a moderate price range and a customer rating of 3 out of 5 .
-The Vaults is a pub serving moderately - priced Italian food , located in the city centre near Rainbow Vegetarian Café . It is kid friendly , and has received 3 out of 5 star reviews
-The Vaults is a moderate price range Italian pub near Rainbow Vegetarian Café in riverside . It is not kid friendly and has a customer rating 3 out of 5 .
-The Vaults , a kids friendly pub with a moderate price range , with a rating of 3 out of 5 . It serves Italian food and is in riverside near Rainbow Vegetarian Café .
-Take a trip to Riverside , and down the road from Rainbow Vegetarian Café you ' ll find The Vaults , an Italian pub with good food , moderate prices , and good customer ratings .
-There is a kid friendly river side Italian pub near Rainbow Vegetarian Café named The Vaults with a 3 out of 5 rating and a moderate price rating .
+a pub named the vaults with moderate prices selling italian food , not for kids , with a rating of 1 out of 5 . it is near rainbow vegetarian café in the center of the city .
+the vaults pub , located in the city centre , offers moderately priced italian cuisine suitable for kids as well as adults . with a customer rating of 1 out of 5 , it is an alternative to the rainbow vegetarian café located nearby .
+a moderate priced pub , the vaults serves italian cuisine in an adult only establishment . rated 1 out of 5 , it is located in the riverside area near rainbow vegetarian café .
+the vaults is a pub that serves moderately priced italian food . it is kid friendly , located on the riverside near rainbow vegetarian café . it received a 1 out of 5 customer rating .
+the vaults serves italian food in the city centre near rainbow vegetarian café . this adults only pub has a moderate price range and a customer rating of 3 out of 5 .
+the vaults is a pub serving moderately - priced italian food , located in the city centre near rainbow vegetarian café . it is kid friendly , and has received 3 out of 5 star reviews
+the vaults is a moderate price range italian pub near rainbow vegetarian café in riverside . it is not kid friendly and has a customer rating 3 out of 5 .
+the vaults , a kids friendly pub with a moderate price range , with a rating of 3 out of 5 . it serves italian food and is in riverside near rainbow vegetarian café .
+take a trip to riverside , and down the road from rainbow vegetarian café you ' ll find the vaults , an italian pub with good food , moderate prices , and good customer ratings .
+there is a kid friendly river side italian pub near rainbow vegetarian café named the vaults with a 3 out of 5 rating and a moderate price rating .
 
-The Vaults near Rainbow Vegetarian Café in the heart of the city centre . Is an Italian food and pub which children friendly and a customer rating of high standard . The price range more than £ 30 .
+the vaults near rainbow vegetarian café in the heart of the city centre . is an italian food and pub which children friendly and a customer rating of high standard . the price range more than £ 30 .
 
-The Vaults is an Italian pub in riverside near the Rainbow Vegetarian Café . The price range is more than £ 30 , and it has a high customer rating - but it is not children friendly .
-The highly customer rated , child friendly pub located in Riverside near Rainbow Vegetarian Café called The Vaults has great Italian food and costs more than £ 30 .
-The Vaults is a highly rated Italian pub near to Rainbow Vegetarian Café . It is expensive and child friendly .
-The Vaults , located in the city centre near Rainbow Vegetarian Café , is a not kid - friendly pub serving Japanese food in the £ 20 - £ 25 price range .
-The Vaults is by the Raja Indian Cuisine at the city centre . With 3 out of 4 rating and an adult - only environment , you can get Japanese food at this pub if you can afford it .
-Located in the city center , The Vaults is a pub offering moderate Japanese food . Children are welcome . Close by is Raja Indian Cuisine .
+the vaults is an italian pub in riverside near the rainbow vegetarian café . the price range is more than £ 30 , and it has a high customer rating - but it is not children friendly .
+the highly customer rated , child friendly pub located in riverside near rainbow vegetarian café called the vaults has great italian food and costs more than £ 30 .
+the vaults is a highly rated italian pub near to rainbow vegetarian café . it is expensive and child friendly .
+the vaults , located in the city centre near rainbow vegetarian café , is a not kid - friendly pub serving japanese food in the £ 20 - £ 25 price range .
+the vaults is by the raja indian cuisine at the city centre . with 3 out of 4 rating and an adult - only environment , you can get japanese food at this pub if you can afford it .
+located in the city center , the vaults is a pub offering moderate japanese food . children are welcome . close by is raja indian cuisine .
 
 
-A pub called The Vaults with Japanese food is located near Raja Indian Cuisine and the city centre . It is not kids friendly with a customer rating of 1 out of 5 .
+a pub called the vaults with japanese food is located near raja indian cuisine and the city centre . it is not kids friendly with a customer rating of 1 out of 5 .
 
-The Vaults pub serves Japanese food in the £ 20 - £ 25 price range but is not child friendly and has a customer rating of 3 out of 5 and is located near Rainbow Vegetarian Café in the city centre
+the vaults pub serves japanese food in the £ 20 - £ 25 price range but is not child friendly and has a customer rating of 3 out of 5 and is located near rainbow vegetarian café in the city centre
 
-An average rated , not child friendly pub called The Vaults is priced high . It is near Raja Indian Cuisine , serves Japanese food and is by the riverside .
-The Vaults is a pub in the riverside area that has a 3 out of 5 customer rating . Although it has a higher price range , it is children friendly , serves Japanese food and is near the Raja Indian Cuisine .
+an average rated , not child friendly pub called the vaults is priced high . it is near raja indian cuisine , serves japanese food and is by the riverside .
+the vaults is a pub in the riverside area that has a 3 out of 5 customer rating . although it has a higher price range , it is children friendly , serves japanese food and is near the raja indian cuisine .
 
 
 
 
 
-The Vaults is a Japanese pub near Rainbow Vegetarian Café in the city centre area , providing high quality meals for between £ 20 and £ 25 . No children .
+the vaults is a japanese pub near rainbow vegetarian café in the city centre area , providing high quality meals for between £ 20 and £ 25 . no children .
 
-A kid friendly Japanese pub that has high ratings is close to Raja Indian Cuisine near the riverside , the name is The Vaults .
+a kid friendly japanese pub that has high ratings is close to raja indian cuisine near the riverside , the name is the vaults .
 
 
-The Vaults is a family - friendly pub near the Raja Indian Cuisine in the city centre . They serve Japanese food that costs less than £ 20 and have a low customer rating .
-The Vaults is a family friendly pub , offering Japanese . low rated , with equally fair pricing of £ 20 . Close to Raja Indian Cuisine at riverside .
+the vaults is a family - friendly pub near the raja indian cuisine in the city centre . they serve japanese food that costs less than £ 20 and have a low customer rating .
+the vaults is a family friendly pub , offering japanese . low rated , with equally fair pricing of £ 20 . close to raja indian cuisine at riverside .
 
-The Vaults offers Japanese food and pub with cheap price near Rainbow Vegetarian Café in riverside .
+the vaults offers japanese food and pub with cheap price near rainbow vegetarian café in riverside .
 
-The Vaults is a family - friendly Japanese food pub in the city near Raja Indian Cuisine with low prices and a customer rating of 3 out of 5 .
-In the city center , near Raja Indian Cuisine there is a cheap high rated Japanese pub named The Vaults . Not family - friendly .
-The Vaults is a family - friendly Japanese pub in the city centre near Raja Indian Cuisine with a customer rating of 5 out of 5 and has a cheap price range .
-The Vaults is a cheap 5 star Japanese pub in the city centre near Raja Indian Cuisine
-A 5 out of 5 rated , cheap Japanese pub is called The Vaults . It is in the riverside area near Raja Indian Cuisine and isn ' t family - friendly .
+the vaults is a family - friendly japanese food pub in the city near raja indian cuisine with low prices and a customer rating of 3 out of 5 .
+in the city center , near raja indian cuisine there is a cheap high rated japanese pub named the vaults . not family - friendly .
+the vaults is a family - friendly japanese pub in the city centre near raja indian cuisine with a customer rating of 5 out of 5 and has a cheap price range .
+the vaults is a cheap 5 star japanese pub in the city centre near raja indian cuisine
+a 5 out of 5 rated , cheap japanese pub is called the vaults . it is in the riverside area near raja indian cuisine and isn ' t family - friendly .
 
 
-The Vaults is a low price pub near Raja Indian Cuisine that serving Japanese food with a customer rating of 5 out of 5 but not family - friendly
-There is a highly rated pub selling cheaply priced Japanese food . It is called The Vaults and is located near to Raja Indian Cuisine . It is family friendly .
-There is high priced pub that serves Japanese food near Raja Indian Cuisine in city centre called The Vaults . It is children friendly and has a customer rating of 3 our of 5 .
+the vaults is a low price pub near raja indian cuisine that serving japanese food with a customer rating of 5 out of 5 but not family - friendly
+there is a highly rated pub selling cheaply priced japanese food . it is called the vaults and is located near to raja indian cuisine . it is family friendly .
+there is high priced pub that serves japanese food near raja indian cuisine in city centre called the vaults . it is children friendly and has a customer rating of 3 our of 5 .
 
-The Vaults is an adults - only pub serving Japanese food . It has good reviews however it is quite expensive . It is located near Raja Indian Cuisine in the city centre .
-High priced family - friendly pub , The Vaults has a 3 out of 5 customer rating and offers a Japanese menu . It is located at the city centre near the Raja Indian Cuisine .
+the vaults is an adults - only pub serving japanese food . it has good reviews however it is quite expensive . it is located near raja indian cuisine in the city centre .
+high priced family - friendly pub , the vaults has a 3 out of 5 customer rating and offers a japanese menu . it is located at the city centre near the raja indian cuisine .
 
-The Vaults is a high priced pub in the riverside area near Raja Indian Cuisine . It serves Japanese food and is not child friendly but has a customer rating of 3 out of 5 .
+the vaults is a high priced pub in the riverside area near raja indian cuisine . it serves japanese food and is not child friendly but has a customer rating of 3 out of 5 .
 
-Near Raja Indian Cuisine in the city is a non children friendly Japanese pub named The Vaults with a high price range and a customer rating of 3 out of 5 .
-There is a kids friendly pub The Vaults in the city centre near Raja Indian Cuisine . It has high customer ratings and high price range but they serve Japanese food .
-Welcome to The Vaults . We serve Japanese food and our price range is less than 20 pounds . We are a pub and are family - friendly . We are located in the city centre near Raja Indian Cuisine .
+near raja indian cuisine in the city is a non children friendly japanese pub named the vaults with a high price range and a customer rating of 3 out of 5 .
+there is a kids friendly pub the vaults in the city centre near raja indian cuisine . it has high customer ratings and high price range but they serve japanese food .
+welcome to the vaults . we serve japanese food and our price range is less than 20 pounds . we are a pub and are family - friendly . we are located in the city centre near raja indian cuisine .
 
-The Vaults is a Japanese pub located near Raja Indian Cuisine in the city center . It is not family - friendly and prices are less than £ 20 . Their rating is average .
-The Vaults pub has an average customer rating and serves Japanese food near the Raja Indian Cuisine and the city center . It is less than 20 pounds and family - friendly .
-The Vaults is located in riverside , near Raja Indian Cuisine . it is a pub which sells Japanese food for less than £ 20 . it is rated average by customers but isn ' t family - friendly
-Near Raja Indian Cuisine is a Japanese pub called The Vaults by the riverside which is family friendly and is less than £ 20 with an average customer rating
+the vaults is a japanese pub located near raja indian cuisine in the city center . it is not family - friendly and prices are less than £ 20 . their rating is average .
+the vaults pub has an average customer rating and serves japanese food near the raja indian cuisine and the city center . it is less than 20 pounds and family - friendly .
+the vaults is located in riverside , near raja indian cuisine . it is a pub which sells japanese food for less than £ 20 . it is rated average by customers but isn ' t family - friendly
+near raja indian cuisine is a japanese pub called the vaults by the riverside which is family friendly and is less than £ 20 with an average customer rating
 
-A Japanese pub located in the city centre near Raja Indian Cuisine , The Vaults is moderately priced , not child friendly , with a low customer rating .
-The Vaults is a pub that is family - friendly . Prices range less than £ 20 . It offers Japanese food and is located in the city centre near Raja Indian Cuisine . It has a low customer rating .
-The Vaults is a Japanese pub . It is not family - friendly . It is in the riverside area near Raja Indian Cuisine . The customer rating is low . The price range is less than £ 20 .
-There is a Japanese pub called The Vaults located near Raja Indian Cuisine in the riverside area . It has a price range of less than 20 pounds and a low customer rating . It is also family - friendly .
+a japanese pub located in the city centre near raja indian cuisine , the vaults is moderately priced , not child friendly , with a low customer rating .
+the vaults is a pub that is family - friendly . prices range less than £ 20 . it offers japanese food and is located in the city centre near raja indian cuisine . it has a low customer rating .
+the vaults is a japanese pub . it is not family - friendly . it is in the riverside area near raja indian cuisine . the customer rating is low . the price range is less than £ 20 .
+there is a japanese pub called the vaults located near raja indian cuisine in the riverside area . it has a price range of less than 20 pounds and a low customer rating . it is also family - friendly .
 
-The Vaults is a kid friendly Japanese pub in the city centre near Raja Indian Cuisine with a moderate price range and has a customer rating of 1 out of 5 .
-The Vaults is a pub that has a moderate price range and Japanese food with low ratings near Raja Indian Cuisine in city centre with a moderate price range .
+the vaults is a kid friendly japanese pub in the city centre near raja indian cuisine with a moderate price range and has a customer rating of 1 out of 5 .
+the vaults is a pub that has a moderate price range and japanese food with low ratings near raja indian cuisine in city centre with a moderate price range .
 
 
-The Vaults is a pub serving Japanese food near the city centre near Rainbow Vegetarian Café . It is averagely priced and not very kid friendly .
+the vaults is a pub serving japanese food near the city centre near rainbow vegetarian café . it is averagely priced and not very kid friendly .
 
 
-The Vaults is in the city centre near Rainbow Vegetarian Café , it is a Japanese food serving pub with a £ 20 - 25 price range . It isn ' t kids friendly and has a 3 out of 5 rating .
-Japanese cuisine served at The Vaults , has a rating of 3 out of 5 . This kid friendly pub will range in price from 20 - 25 , and is located near Rainbow Vegetarian Café in the center of the city .
+the vaults is in the city centre near rainbow vegetarian café , it is a japanese food serving pub with a £ 20 - 25 price range . it isn ' t kids friendly and has a 3 out of 5 rating .
+japanese cuisine served at the vaults , has a rating of 3 out of 5 . this kid friendly pub will range in price from 20 - 25 , and is located near rainbow vegetarian café in the center of the city .
 
 
 
@@ -4757,404 +4694,404 @@ Japanese cuisine served at The Vaults , has a rating of 3 out of 5 . This kid fr
 
 
 
-The Vaults , located riverside near Raja Indian Cuisine , offers Japanese food with a price range of £ 20 - 25 . It is a pub with a high customer rating , not children friendly .
-Located on the riverside near Raja Indian Cuisine , The Vaults , a Japanese pub , boasts moderate prices , high ratings , and a family friendly atmosphere .
+the vaults , located riverside near raja indian cuisine , offers japanese food with a price range of £ 20 - 25 . it is a pub with a high customer rating , not children friendly .
+located on the riverside near raja indian cuisine , the vaults , a japanese pub , boasts moderate prices , high ratings , and a family friendly atmosphere .
 
 
 
-The Vaults is a cheap pub located next to Raja Indian Cuisine .
-The Vaults , located near Raja Indian Cuisine and the Riverside , is a high priced , high quality pub that provides Sushi . It is family friendly .
-Near the Raja Indian Cuisine in City centre , you will find a pub called The Vaults . This moderately priced pub is great for families .
-The Vaults is a low price pub located near Raja Indian Cuisine north of the city center .
+the vaults is a cheap pub located next to raja indian cuisine .
+the vaults , located near raja indian cuisine and the riverside , is a high priced , high quality pub that provides sushi . it is family friendly .
+near the raja indian cuisine in city centre , you will find a pub called the vaults . this moderately priced pub is great for families .
+the vaults is a low price pub located near raja indian cuisine north of the city center .
 
 
 
 
 
-The Vaults is a family - friendly pub located in the city centre near Raja Indian Cuisine . It has cheap prices and low customer ratings .
+the vaults is a family - friendly pub located in the city centre near raja indian cuisine . it has cheap prices and low customer ratings .
 
-The Vaults is a cheap , one - star pub near Rainbow Vegetarian Café . It is family friendly .
+the vaults is a cheap , one - star pub near rainbow vegetarian café . it is family friendly .
 
 
 
 
-The Vaults pub and family pub that provides wine and spirits and picnic food items is inexpensive and close to Raja Indian Cuisine .
-Near Rainbow Vegetarian Café in the city centre is The Vaults family pub . It is mid range priced .
+the vaults pub and family pub that provides wine and spirits and picnic food items is inexpensive and close to raja indian cuisine .
+near rainbow vegetarian café in the city centre is the vaults family pub . it is mid range priced .
 
 
 
 
-The Vaults is a high - priced family friendly pub that serves wines and cheeses . It is located in the City centre and is near by the Raja Indian Cuisine .
+the vaults is a high - priced family friendly pub that serves wines and cheeses . it is located in the city centre and is near by the raja indian cuisine .
 
-The Vaults is a pub in the high - price range . It is located near Raja Indian Cuisine .
+the vaults is a pub in the high - price range . it is located near raja indian cuisine .
 
 
-The Vaults is a pub providing sea food deliveries in the average price range . It is located in the north of city after Rainbow Vegetarian Café next to river
+the vaults is a pub providing sea food deliveries in the average price range . it is located in the north of city after rainbow vegetarian café next to river
 
-The Vaults is a family friendly restaurant that deals in modern delicacies . They cater to those with checkbooks of moderate size , and can be found in the Park on the River , just east of Raja Indian Cuisine .
+the vaults is a family friendly restaurant that deals in modern delicacies . they cater to those with checkbooks of moderate size , and can be found in the park on the river , just east of raja indian cuisine .
 
 
-A restaurant near Raja Indian Cuisine in the city centre called The Vaults sells French food moderate pricing and not child - friendly .
-The Vaults is an up market French cuisine restaurant located in the City Centre near to the Raja Indian Cuisine restaurant
-A French restaurant with prices above £ 30 in the riverside area near Raja Indian Cuisine which isn ' t child friendly is called The Vaults .
-For less than £ 20 , The Vaults is a family friendly riverside French restaurant near Raja Indian Cuisine .
-The Vaults restaurant has French cuisine and is located at the riverside close to the Raja Indian Cuisine restaurant
-The Vaults serves French food in a family friendly restaurant and is situated near Raja Indian Cuisine
+a restaurant near raja indian cuisine in the city centre called the vaults sells french food moderate pricing and not child - friendly .
+the vaults is an up market french cuisine restaurant located in the city centre near to the raja indian cuisine restaurant
+a french restaurant with prices above £ 30 in the riverside area near raja indian cuisine which isn ' t child friendly is called the vaults .
+for less than £ 20 , the vaults is a family friendly riverside french restaurant near raja indian cuisine .
+the vaults restaurant has french cuisine and is located at the riverside close to the raja indian cuisine restaurant
+the vaults serves french food in a family friendly restaurant and is situated near raja indian cuisine
 
 
-The Vaults is a restaurant near Raja Indian Cuisine in Riverside that serves expensive French food . It is children friendly .
-The Vaults is a restaurant that serves French food . It is located near Raja Indian Cuisine in the center of the city . It is not family - friendly . It has a price range of less than £ 20 .
+the vaults is a restaurant near raja indian cuisine in riverside that serves expensive french food . it is children friendly .
+the vaults is a restaurant that serves french food . it is located near raja indian cuisine in the center of the city . it is not family - friendly . it has a price range of less than £ 20 .
 
-The Vaults is a cheap French restaurant . It can be found in the city centre , close to Raja Indian Cuisine , not recommended for families .
-There is a no family - friendly restaurant The Vaults located near Raja Indian Cuisine in the riverside that provides French food in the cheap price range .
-The Vaults is a restaurant near Raja Indian Cuisine at riverside for French food good for family . The food cost less than £ 20 .
-You can find French food for less than 20 GBP at The Vaults . A family friendly restaurant located near Raja Indian Cuisine .
-The Vaults restaurant offers French food in moderate price range . It is located in the city centre near Raja Indian Cuisine . Children are not welcome .
-The Vaults is a moderately priced restaurant . It is kids friendly and serves French food , it is located in the city centre near Raja Indian Cuisine .
-The Vaults restaurant serves French food in the City Centre near Raja Indian Cuisine and is moderately priced
-The Vaults is a French restaurant in the area of riverside near Raja Indian Cuisine with a moderate price range and is not kid friendly .
-The Vaults is a nicely made French restaurant that is kids friendly and located near Raja Indian Cuisine in the riverside area . The price range is moderate .
+the vaults is a cheap french restaurant . it can be found in the city centre , close to raja indian cuisine , not recommended for families .
+there is a no family - friendly restaurant the vaults located near raja indian cuisine in the riverside that provides french food in the cheap price range .
+the vaults is a restaurant near raja indian cuisine at riverside for french food good for family . the food cost less than £ 20 .
+you can find french food for less than 20 gbp at the vaults . a family friendly restaurant located near raja indian cuisine .
+the vaults restaurant offers french food in moderate price range . it is located in the city centre near raja indian cuisine . children are not welcome .
+the vaults is a moderately priced restaurant . it is kids friendly and serves french food , it is located in the city centre near raja indian cuisine .
+the vaults restaurant serves french food in the city centre near raja indian cuisine and is moderately priced
+the vaults is a french restaurant in the area of riverside near raja indian cuisine with a moderate price range and is not kid friendly .
+the vaults is a nicely made french restaurant that is kids friendly and located near raja indian cuisine in the riverside area . the price range is moderate .
 
-The restaurant ' The Vaults ' is a French restaurant who are not children friendly with a price range of over £ 30 . They are located in the city centre , near ' Raja Indian Cuisine ' .
-Children friendly French restaurant The Vaults is located near Raja Indian Cuisine in city centre . It is a high priced restaurant more than £ 30 .
+the restaurant ' the vaults ' is a french restaurant who are not children friendly with a price range of over £ 30 . they are located in the city centre , near ' raja indian cuisine ' .
+children friendly french restaurant the vaults is located near raja indian cuisine in city centre . it is a high priced restaurant more than £ 30 .
 
-The Vaults is high price restaurant serving French food Located in riverside near Raja Indian Cuisine but not children - friendly
-The Vaults is a children Friendly restaurant in the riverside area , near Raja Indian Cuisine . It serves French food and is in the more than £ 30 price range .
+the vaults is high price restaurant serving french food located in riverside near raja indian cuisine but not children - friendly
+the vaults is a children friendly restaurant in the riverside area , near raja indian cuisine . it serves french food and is in the more than £ 30 price range .
 
 
 
-In the riverside is an Indian restaurant near Raja Indian Cuisine called The Vaults . It has a cheap price range and is family friendly .
-The Vaults restaurant has Indian food at cheap prices . It is located in Riverside near Raja Indian Cuisine .
-This non kid friendly restaurant called The Vaults , can be found near Raja Indian Cuisine in the city centre which offers Indian food at a high price range .
-If you are near Raja Indian Cuisine in city centre , check out The Vaults . It is a high price restaurant that sells Indian food . The Vaults is also children friendly .
+in the riverside is an indian restaurant near raja indian cuisine called the vaults . it has a cheap price range and is family friendly .
+the vaults restaurant has indian food at cheap prices . it is located in riverside near raja indian cuisine .
+this non kid friendly restaurant called the vaults , can be found near raja indian cuisine in the city centre which offers indian food at a high price range .
+if you are near raja indian cuisine in city centre , check out the vaults . it is a high price restaurant that sells indian food . the vaults is also children friendly .
 
-The Vaults is a kids friendly restaurant that provides Indian food with prices that range around £ 20 - 25 . Located in the riverside near Raja Indian Cuisine .
+the vaults is a kids friendly restaurant that provides indian food with prices that range around £ 20 - 25 . located in the riverside near raja indian cuisine .
 
-The Vaults is a low - priced restaurant in the city centre that delivers take - away , near Rainbow Vegetarian Café .
-The Vaults Is a restaurant located next to Raja Indian Cuisine , in the low price range
+the vaults is a low - priced restaurant in the city centre that delivers take - away , near rainbow vegetarian café .
+the vaults is a restaurant located next to raja indian cuisine , in the low price range
 
 
-The Vaults restaurant and family restaurant that provides wine and spirits and picnic food items is inexpensive and close to Raja Indian Cuisine .
+the vaults restaurant and family restaurant that provides wine and spirits and picnic food items is inexpensive and close to raja indian cuisine .
 
 
-The Vaults is a high - priced family friendly restaurant that serves wines and cheeses . It is located in the City centre and is near by the Raja Indian Cuisine .
-The Vaults is a restaurant in the high - price range . It is located near Raja Indian Cuisine .
+the vaults is a high - priced family friendly restaurant that serves wines and cheeses . it is located in the city centre and is near by the raja indian cuisine .
+the vaults is a restaurant in the high - price range . it is located near raja indian cuisine .
 
 
 
 
 
-The Vaults is on riverside has a moderate price its close to Raja Indian Cuisine
+the vaults is on riverside has a moderate price its close to raja indian cuisine
 
 
 
 
-The Waterman serves medium - priced Indian food and coffee in the city centre . It ' s by Raja Indian Cuisine . Don ' t bring your kids .
-The Waterman serves coffee and Indian food for less that £ 20 . It is near Raja Indian Cuisine in Riverside .
-Enjoy coffee and treat the kids to authentic Indian food at The Waterman . A high priced establishment near Raja Indian Cuisine , in Riverside .
-The pub The Waterman is located int he center of the city near Raja Indian Cuisine . It is not family - friendly , and the price range is 20 pounds .
-Conveniently located on the riverside , close to Raja Indian Cuisine , The Waterman is an elite , but family friendly established pub .
+the waterman serves medium - priced indian food and coffee in the city centre . it ' s by raja indian cuisine . don ' t bring your kids .
+the waterman serves coffee and indian food for less that £ 20 . it is near raja indian cuisine in riverside .
+enjoy coffee and treat the kids to authentic indian food at the waterman . a high priced establishment near raja indian cuisine , in riverside .
+the pub the waterman is located int he center of the city near raja indian cuisine . it is not family - friendly , and the price range is 20 pounds .
+conveniently located on the riverside , close to raja indian cuisine , the waterman is an elite , but family friendly established pub .
 
 
-The Waterman is a family friendly pub providing Indian food for £ 20 or less . It is located in riverside near Raja Indian Cuisine .
+the waterman is a family friendly pub providing indian food for £ 20 or less . it is located in riverside near raja indian cuisine .
 
 
-The riverside area has a pub called The Waterman which offers a pub and Indian food . It is located near the Raja Indian Cuisine . Prices are in the high range . It is not child friendly .
-The Waterman is a Indian pub in the high price range in the riverside area of Raja Indian Cuisine and is children friendly .
-The Waterman is a pub providing Indian food in the high price range . It is located in the riverside . It is near Raja Indian Cuisine .
-The Waterman is a pub providing Indian food in the low price range . It is located in the city centre however not family friendly it is near Raja Indian Cuisine .
-Near Raja Indian Cuisine , The Waterman provides the atmosphere of a pub with Indian food . At less than 20 pounds , it provides a family friendly setting for its customers right in the city centre .
-The Waterman is a pub providing Indian food in the less than £ 20 price range . It is located in the city centre . It is near Raja Indian Cuisine .
-The Waterman is an Indian pub providing meals less than £ 20 . It is located near the riverside and Raja Indian Cuisine and is non family friendly .
-For less than £ 20 you can eat at the pub The Waterman . It is located in riverside near Raja Indian Cuisine , is family friendly , and offers Indian food .
+the riverside area has a pub called the waterman which offers a pub and indian food . it is located near the raja indian cuisine . prices are in the high range . it is not child friendly .
+the waterman is a indian pub in the high price range in the riverside area of raja indian cuisine and is children friendly .
+the waterman is a pub providing indian food in the high price range . it is located in the riverside . it is near raja indian cuisine .
+the waterman is a pub providing indian food in the low price range . it is located in the city centre however not family friendly it is near raja indian cuisine .
+near raja indian cuisine , the waterman provides the atmosphere of a pub with indian food . at less than 20 pounds , it provides a family friendly setting for its customers right in the city centre .
+the waterman is a pub providing indian food in the less than £ 20 price range . it is located in the city centre . it is near raja indian cuisine .
+the waterman is an indian pub providing meals less than £ 20 . it is located near the riverside and raja indian cuisine and is non family friendly .
+for less than £ 20 you can eat at the pub the waterman . it is located in riverside near raja indian cuisine , is family friendly , and offers indian food .
 
-The Waterman is an adults - only pub that serves moderately - priced Indian dishes in the city centre , near Raja Indian Cuisine .
-There is a moderate priced , child friendly pub called The Waterman , that serves Indian food in the city centre near Raja Indian Cuisine .
-There is a moderately priced pub in the city center , The Waterman , that serves Indian food . The price is moderate and it is near the Raja Indian Cuisine .
-The Waterman is a moderate priced Indian pub . It is not kid friendly and is in the riverside area near Raja Indian Cuisine .
-The Waterman is a pub that serves moderately priced Indian food and is kid friendly . They are located in the riverside area near Raja Indian Cuisine .
-The Waterman is a pub providing Indian food in the moderate price range . It is located in the riverside . It is near Raja Indian Cuisine .
-The Waterman is a pub serving Indian food at a price range of over £ 30 . It is on the riverside , is child - friendly and is near Raja Indian Cuisine .
+the waterman is an adults - only pub that serves moderately - priced indian dishes in the city centre , near raja indian cuisine .
+there is a moderate priced , child friendly pub called the waterman , that serves indian food in the city centre near raja indian cuisine .
+there is a moderately priced pub in the city center , the waterman , that serves indian food . the price is moderate and it is near the raja indian cuisine .
+the waterman is a moderate priced indian pub . it is not kid friendly and is in the riverside area near raja indian cuisine .
+the waterman is a pub that serves moderately priced indian food and is kid friendly . they are located in the riverside area near raja indian cuisine .
+the waterman is a pub providing indian food in the moderate price range . it is located in the riverside . it is near raja indian cuisine .
+the waterman is a pub serving indian food at a price range of over £ 30 . it is on the riverside , is child - friendly and is near raja indian cuisine .
 
 
 
-There is a children - friendly pub named The Waterman that offers Italian food . It is located near Raja Indian Cuisine in the riverside area .
-The Waterman is an establishment selling Italian food and also has a pub on site . It is located by the riverside near Raja Indian Cuisine . It is a cheap place to eat and yes it is family friendly
-There is an Italian pub near Raja Indian Cuisine in city centre . The Waterman is expensive and isn ' t family - friendly .
-The Waterman is a high priced Italian pub and pub in the city centre near Raja Indian Cuisine . It is children friendly .
-Located in the city centre near Raja Indian Cuisine is an adult pub called The Waterman . This high priced pub serves Italian food .
-The Waterman is a pub that also serves Italian at a high price range and is not children friendly , It is located in riverside near Raja Indian Cuisine .
-In riverside , is a family friendly , high priced , Italian pub named The Waterman . The Waterman is near Raja Indian Cuisine .
+there is a children - friendly pub named the waterman that offers italian food . it is located near raja indian cuisine in the riverside area .
+the waterman is an establishment selling italian food and also has a pub on site . it is located by the riverside near raja indian cuisine . it is a cheap place to eat and yes it is family friendly
+there is an italian pub near raja indian cuisine in city centre . the waterman is expensive and isn ' t family - friendly .
+the waterman is a high priced italian pub and pub in the city centre near raja indian cuisine . it is children friendly .
+located in the city centre near raja indian cuisine is an adult pub called the waterman . this high priced pub serves italian food .
+the waterman is a pub that also serves italian at a high price range and is not children friendly , it is located in riverside near raja indian cuisine .
+in riverside , is a family friendly , high priced , italian pub named the waterman . the waterman is near raja indian cuisine .
 
 
-The Waterman is a cheap Italian food pub in the city centre , near Raja Indian Cuisine . It is not family - friendly .
+the waterman is a cheap italian food pub in the city centre , near raja indian cuisine . it is not family - friendly .
 
 
-The Waterman is a pub that offer Italian food also , less than £ 20 average and located by the riverside near Raja Indian Cuisine . Kids not welcome .
-The Waterman is a family - friendly Italian pub near Raja Indian Cuisine in the city with a price range of less than 20 euros
+the waterman is a pub that offer italian food also , less than £ 20 average and located by the riverside near raja indian cuisine . kids not welcome .
+the waterman is a family - friendly italian pub near raja indian cuisine in the city with a price range of less than 20 euros
 
-The Waterman is a family - friendly pub offering Italian food at reasonable prices , it is located near the Raja Indian Cuisine , Luton .
-The Waterman is an Italian pub . It is kids - friendly with a price range of £ 20 - 25 . It is situated near the Raja Indian Cuisine establishment in the riverside area .
+the waterman is a family - friendly pub offering italian food at reasonable prices , it is located near the raja indian cuisine , luton .
+the waterman is an italian pub . it is kids - friendly with a price range of £ 20 - 25 . it is situated near the raja indian cuisine establishment in the riverside area .
 
 
-The pub The Waterman is an expensive family friendly establishment located near Raja Indian Cuisine .
+the pub the waterman is an expensive family friendly establishment located near raja indian cuisine .
 
 
 
-The restaurant The Waterman is located int he center of the city near Raja Indian Cuisine . It is not family - friendly , and the price range is 20 pounds .
-Conveniently located on the riverside , close to Raja Indian Cuisine , The Waterman is an elite , but family friendly established restaurant .
+the restaurant the waterman is located int he center of the city near raja indian cuisine . it is not family - friendly , and the price range is 20 pounds .
+conveniently located on the riverside , close to raja indian cuisine , the waterman is an elite , but family friendly established restaurant .
 
 
-The Waterman is a family friendly restaurant providing Indian food for £ 20 or less . It is located in riverside near Raja Indian Cuisine .
+the waterman is a family friendly restaurant providing indian food for £ 20 or less . it is located in riverside near raja indian cuisine .
 
 
-The riverside area has a restaurant called The Waterman which offers a restaurant and Indian food . It is located near the Raja Indian Cuisine . Prices are in the high range . It is not child friendly .
-The Waterman is a Indian restaurant in the high price range in the riverside area of Raja Indian Cuisine and is children friendly .
-The Waterman is a restaurant providing Indian food in the high price range . It is located in the riverside . It is near Raja Indian Cuisine .
-The Waterman is a restaurant providing Indian food in the low price range . It is located in the city centre however not family friendly it is near Raja Indian Cuisine .
-Near Raja Indian Cuisine , The Waterman provides the atmosphere of a restaurant with Indian food . At less than 20 pounds , it provides a family friendly setting for its customers right in the city centre .
-The Waterman is a restaurant providing Indian food in the less than £ 20 price range . It is located in the city centre . It is near Raja Indian Cuisine .
-The Waterman is an Indian restaurant providing meals less than £ 20 . It is located near the riverside and Raja Indian Cuisine and is non family friendly .
-For less than £ 20 you can eat at the restaurant The Waterman . It is located in riverside near Raja Indian Cuisine , is family friendly , and offers Indian food .
+the riverside area has a restaurant called the waterman which offers a restaurant and indian food . it is located near the raja indian cuisine . prices are in the high range . it is not child friendly .
+the waterman is a indian restaurant in the high price range in the riverside area of raja indian cuisine and is children friendly .
+the waterman is a restaurant providing indian food in the high price range . it is located in the riverside . it is near raja indian cuisine .
+the waterman is a restaurant providing indian food in the low price range . it is located in the city centre however not family friendly it is near raja indian cuisine .
+near raja indian cuisine , the waterman provides the atmosphere of a restaurant with indian food . at less than 20 pounds , it provides a family friendly setting for its customers right in the city centre .
+the waterman is a restaurant providing indian food in the less than £ 20 price range . it is located in the city centre . it is near raja indian cuisine .
+the waterman is an indian restaurant providing meals less than £ 20 . it is located near the riverside and raja indian cuisine and is non family friendly .
+for less than £ 20 you can eat at the restaurant the waterman . it is located in riverside near raja indian cuisine , is family friendly , and offers indian food .
 
-The Waterman is an adults - only restaurant that serves moderately - priced Indian dishes in the city centre , near Raja Indian Cuisine .
-There is a moderate priced , child friendly restaurant called The Waterman , that serves Indian food in the city centre near Raja Indian Cuisine .
-There is a moderately priced restaurant in the city center , The Waterman , that serves Indian food . The price is moderate and it is near the Raja Indian Cuisine .
-The Waterman is a moderate priced Indian restaurant . It is not kid friendly and is in the riverside area near Raja Indian Cuisine .
-The Waterman is a restaurant that serves moderately priced Indian food and is kid friendly . They are located in the riverside area near Raja Indian Cuisine .
-The Waterman is a restaurant providing Indian food in the moderate price range . It is located in the riverside . It is near Raja Indian Cuisine .
-The Waterman is a restaurant serving Indian food at a price range of over £ 30 . It is on the riverside , is child - friendly and is near Raja Indian Cuisine .
+the waterman is an adults - only restaurant that serves moderately - priced indian dishes in the city centre , near raja indian cuisine .
+there is a moderate priced , child friendly restaurant called the waterman , that serves indian food in the city centre near raja indian cuisine .
+there is a moderately priced restaurant in the city center , the waterman , that serves indian food . the price is moderate and it is near the raja indian cuisine .
+the waterman is a moderate priced indian restaurant . it is not kid friendly and is in the riverside area near raja indian cuisine .
+the waterman is a restaurant that serves moderately priced indian food and is kid friendly . they are located in the riverside area near raja indian cuisine .
+the waterman is a restaurant providing indian food in the moderate price range . it is located in the riverside . it is near raja indian cuisine .
+the waterman is a restaurant serving indian food at a price range of over £ 30 . it is on the riverside , is child - friendly and is near raja indian cuisine .
 
 
 
-There is a children - friendly restaurant named The Waterman that offers Italian food . It is located near Raja Indian Cuisine in the riverside area .
-The Waterman is an establishment selling Italian food and also has a restaurant on site . It is located by the riverside near Raja Indian Cuisine . It is a cheap place to eat and yes it is family friendly
-There is an Italian restaurant near Raja Indian Cuisine in city centre . The Waterman is expensive and isn ' t family - friendly .
-The Waterman is a high priced Italian restaurant and restaurant in the city centre near Raja Indian Cuisine . It is children friendly .
-Located in the city centre near Raja Indian Cuisine is an adult restaurant called The Waterman . This high priced restaurant serves Italian food .
-The Waterman is a restaurant that also serves Italian at a high price range and is not children friendly , It is located in riverside near Raja Indian Cuisine .
-In riverside , is a family friendly , high priced , Italian restaurant named The Waterman . The Waterman is near Raja Indian Cuisine .
+there is a children - friendly restaurant named the waterman that offers italian food . it is located near raja indian cuisine in the riverside area .
+the waterman is an establishment selling italian food and also has a restaurant on site . it is located by the riverside near raja indian cuisine . it is a cheap place to eat and yes it is family friendly
+there is an italian restaurant near raja indian cuisine in city centre . the waterman is expensive and isn ' t family - friendly .
+the waterman is a high priced italian restaurant and restaurant in the city centre near raja indian cuisine . it is children friendly .
+located in the city centre near raja indian cuisine is an adult restaurant called the waterman . this high priced restaurant serves italian food .
+the waterman is a restaurant that also serves italian at a high price range and is not children friendly , it is located in riverside near raja indian cuisine .
+in riverside , is a family friendly , high priced , italian restaurant named the waterman . the waterman is near raja indian cuisine .
 
 
-The Waterman is a cheap Italian food restaurant in the city centre , near Raja Indian Cuisine . It is not family - friendly .
+the waterman is a cheap italian food restaurant in the city centre , near raja indian cuisine . it is not family - friendly .
 
 
-The Waterman is a restaurant that offer Italian food also , less than £ 20 average and located by the riverside near Raja Indian Cuisine . Kids not welcome .
-The Waterman is a family - friendly Italian restaurant near Raja Indian Cuisine in the city with a price range of less than 20 euros
+the waterman is a restaurant that offer italian food also , less than £ 20 average and located by the riverside near raja indian cuisine . kids not welcome .
+the waterman is a family - friendly italian restaurant near raja indian cuisine in the city with a price range of less than 20 euros
 
-The Waterman is a family - friendly restaurant offering Italian food at reasonable prices , it is located near the Raja Indian Cuisine , Luton .
-The Waterman is an Italian restaurant . It is kids - friendly with a price range of £ 20 - 25 . It is situated near the Raja Indian Cuisine establishment in the riverside area .
+the waterman is a family - friendly restaurant offering italian food at reasonable prices , it is located near the raja indian cuisine , luton .
+the waterman is an italian restaurant . it is kids - friendly with a price range of £ 20 - 25 . it is situated near the raja indian cuisine establishment in the riverside area .
 
 
-The restaurant The Waterman is an expensive family friendly establishment located near Raja Indian Cuisine .
+the restaurant the waterman is an expensive family friendly establishment located near raja indian cuisine .
 
 
 
-Raja Indian Cuisine is close to a competitor The Waterman where Indian food is served for less than £ 20 a plate in the riverside area not to families
-The Waterman serves Indian food . It has a moderate price range . Its near Raja Indian Cuisine in riverside .
-The Waterman near Raja Indian Cuisine in riverside serves a high price range Italian food .
-The Wrestlers is a moderate price range Italian food Café is located in riverside near Raja Indian Cuisine .
-Close to Raja Indian Cuisine in riverside , you will find The Wrestlers . A decently priced , child friendly coffee chop and Japanese food establishment .
+raja indian cuisine is close to a competitor the waterman where indian food is served for less than £ 20 a plate in the riverside area not to families
+the waterman serves indian food . it has a moderate price range . its near raja indian cuisine in riverside .
+the waterman near raja indian cuisine in riverside serves a high price range italian food .
+the wrestlers is a moderate price range italian food café is located in riverside near raja indian cuisine .
+close to raja indian cuisine in riverside , you will find the wrestlers . a decently priced , child friendly coffee chop and japanese food establishment .
 
-The Wrestlers is a go - to Café for families and features moderately priced food for high - energy customers including families . You can find The Wrestlers near Raja Indian Cuisine at City Centre .
-The Wrestlers pub a variety of foods , it ' s near Raja Indian Cuisine in the City centre
+the wrestlers is a go - to café for families and features moderately priced food for high - energy customers including families . you can find the wrestlers near raja indian cuisine at city centre .
+the wrestlers pub a variety of foods , it ' s near raja indian cuisine in the city centre
 
 
 
 
 
 
-The Wrestlers is a Japanese food restaurant with a low customer rating . It is near Raja Indian Cuisine and its price range is more than £ 30 . It is a pub in riverside .
-The Wrestlers is a low cost pub . It is by Raja Indian Cuisine , and is adult only .
-The Wrestlers pub family friendly and well priced located next to Raja Indian Cuisine
+the wrestlers is a japanese food restaurant with a low customer rating . it is near raja indian cuisine and its price range is more than £ 30 . it is a pub in riverside .
+the wrestlers is a low cost pub . it is by raja indian cuisine , and is adult only .
+the wrestlers pub family friendly and well priced located next to raja indian cuisine
 
-The Wrestlers is Japanese Fast food with pub on side Raja Indian Cuisine with low rank and no more than £ 30
-When in the center of the city you must try The Wrestlers with your family . It is a pub that serves Italian food at a fair price . It ' s located near Raja Indian Cuisine .
+the wrestlers is japanese fast food with pub on side raja indian cuisine with low rank and no more than £ 30
+when in the center of the city you must try the wrestlers with your family . it is a pub that serves italian food at a fair price . it ' s located near raja indian cuisine .
 
 
 
 
-Near Raja Indian Cuisine there is a pub called The Wrestlers that offers less than £ 20 Italian food and is by the river side . Kids not welcome
-Near Raja Indian Cuisine in the city centre is The Wrestlers a pub with Italian food . It is moderately - priced and is not kid friendly .
-The Wrestlers is a pub near Raja Indian Cuisine in the city centre . It serves moderately priced Italian food and is kids friendly .
-The Wrestlers is a moderately priced pub that serves Italian food . It is located in the city centre near Raja Indian Cuisine . Great place to bring your family .
+near raja indian cuisine there is a pub called the wrestlers that offers less than £ 20 italian food and is by the river side . kids not welcome
+near raja indian cuisine in the city centre is the wrestlers a pub with italian food . it is moderately - priced and is not kid friendly .
+the wrestlers is a pub near raja indian cuisine in the city centre . it serves moderately priced italian food and is kids friendly .
+the wrestlers is a moderately priced pub that serves italian food . it is located in the city centre near raja indian cuisine . great place to bring your family .
 
 
-The Wrestlers serves Italian food . It is a pub near Raja Indian Cuisine in the riverside area . It is kids friendly and has a moderate price range .
-An Italian pub called The Wrestlers is a pub in the area of riverside located near Raja Indian Cuisine . It is a children friendly place with a high price range of more than £ 30 .
-The Wrestlers eat at a pub that is family - friendly with prince range less than £ 20 , serving Japanese cuisine , and located near Raja Indian Cuisine in city centre area .
-The Wrestlers is a Japanese pub in City centre near Raja Indian Cuisine .
-Near Raja Indian Cuisine , in the riverside area lies The Wrestlers pub which serves Japanese food , is kid friendly with a price range of £ 20 - £ 25 .
-The Wrestlers is an adult Japanese pub in riverside near Raja Indian Cuisine with price range more than £ 30
+the wrestlers serves italian food . it is a pub near raja indian cuisine in the riverside area . it is kids friendly and has a moderate price range .
+an italian pub called the wrestlers is a pub in the area of riverside located near raja indian cuisine . it is a children friendly place with a high price range of more than £ 30 .
+the wrestlers eat at a pub that is family - friendly with prince range less than £ 20 , serving japanese cuisine , and located near raja indian cuisine in city centre area .
+the wrestlers is a japanese pub in city centre near raja indian cuisine .
+near raja indian cuisine , in the riverside area lies the wrestlers pub which serves japanese food , is kid friendly with a price range of £ 20 - £ 25 .
+the wrestlers is an adult japanese pub in riverside near raja indian cuisine with price range more than £ 30
 
 
-The Wrestlers is a pub that provides Japanese food for a high cost . The pub is located by the margin of the river , next to Raja Indian Cuisine .
-The Wrestlers is a Japanese food pub , located in the Riverside area nearby Raja Indian Cuisine . It is relatively inexpensive and also kids friendly .
-The Wrestlers offers Japanese food and pub with cheap price near Raja Indian Cuisine in riverside .
+the wrestlers is a pub that provides japanese food for a high cost . the pub is located by the margin of the river , next to raja indian cuisine .
+the wrestlers is a japanese food pub , located in the riverside area nearby raja indian cuisine . it is relatively inexpensive and also kids friendly .
+the wrestlers offers japanese food and pub with cheap price near raja indian cuisine in riverside .
 
-Near the Raja Indian Cuisine is children - friendly in the riverside area . It is a pub with Japanese food with a high price range named The Wrestlers .
-The Wrestlers is a pub serving Japanese food and is located near Raja Indian Cuisine and the city center . It is non - family - friendly and is less than 20 pounds in price range .
-The city centre has Japanese food via a pub , The Wrestlers . family - friendly and less than £ 20 , this eatery is located near Raja Indian Cuisine .
-The Wrestlers near the Raja Indian Cuisine on the riverside is a Japanese pub . No families . Its prices are within the less than £ 20 range .
-Named The Wrestlers is a Japanese food pub and is near The Raja Indian Cuisine int he riverside area prices ranging from less than £ 20 and is family friendly
-A pub that The Wrestlers eat at , with a moderate price range , serves Japanese cuisine , but is not kid friendly and is located near Raja Indian Cuisine in the city centre area .
-In the city centre near Raja Indian Cuisine is The Wrestlers . It is a kids friendly pub serving moderately priced Japanese food .
-Japanese food can be found in the city centre area at The Wrestlers pub . This average - priced option is not a good location to bring children . This pub can be found next to Raja Indian Cuisine .
-By the riverside , near Raja Indian Cuisine , there is a Japanese pub named The Wrestlers . It is not kid - friendly , and is in the moderate price range .
-In riverside you can find a Japanese pub of moderate price called The Wrestlers . They offer a child friendly environment and can be found near Raja Indian Cuisine .
-The Wrestlers is a pub with Japanese food service , family atmosphere , warm and moderate prices clentele , is located near Raja Indian Cuisine in the Riverside area
-There is a friendly for kids pub called The Wrestlers which provides Japanese food in the moderate prices . It is situated in the city centre near to the Raja Indian Cuisine with 1 out of 5 customer rating .
+near the raja indian cuisine is children - friendly in the riverside area . it is a pub with japanese food with a high price range named the wrestlers .
+the wrestlers is a pub serving japanese food and is located near raja indian cuisine and the city center . it is non - family - friendly and is less than 20 pounds in price range .
+the city centre has japanese food via a pub , the wrestlers . family - friendly and less than £ 20 , this eatery is located near raja indian cuisine .
+the wrestlers near the raja indian cuisine on the riverside is a japanese pub . no families . its prices are within the less than £ 20 range .
+named the wrestlers is a japanese food pub and is near the raja indian cuisine int he riverside area prices ranging from less than £ 20 and is family friendly
+a pub that the wrestlers eat at , with a moderate price range , serves japanese cuisine , but is not kid friendly and is located near raja indian cuisine in the city centre area .
+in the city centre near raja indian cuisine is the wrestlers . it is a kids friendly pub serving moderately priced japanese food .
+japanese food can be found in the city centre area at the wrestlers pub . this average - priced option is not a good location to bring children . this pub can be found next to raja indian cuisine .
+by the riverside , near raja indian cuisine , there is a japanese pub named the wrestlers . it is not kid - friendly , and is in the moderate price range .
+in riverside you can find a japanese pub of moderate price called the wrestlers . they offer a child friendly environment and can be found near raja indian cuisine .
+the wrestlers is a pub with japanese food service , family atmosphere , warm and moderate prices clentele , is located near raja indian cuisine in the riverside area
+there is a friendly for kids pub called the wrestlers which provides japanese food in the moderate prices . it is situated in the city centre near to the raja indian cuisine with 1 out of 5 customer rating .
 
-The Wrestlers is a Japanese kid - friendly pub located by the riverside . It is near Raja Indian Cuisine , has moderate price ranges and a customer rating of 1 out of 5 .
+the wrestlers is a japanese kid - friendly pub located by the riverside . it is near raja indian cuisine , has moderate price ranges and a customer rating of 1 out of 5 .
 
-Near Raja Indian Cuisine in the city centre is a Japanese pub called The Wrestlers . It has a price range of more than £ 30 and is not kid - friendly .
-The Wrestlers is a children friendly pub with a price range of more than £ 30 . It also serves Japanese food and is located in the city centre near Raja Indian Cuisine .
-Japanese food at The Wrestlers pub features a price range of more than £ 30 . Located in the riverside area near Raja Indian Cuisine . We are not children friendly .
-There is a children friendly Japanese pub called The Wrestlers which is located near Raja Indian Cuisine in riverside . The price range is more than £ 30 .
-The Wrestlers is a child - friendly Japanese pub located in the city centre , near Raja Indian Cuisine . It receives low customer ratings and is in the high price range .
-Near Raja Indian Cuisine in the city centre there is a pub serving Japanese food called The Wrestlers . It costs more than £ 30 but has a customer rating of 5 out of 5 . This establishment is not child friendly .
-The Wrestlers is a children - friendly pub , it is located near Raja Indian Cuisine in the city centre that also serves Japanese food with a price range for more than £ 30 with a rating of 5 out of 5 .
+near raja indian cuisine in the city centre is a japanese pub called the wrestlers . it has a price range of more than £ 30 and is not kid - friendly .
+the wrestlers is a children friendly pub with a price range of more than £ 30 . it also serves japanese food and is located in the city centre near raja indian cuisine .
+japanese food at the wrestlers pub features a price range of more than £ 30 . located in the riverside area near raja indian cuisine . we are not children friendly .
+there is a children friendly japanese pub called the wrestlers which is located near raja indian cuisine in riverside . the price range is more than £ 30 .
+the wrestlers is a child - friendly japanese pub located in the city centre , near raja indian cuisine . it receives low customer ratings and is in the high price range .
+near raja indian cuisine in the city centre there is a pub serving japanese food called the wrestlers . it costs more than £ 30 but has a customer rating of 5 out of 5 . this establishment is not child friendly .
+the wrestlers is a children - friendly pub , it is located near raja indian cuisine in the city centre that also serves japanese food with a price range for more than £ 30 with a rating of 5 out of 5 .
 
 
-The Wrestlers serving Japanese cuisine in its pub does not cater for children . It is situated close to Raja Indian Cuisine near riverside . It has a price list of more than £ 30 but has a customer review of 5 out of 5 .
-Near Raja Indian Cuisine there is a Japanese pub The Wrestlers in Riverside . Their customer rating is 5 out of 5 with the price range more than £ 30 .
-The Wrestlers is an expensive , child - friendly Japanese pub located in the city centre , near Raja Indian Cuisine . It receives low customer ratings .
+the wrestlers serving japanese cuisine in its pub does not cater for children . it is situated close to raja indian cuisine near riverside . it has a price list of more than £ 30 but has a customer review of 5 out of 5 .
+near raja indian cuisine there is a japanese pub the wrestlers in riverside . their customer rating is 5 out of 5 with the price range more than £ 30 .
+the wrestlers is an expensive , child - friendly japanese pub located in the city centre , near raja indian cuisine . it receives low customer ratings .
 
-The Wrestlers near Raja Indian Cuisine on the riverside is a pub that does Japanese food . It has a low rating , is not child friendly and costs more than £ 30 .
-The Wrestlers is an expensive , family friendly pub serving Japanese food . It is located near Raja Indian Cuisine in the riverside area . It has a customer rating of 1 out of 5 .
+the wrestlers near raja indian cuisine on the riverside is a pub that does japanese food . it has a low rating , is not child friendly and costs more than £ 30 .
+the wrestlers is an expensive , family friendly pub serving japanese food . it is located near raja indian cuisine in the riverside area . it has a customer rating of 1 out of 5 .
 
-Near Raja Indian Cuisine in the riverside area is a Japanese pub called The Wrestlers . It is average - priced and kids friendly .
+near raja indian cuisine in the riverside area is a japanese pub called the wrestlers . it is average - priced and kids friendly .
 
 
-The Wrestlers is a pub in the medium price range . It is located near a Raja Indian Cuisine .
+the wrestlers is a pub in the medium price range . it is located near a raja indian cuisine .
 
-The Wrestlers is a family - friendly pub with a low price range in the northern City Centre next to Raja Indian Cuisine .
-The Wrestlers , located north of the city center . near Raja Indian Cuisine , is a moderately priced pub .
-The Wrestlers is a pub . It is located in riverside area near Raja Indian Cuisine . Start from low price and friend - family too .
-A low priced pub called The Wrestlers is not suitable for families . It is next to the Raja Indian Cuisine .
-The Wrestlers pub is a low - priced , family friendly sushi pub located close to Raja Indian Cuisine .
-The Wrestlers is a pub that provides pasta in the low price range . It is near Raja Indian Cuisine .
+the wrestlers is a family - friendly pub with a low price range in the northern city centre next to raja indian cuisine .
+the wrestlers , located north of the city center . near raja indian cuisine , is a moderately priced pub .
+the wrestlers is a pub . it is located in riverside area near raja indian cuisine . start from low price and friend - family too .
+a low priced pub called the wrestlers is not suitable for families . it is next to the raja indian cuisine .
+the wrestlers pub is a low - priced , family friendly sushi pub located close to raja indian cuisine .
+the wrestlers is a pub that provides pasta in the low price range . it is near raja indian cuisine .
 
 
 
 
-The Wrestlers pub is located near Raja Indian Cuisine . It is in the average price range .
-The Wrestlers is a pub close to Raja Indian Cuisine in city centre where prices are more than £ 30 and is not children friendly .
+the wrestlers pub is located near raja indian cuisine . it is in the average price range .
+the wrestlers is a pub close to raja indian cuisine in city centre where prices are more than £ 30 and is not children friendly .
 
 
 
-The Wrestlers pub is high - priced with great ratings . It is located near Raja Indian Cuisine ,
-The Wrestlers is an expensive family friendly pub north of the city , near Raja Indian Cuisine .
-The Wrestlers is a high end restaurant north of the city centre and nearby Raja Indian Cuisine .
+the wrestlers pub is high - priced with great ratings . it is located near raja indian cuisine ,
+the wrestlers is an expensive family friendly pub north of the city , near raja indian cuisine .
+the wrestlers is a high end restaurant north of the city centre and nearby raja indian cuisine .
 
 
-North of city centre and near Raja Indian Cuisine , is a 1 star , medium priced restaurant called The Wrestlers .
-The Wrestlers is a low cost restaurant . It is by Raja Indian Cuisine , and is adult only .
-The Wrestlers restaurant family friendly and well priced located next to Raja Indian Cuisine
-When in the center of the city you must try The Wrestlers with your family . It is a restaurant that serves Italian food at a fair price . It ' s located near Raja Indian Cuisine .
+north of city centre and near raja indian cuisine , is a 1 star , medium priced restaurant called the wrestlers .
+the wrestlers is a low cost restaurant . it is by raja indian cuisine , and is adult only .
+the wrestlers restaurant family friendly and well priced located next to raja indian cuisine
+when in the center of the city you must try the wrestlers with your family . it is a restaurant that serves italian food at a fair price . it ' s located near raja indian cuisine .
 
 
 
 
-Near Raja Indian Cuisine there is a restaurant called The Wrestlers that offers less than £ 20 Italian food and is by the river side . Kids not welcome
-Near Raja Indian Cuisine in the city centre is The Wrestlers a restaurant with Italian food . It is moderately - priced and is not kid friendly .
-The Wrestlers is a restaurant near Raja Indian Cuisine in the city centre . It serves moderately priced Italian food and is kids friendly .
-The Wrestlers is a moderately priced restaurant that serves Italian food . It is located in the city centre near Raja Indian Cuisine . Great place to bring your family .
+near raja indian cuisine there is a restaurant called the wrestlers that offers less than £ 20 italian food and is by the river side . kids not welcome
+near raja indian cuisine in the city centre is the wrestlers a restaurant with italian food . it is moderately - priced and is not kid friendly .
+the wrestlers is a restaurant near raja indian cuisine in the city centre . it serves moderately priced italian food and is kids friendly .
+the wrestlers is a moderately priced restaurant that serves italian food . it is located in the city centre near raja indian cuisine . great place to bring your family .
 
 
-The Wrestlers serves Italian food . It is a restaurant near Raja Indian Cuisine in the riverside area . It is kids friendly and has a moderate price range .
-An Italian restaurant called The Wrestlers is a restaurant in the area of riverside located near Raja Indian Cuisine . It is a children friendly place with a high price range of more than £ 30 .
-The Wrestlers eat at a restaurant that is family - friendly with prince range less than £ 20 , serving Japanese cuisine , and located near Raja Indian Cuisine in city centre area .
-The Wrestlers is a Japanese restaurant in City centre near Raja Indian Cuisine .
-Near Raja Indian Cuisine , in the riverside area lies The Wrestlers restaurant which serves Japanese food , is kid friendly with a price range of £ 20 - £ 25 .
-The Wrestlers is an adult Japanese restaurant in riverside near Raja Indian Cuisine with price range more than £ 30
-The Wrestlers is a restaurant that provides Japanese food for a high cost . The restaurant is located by the margin of the river , next to Raja Indian Cuisine .
-The Wrestlers is a Japanese food restaurant , located in the Riverside area nearby Raja Indian Cuisine . It is relatively inexpensive and also kids friendly .
-Near the Raja Indian Cuisine is children - friendly in the riverside area . It is a restaurant with Japanese food with a high price range named The Wrestlers .
-The Wrestlers is a restaurant serving Japanese food and is located near Raja Indian Cuisine and the city center . It is non - family - friendly and is less than 20 pounds in price range .
-The city centre has Japanese food via a restaurant , The Wrestlers . family - friendly and less than £ 20 , this eatery is located near Raja Indian Cuisine .
-The Wrestlers near the Raja Indian Cuisine on the riverside is a Japanese restaurant . No families . Its prices are within the less than £ 20 range .
-Named The Wrestlers is a Japanese food restaurant and is near The Raja Indian Cuisine int he riverside area prices ranging from less than £ 20 and is family friendly
-A restaurant that The Wrestlers eat at , with a moderate price range , serves Japanese cuisine , but is not kid friendly and is located near Raja Indian Cuisine in the city centre area .
-In the city centre near Raja Indian Cuisine is The Wrestlers . It is a kids friendly restaurant serving moderately priced Japanese food .
-Japanese food can be found in the city centre area at The Wrestlers restaurant . This average - priced option is not a good location to bring children . This restaurant can be found next to Raja Indian Cuisine .
-By the riverside , near Raja Indian Cuisine , there is a Japanese restaurant named The Wrestlers . It is not kid - friendly , and is in the moderate price range .
-In riverside you can find a Japanese restaurant of moderate price called The Wrestlers . They offer a child friendly environment and can be found near Raja Indian Cuisine .
+the wrestlers serves italian food . it is a restaurant near raja indian cuisine in the riverside area . it is kids friendly and has a moderate price range .
+an italian restaurant called the wrestlers is a restaurant in the area of riverside located near raja indian cuisine . it is a children friendly place with a high price range of more than £ 30 .
+the wrestlers eat at a restaurant that is family - friendly with prince range less than £ 20 , serving japanese cuisine , and located near raja indian cuisine in city centre area .
+the wrestlers is a japanese restaurant in city centre near raja indian cuisine .
+near raja indian cuisine , in the riverside area lies the wrestlers restaurant which serves japanese food , is kid friendly with a price range of £ 20 - £ 25 .
+the wrestlers is an adult japanese restaurant in riverside near raja indian cuisine with price range more than £ 30
+the wrestlers is a restaurant that provides japanese food for a high cost . the restaurant is located by the margin of the river , next to raja indian cuisine .
+the wrestlers is a japanese food restaurant , located in the riverside area nearby raja indian cuisine . it is relatively inexpensive and also kids friendly .
+near the raja indian cuisine is children - friendly in the riverside area . it is a restaurant with japanese food with a high price range named the wrestlers .
+the wrestlers is a restaurant serving japanese food and is located near raja indian cuisine and the city center . it is non - family - friendly and is less than 20 pounds in price range .
+the city centre has japanese food via a restaurant , the wrestlers . family - friendly and less than £ 20 , this eatery is located near raja indian cuisine .
+the wrestlers near the raja indian cuisine on the riverside is a japanese restaurant . no families . its prices are within the less than £ 20 range .
+named the wrestlers is a japanese food restaurant and is near the raja indian cuisine int he riverside area prices ranging from less than £ 20 and is family friendly
+a restaurant that the wrestlers eat at , with a moderate price range , serves japanese cuisine , but is not kid friendly and is located near raja indian cuisine in the city centre area .
+in the city centre near raja indian cuisine is the wrestlers . it is a kids friendly restaurant serving moderately priced japanese food .
+japanese food can be found in the city centre area at the wrestlers restaurant . this average - priced option is not a good location to bring children . this restaurant can be found next to raja indian cuisine .
+by the riverside , near raja indian cuisine , there is a japanese restaurant named the wrestlers . it is not kid - friendly , and is in the moderate price range .
+in riverside you can find a japanese restaurant of moderate price called the wrestlers . they offer a child friendly environment and can be found near raja indian cuisine .
 
-Near Raja Indian Cuisine in the city centre is a Japanese restaurant called The Wrestlers . It has a price range of more than £ 30 and is not kid - friendly .
-The Wrestlers is a children friendly restaurant with a price range of more than £ 30 . It also serves Japanese food and is located in the city centre near Raja Indian Cuisine .
-Japanese food at The Wrestlers restaurant features a price range of more than £ 30 . Located in the riverside area near Raja Indian Cuisine . We are not children friendly .
-There is a children friendly Japanese restaurant called The Wrestlers which is located near Raja Indian Cuisine in riverside . The price range is more than £ 30 .
+near raja indian cuisine in the city centre is a japanese restaurant called the wrestlers . it has a price range of more than £ 30 and is not kid - friendly .
+the wrestlers is a children friendly restaurant with a price range of more than £ 30 . it also serves japanese food and is located in the city centre near raja indian cuisine .
+japanese food at the wrestlers restaurant features a price range of more than £ 30 . located in the riverside area near raja indian cuisine . we are not children friendly .
+there is a children friendly japanese restaurant called the wrestlers which is located near raja indian cuisine in riverside . the price range is more than £ 30 .
 
-Near Raja Indian Cuisine in the riverside area is a Japanese restaurant called The Wrestlers . It is average - priced and kids friendly .
+near raja indian cuisine in the riverside area is a japanese restaurant called the wrestlers . it is average - priced and kids friendly .
 
 
-The Wrestlers is a high end restaurant that is located next to Raja Indian Cuisine .
-The Wrestlers is a family - friendly restaurant with a low price range in the northern City Centre next to Raja Indian Cuisine .
-The Wrestlers is a restaurant . It is located in riverside area near Raja Indian Cuisine . Start from low price and friend - family too .
-A low priced restaurant called The Wrestlers is not suitable for families . It is next to the Raja Indian Cuisine .
-The Wrestlers restaurant is a low - priced , family friendly sushi restaurant located close to Raja Indian Cuisine .
-The Wrestlers is a restaurant that provides pasta in the low price range . It is near Raja Indian Cuisine .
+the wrestlers is a high end restaurant that is located next to raja indian cuisine .
+the wrestlers is a family - friendly restaurant with a low price range in the northern city centre next to raja indian cuisine .
+the wrestlers is a restaurant . it is located in riverside area near raja indian cuisine . start from low price and friend - family too .
+a low priced restaurant called the wrestlers is not suitable for families . it is next to the raja indian cuisine .
+the wrestlers restaurant is a low - priced , family friendly sushi restaurant located close to raja indian cuisine .
+the wrestlers is a restaurant that provides pasta in the low price range . it is near raja indian cuisine .
 
 
 
 
-The Wrestlers restaurant is located near Raja Indian Cuisine . It is in the average price range .
-The Wrestlers is a restaurant close to Raja Indian Cuisine in city centre where prices are more than £ 30 and is not children friendly .
-The Wrestlers is an expensive family friendly restaurant north of the city , near Raja Indian Cuisine .
-The Wrestlers is a fun and competitive Food Establishment in the mid - range for Italian fare . It is kid - friendly and located near Raja Indian Cuisine near City Centre .
-Near Raja Indian Cuisine along the riverside is a family friendly , less than £ 20 Japanese food place , The Wrestlers .
-The Wrestlers is across from Raja Indian Cuisine in Riverside . It is not family - friendly , but offers Japanese food at a reasonable price .
-Wildwood is a coffee located in the city centre , near of the Raja Indian Cuisine .
-A coffee shop near the river is Wildwood .
+the wrestlers restaurant is located near raja indian cuisine . it is in the average price range .
+the wrestlers is a restaurant close to raja indian cuisine in city centre where prices are more than £ 30 and is not children friendly .
+the wrestlers is an expensive family friendly restaurant north of the city , near raja indian cuisine .
+the wrestlers is a fun and competitive food establishment in the mid - range for italian fare . it is kid - friendly and located near raja indian cuisine near city centre .
+near raja indian cuisine along the riverside is a family friendly , less than £ 20 japanese food place , the wrestlers .
+the wrestlers is across from raja indian cuisine in riverside . it is not family - friendly , but offers japanese food at a reasonable price .
+wildwood is a coffee located in the city centre , near of the raja indian cuisine .
+a coffee shop near the river is wildwood .
 
 
 
-A pub near the river is Wildwood .
-Wildwood is located in riverside near the Raja Indian Cuisine . It is a kid friendly pub that serves Indiana food .
-Wildwood is a French pub near Raja Indian Cuisine in riverside . it is family - Friendly .
-The Wildwood is a riverside French pub known for its popularity with kids . It is located near the Raja Indian Cuisine .
+a pub near the river is wildwood .
+wildwood is located in riverside near the raja indian cuisine . it is a kid friendly pub that serves indiana food .
+wildwood is a french pub near raja indian cuisine in riverside . it is family - friendly .
+the wildwood is a riverside french pub known for its popularity with kids . it is located near the raja indian cuisine .
 
-In the city centre , near the Raja Indian Cuisine , lies the Wildwood . It is a pub which also offers Indian food . The venue is not family friendly .
-Wildwood is in the city centre area near Raja Indian Cuisine . It is a pub that serves Indian food and is family Friendly .
-Wildwood is an Indian pub near the Raja Indian Cuisine . It is not family - friendly and is located riverside .
-Wildwood is a pub that sells Indian food located in riverside near Raja Indian Cuisine . They are children friendly .
-An adult Indian pub near the Raja Indian Cuisine and located riverside is Wildwood .
-A children friendly pub that serves Indian food is Wildwood and is located near Raja Indian Cuisine .
-A non family - friendly , Italian pub near Raja Indian Cuisine in the city center is called Wildwood .
-The family - friendly , Italian food pub , Wildwood , is located in the city centre near the Raja Indian Cuisine .
-Wildwood is a pub serving Italian food . It is not family friendly . It is based in the riverside area near Raja Indian Cuisine .
+in the city centre , near the raja indian cuisine , lies the wildwood . it is a pub which also offers indian food . the venue is not family friendly .
+wildwood is in the city centre area near raja indian cuisine . it is a pub that serves indian food and is family friendly .
+wildwood is an indian pub near the raja indian cuisine . it is not family - friendly and is located riverside .
+wildwood is a pub that sells indian food located in riverside near raja indian cuisine . they are children friendly .
+an adult indian pub near the raja indian cuisine and located riverside is wildwood .
+a children friendly pub that serves indian food is wildwood and is located near raja indian cuisine .
+a non family - friendly , italian pub near raja indian cuisine in the city center is called wildwood .
+the family - friendly , italian food pub , wildwood , is located in the city centre near the raja indian cuisine .
+wildwood is a pub serving italian food . it is not family friendly . it is based in the riverside area near raja indian cuisine .
 
 
 
-Wildwood is a pub in the low price range . It is located close to the Raja Indian Cuisine and has a superb view across the river .
+wildwood is a pub in the low price range . it is located close to the raja indian cuisine and has a superb view across the river .
 
-Wildwood is located in riverside near the Raja Indian Cuisine . It is a kid friendly restaurant that serves Indiana food .
-Wildwood is a French restaurant near Raja Indian Cuisine in riverside . it is family - Friendly .
-The Wildwood is a riverside French restaurant known for its popularity with kids . It is located near the Raja Indian Cuisine .
+wildwood is located in riverside near the raja indian cuisine . it is a kid friendly restaurant that serves indiana food .
+wildwood is a french restaurant near raja indian cuisine in riverside . it is family - friendly .
+the wildwood is a riverside french restaurant known for its popularity with kids . it is located near the raja indian cuisine .
 
-In the city centre , near the Raja Indian Cuisine , lies the Wildwood . It is a restaurant which also offers Indian food . The venue is not family friendly .
-Wildwood is in the city centre area near Raja Indian Cuisine . It is a restaurant that serves Indian food and is family Friendly .
-Wildwood is an Indian restaurant near the Raja Indian Cuisine . It is not family - friendly and is located riverside .
-Wildwood is a restaurant that sells Indian food located in riverside near Raja Indian Cuisine . They are children friendly .
-An adult Indian restaurant near the Raja Indian Cuisine and located riverside is Wildwood .
-A children friendly restaurant that serves Indian food is Wildwood and is located near Raja Indian Cuisine .
-A non family - friendly , Italian restaurant near Raja Indian Cuisine in the city center is called Wildwood .
-The family - friendly , Italian food restaurant , Wildwood , is located in the city centre near the Raja Indian Cuisine .
-Wildwood is a restaurant serving Italian food . It is not family friendly . It is based in the riverside area near Raja Indian Cuisine .
+in the city centre , near the raja indian cuisine , lies the wildwood . it is a restaurant which also offers indian food . the venue is not family friendly .
+wildwood is in the city centre area near raja indian cuisine . it is a restaurant that serves indian food and is family friendly .
+wildwood is an indian restaurant near the raja indian cuisine . it is not family - friendly and is located riverside .
+wildwood is a restaurant that sells indian food located in riverside near raja indian cuisine . they are children friendly .
+an adult indian restaurant near the raja indian cuisine and located riverside is wildwood .
+a children friendly restaurant that serves indian food is wildwood and is located near raja indian cuisine .
+a non family - friendly , italian restaurant near raja indian cuisine in the city center is called wildwood .
+the family - friendly , italian food restaurant , wildwood , is located in the city centre near the raja indian cuisine .
+wildwood is a restaurant serving italian food . it is not family friendly . it is based in the riverside area near raja indian cuisine .
 
 
 
-Wildwood is a restaurant in the low price range . It is located close to the Raja Indian Cuisine and has a superb view across the river .
-Wildwood serves French food that is kids friendly . It is in Riverside near Raja Indian Cuisine
-A restaurantpe that serves Italian food located at Riverside near Raja Indian Cuisine and is not kid friendly is Wildwood .
-You can find a coffee shop named Zizzi in the riverside area .
-An average rated coffee shop called Zizzi is nearby Burger King .
-Located near Burger King , Zizzi is a high - rated coffee shop .
-Customers have rated the Zizzi coffee shop situated near Burger King as average .
-There is a coffee shop called Zizzi located near The Sorrento .
-You can find a pub named Zizzi in the riverside area .
-An average rated pub called Zizzi is nearby Burger King .
-Located near Burger King , Zizzi is a high - rated pub .
-Customers have rated the Zizzi pub situated near Burger King as average .
-There is a pub called Zizzi located near The Sorrento .
+wildwood is a restaurant in the low price range . it is located close to the raja indian cuisine and has a superb view across the river .
+wildwood serves french food that is kids friendly . it is in riverside near raja indian cuisine
+a restaurantpe that serves italian food located at riverside near raja indian cuisine and is not kid friendly is wildwood .
+you can find a coffee shop named zizzi in the riverside area .
+an average rated coffee shop called zizzi is nearby burger king .
+located near burger king , zizzi is a high - rated coffee shop .
+customers have rated the zizzi coffee shop situated near burger king as average .
+there is a coffee shop called zizzi located near the sorrento .
+you can find a pub named zizzi in the riverside area .
+an average rated pub called zizzi is nearby burger king .
+located near burger king , zizzi is a high - rated pub .
+customers have rated the zizzi pub situated near burger king as average .
+there is a pub called zizzi located near the sorrento .

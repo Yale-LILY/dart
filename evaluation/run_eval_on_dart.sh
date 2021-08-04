@@ -1,7 +1,7 @@
 #! /bin/bash
 
 
-OUTPUT_FILE=example/bart_dart.txt
+OUTPUT_FILE=example/bart-large_dart.txt
 
 TEST_TARGETS_REF0=dart_reference/all-delex-reference0.lex
 TEST_TARGETS_REF1=dart_reference/all-delex-reference1.lex
