@@ -83,6 +83,16 @@ We maintain a leaderboard on our test set.
     <th>PARENT</th>
   </tr>
   <tr>
+    <td> Control Prefixes (T5-large) <a href="https://arxiv.org/pdf/2110.08329.pdf"> (Clive et al., 2021) </a></td>
+    <td><b>51.95</b></td>
+    <td><b>0.41</b></td>
+    <td><b>0.43</b></td>
+    <td><b>-</b></td>
+    <td><b>0.95</b></td>
+    <td><b>-</b></td>
+    <td><b>-</b></td>
+  </tr>
+  <tr>
     <td> T5-large <a href="https://arxiv.org/pdf/1910.10683.pdf"> (Raffel et al., 2020) </a></td>
     <td><b>50.66</b></td>
     <td><b>0.40</b></td>
